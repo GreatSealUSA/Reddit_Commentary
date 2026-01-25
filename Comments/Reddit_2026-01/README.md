@@ -10,7 +10,7 @@ OPERA_A https://www.youtube.com/watch?v=b7k0a5hYnSI "Natasha Bedingfield - Unwri
 **We The People** of the Pale Blue Dot are the educators.     
 **We The People** of Earth are the authors of our future, we create mythology and teachings.   
 **We The People** of the World Wide Web are the leaders in the Great Seal of the United States of America thinking systems.   
-**We The Peple** are the ones who populate Wikipedia. We Teach the Artificial Intelligence (AI) systems.   
+**We The People** are the ones who populate Wikipedia. We Teach the Artificial Intelligence (AI) systems.   
 
 &nbsp;
 
