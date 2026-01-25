@@ -4,7 +4,7 @@
   
 ## Reddit comment o1kir2t
 
-    entry 1 (1/31)
+    entry 1 (1/37)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kir2t/  
 Comment ID:      o1kir2t  
@@ -37,7 +37,7 @@ The same level of media literacy as conservatives who are shocked to learn that 
   
 ## Reddit comment o1kf284
 
-    entry 2 (2/31)
+    entry 2 (2/37)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kf284/  
 Comment ID:      o1kf284  
@@ -62,7 +62,7 @@ Almost all of them are gay men too, they just hate trans/bi peeps like Jesus fuc
   
 ## Reddit comment o1k8pdr
 
-    entry 3 (3/31)
+    entry 3 (3/37)
 
 Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qm94e3/rconservative_moderators_deleting_posts_and/o1k8pdr/  
 Comment ID:      o1k8pdr  
@@ -89,7 +89,7 @@ I swear they go quiet for a bit whenever something big happens so they can decid
   
 ## Reddit comment o1l2sex
 
-    entry 4 (4/31)
+    entry 4 (4/37)
 
 Comment URL: https://old.reddit.com/r/agedlikewine/comments/1qm8tib/2a/o1l2sex/  
 Comment ID:      o1l2sex  
@@ -125,7 +125,7 @@ The people are better of with peaceful protests without using violence or firear
   
 ## Reddit comment o1k8368
 
-    entry 5 (5/31)
+    entry 5 (5/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k8368/  
 Comment ID:      o1k8368  
@@ -163,7 +163,7 @@ Inflection point? Fuck. I’m 55 and have four kids and I’m ready to fuck some
   
 ## Reddit comment o1k4kit
 
-    entry 6 (6/31)
+    entry 6 (6/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k4kit/  
 Comment ID:      o1k4kit  
@@ -193,7 +193,7 @@ I talked to my MAGA neighbor today and it appears the talking point being pushed
   
 ## Reddit comment o1k7a30
 
-    entry 7 (7/31)
+    entry 7 (7/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k7a30/  
 Comment ID:      o1k7a30  
@@ -228,7 +228,7 @@ It won’t be long before someone really does use a gun to try to harm ice agent
   
 ## Reddit comment o1mko26
 
-    entry 8 (8/31)
+    entry 8 (8/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mko26/  
 Comment ID:      o1mko26  
@@ -251,7 +251,7 @@ billionaires should not exist
   
 ## Reddit comment o1mktjf
 
-    entry 9 (9/31)
+    entry 9 (9/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mktjf/  
 Comment ID:      o1mktjf  
@@ -276,7 +276,7 @@ They can live comfortably anywhere. They can buy legislators in any country. The
   
 ## Reddit comment o1mjntz
 
-    entry 10 (10/31)
+    entry 10 (10/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mjntz/  
 Comment ID:      o1mjntz  
@@ -309,7 +309,7 @@ Here's the Rotten Tomatoes page...just in case you need it...for something.
   
 ## Reddit comment o1m0sn2
 
-    entry 11 (11/31)
+    entry 11 (11/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m0sn2/  
 Comment ID:      o1m0sn2  
@@ -340,7 +340,7 @@ Subtility would be lost on the morons they're targeting. Right wing dogwhistles 
   
 ## Reddit comment o1m79z5
 
-    entry 12 (12/31)
+    entry 12 (12/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m79z5/  
 Comment ID:      o1m79z5  
@@ -405,7 +405,7 @@ If you fail to defend other people's rights \- that is how you lose your own.
   
 ## Reddit comment o1mfc15
 
-    entry 13 (13/31)
+    entry 13 (13/37)
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mfc15/  
 Comment ID:      o1mfc15  
@@ -434,7 +434,7 @@ At this point I don’t event know what we can do to restore peace in our countr
   
 ## Reddit comment o1mggi0
 
-    entry 14 (14/31)
+    entry 14 (14/37)
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mggi0/  
 Comment ID:      o1mggi0  
@@ -463,7 +463,7 @@ This is unbelievable but this is what the people wanted , it's no longer attacki
   
 ## Reddit comment o1mcsm0
 
-    entry 15 (15/31)
+    entry 15 (15/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mcsm0/  
 Comment ID:      o1mcsm0  
@@ -492,7 +492,7 @@ Is there a word for this?
   
 ## Reddit comment o1memwc
 
-    entry 16 (16/31)
+    entry 16 (16/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1memwc/  
 Comment ID:      o1memwc  
@@ -519,7 +519,7 @@ And there it is. At the end of the day, this is about controlling elections to e
   
 ## Reddit comment o1mdgp4
 
-    entry 17 (17/31)
+    entry 17 (17/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdgp4/  
 Comment ID:      o1mdgp4  
@@ -552,7 +552,7 @@ Seriously what does voter rolls, Medicaid, and fraud have to do with immigration
   
 ## Reddit comment o1mdme8
 
-    entry 18 (18/31)
+    entry 18 (18/37)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdme8/  
 Comment ID:      o1mdme8  
@@ -579,7 +579,7 @@ Extortion! They are killing Americansto get the voter data so they knew whom to 
   
 ## Reddit comment o1mkka4
 
-    entry 19 (19/31)
+    entry 19 (19/37)
 
 Comment URL: https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mkka4/  
 Comment ID:      o1mkka4  
@@ -612,7 +612,7 @@ This is not a "meme". This is disinformation from the official government social
   
 ## Reddit comment o1mitl7
 
-    entry 20 (20/31)
+    entry 20 (20/37)
 
 Comment URL: https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mitl7/  
 Comment ID:      o1mitl7  
@@ -641,7 +641,7 @@ My apologies to 13 year olds.
   
 ## Reddit comment o1noix1
 
-    entry 21 (21/31)
+    entry 21 (21/37)
 
 Comment URL: https://old.reddit.com/r/pics/comments/1qmptp1/this_is_america/o1noix1/  
 Comment ID:      o1noix1  
@@ -670,7 +670,7 @@ The flag should be upside\-down.
   
 ## Reddit comment o1ni1qq
 
-    entry 22 (22/31)
+    entry 22 (22/37)
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmo5df/this_is_america/o1ni1qq/  
 Comment ID:      o1ni1qq  
@@ -697,7 +697,7 @@ The “2A protects the 1A” cosplay guys folded quick, didn’t they? Turns out
   
 ## Reddit comment o1n74vm
 
-    entry 23 (23/31)
+    entry 23 (23/37)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1n74vm/  
 Comment ID:      o1n74vm  
@@ -720,7 +720,7 @@ Born in Illinois, grew up in Green Bay, murdered in Minneapolis. It’s time we 
   
 ## Reddit comment o1nxqs0
 
-    entry 24 (24/31)
+    entry 24 (24/37)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1nxqs0/  
 Comment ID:      o1nxqs0  
@@ -743,7 +743,7 @@ Their mental gymnastics on the 2nd amendment is Olympic level
   
 ## Reddit comment o1njcv5
 
-    entry 25 (25/31)
+    entry 25 (25/37)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1njcv5/  
 Comment ID:      o1njcv5  
@@ -774,7 +774,7 @@ The problem is they are dumb, argued with one the other day and he legit tried t
   
 ## Reddit comment o1nn0e0
 
-    entry 26 (26/31)
+    entry 26 (26/37)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1nn0e0/  
 Comment ID:      o1nn0e0  
@@ -801,7 +801,7 @@ Post Title:      He was from Green Bay.
   
 ## Reddit comment o1njok2
 
-    entry 27 (27/31)
+    entry 27 (27/37)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1njok2/  
 Comment ID:      o1njok2  
@@ -828,7 +828,7 @@ I’m still trying to understand how a group of people who stormed the US Capito
   
 ## Reddit comment o1mmhfo
 
-    entry 28 (28/31)
+    entry 28 (28/37)
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mmhfo/  
 Comment ID:      o1mmhfo  
@@ -859,7 +859,7 @@ This administration is as childish as it is cruel.
   
 ## Reddit comment o1mmv3n
 
-    entry 29 (29/31)
+    entry 29 (29/37)
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mmv3n/  
 Comment ID:      o1mmv3n  
@@ -891,7 +891,7 @@ The administration is being ran by brain dead teenagers apparently.
   
 ## Reddit comment o1mzvwl
 
-    entry 30 (30/31)
+    entry 30 (30/37)
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mzvwl/  
 Comment ID:      o1mzvwl  
@@ -920,7 +920,7 @@ They’re calling propaganda “memes”.
   
 ## Reddit comment o1mlkeo
 
-    entry 31 (31/31)
+    entry 31 (31/37)
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mlkeo/  
 Comment ID:      o1mlkeo  
@@ -942,4 +942,170 @@ Imagine being a grown adult and admitting you care about memes. Let alone somebo
 > Reddit audience. Twitter-length thinking patterns, short-message. No demonstration of knowing Neil Postman's teachings.
 > 
 > There is no demonstration on Reddit of self-awareness of being lead by the nose / leash lead, by Elon Musk Twitter media systems / meme images. All signs and behaviors indicate a mob mentality of thinking Reddit audience has out-smarted the out-groups ( Twitter, Turning Point, Saint Petersburg Internet Research Agency seeding since March 2013, Grok AI, Rupert Mrudoch }... no invocation of { Media Ecology, Neil Postman, Marshall McLuhan }. Despite the long-established Time Magazine just months ago re-asserting Neil Postman's 1985 media ecology about addict self-awareness (Reddit high speed electric media audience). September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ only 137 days ago!
+>
+
+
+=============
+  
+## Reddit comment o1ox9bz
+
+    entry 32 (32/37)
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1ox9bz/  
+Comment ID:      o1ox9bz  
+Author:          Smooth-Boss-911  
+Bio:             Smooth :   
+Account Created: 2024-01-08T04:41:53Z  
+Link Karma:      4047  
+Comment Karma:   82463  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T21:05:43Z  
+Score:           1175 points  
+Post Title:      Minnesota National Guard warmly greeting and handing out snacks with peaceful protesters!  
+:::::: Reddit User Comment: ======  
+Remember this is a very precarious situation. I think it was clever of Walz how he approached this to get the guard on the street without setting off alarms and getting them federalized.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Sunday situation.
+>
+
+
+=============
+  
+## Reddit comment o1oyt1n
+
+    entry 33 (33/37)
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1oyt1n/  
+Comment ID:      o1oyt1n  
+Author:          DilbertHigh  
+Bio:               
+Account Created: 2011-12-05T04:08:13Z  
+Link Karma:      6619  
+Comment Karma:   150428  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T21:12:20Z  
+Score:           39 points  
+Post Title:      Minnesota National Guard warmly greeting and handing out snacks with peaceful protesters!  
+:::::: Reddit User Comment: ======  
+National guard is going to continue to allow ice and border patrol to operate unimpeded they are only here to quell dissent. I do not consider them my neighbors after they did the same in 2020 and allowed police to brutalize residents.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Have lessons been learned since year 2020... "George Floyd was killed in Minneapolis, Minnesota, on May 25, 2020. The incident occurred at the intersection of 38th Street and Chicago Avenue in South Minneapolis, specifically outside the CUP Foods store, which is now known as George Floyd Square." - Google Search summary 2026-01-25 afternoon USA
+>
+
+
+=============
+  
+## Reddit comment o1ozq9y
+
+    entry 34 (34/37)
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1ozq9y/  
+Comment ID:      o1ozq9y  
+Author:          GeeEmmInMN  
+Bio:             GeeEmm : Woke boomer. Human. Ally. Armchair anarchist. Very amateur photographer.   
+Account Created: 2025-04-09T22:30:43Z  
+Link Karma:      6126  
+Comment Karma:   36300  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T21:16:11Z  
+Score:           180 points  
+Post Title:      Minnesota National Guard warmly greeting and handing out snacks with peaceful protesters!  
+:::::: Reddit User Comment: ======  
+This had me smiling. Let's show this horrible federal administration that when authority shows respect to people and the laws, it is reciprocated.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account. "MN" end on username in Minnesota subreddit.
+>
+
+
+=============
+  
+## Reddit comment o1p823h
+
+    entry 35 (35/37)
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1p823h/  
+Comment ID:      o1p823h  
+Author:          JoyousMN_2024  
+Bio:               
+Account Created: 2024-11-10T13:47:44Z  
+Link Karma:      2784  
+Comment Karma:   11327  
+Comment Age:     28 minutes ago  
+Timestamp:       2026-01-25T21:52:32Z  
+Score:           None  
+Post Title:      Minnesota National Guard warmly greeting and handing out snacks with peaceful protesters!  
+:::::: Reddit User Comment: ======  
+This. This is how you deploy a force into a civilian city. You don't send in Fallujah\-cosplaying, wannabe pretend soldiers. All masked \& anonymous, carrying automatic rifles slung over their shoulders, putting down the citizens of a US city who are simply exercising their first and second amendment rights.
+
+Maga Republicans may hate us because we're liberal, but we're also 100% tax paying US citizens with exactly the same rights enumerated in the Constitution.
+
+Spot on, Gov Walz
+
+
+
+
+=============
+  
+## Reddit comment o1oo1da
+
+    entry 36 (36/37)
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qmtzqd/even_cnn_has_had_enough_of_the_administrations/o1oo1da/  
+Comment ID:      o1oo1da  
+Author:          eilujgnirednaw  
+Bio:               
+Account Created: 2021-05-21T20:38:53Z  
+Link Karma:      9  
+Comment Karma:   1428  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T20:25:34Z  
+Score:           2042 points  
+Post Title:      Even CNN has had enough of the administration's lies  
+:::::: Reddit User Comment: ======  
+So Bovino is now leading the Pre\-Crime Division, where ICE does a great job killing legally armed protestors before they can even think about killing agents.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Posting about CNN media ecology; fiction vs. nonfiction.
+>
+
+
+=============
+  
+## Reddit comment o1op934
+
+    entry 37 (37/37)
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qmtzqd/even_cnn_has_had_enough_of_the_administrations/o1op934/  
+Comment ID:      o1op934  
+Author:          GriffinFlash  
+Bio:             DinoRpg :   
+Account Created: 2010-12-13T07:42:19Z  
+Link Karma:      16988  
+Comment Karma:   747981  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T20:30:55Z  
+Score:           1336 points  
+Post Title:      Even CNN has had enough of the administration's lies  
+:::::: Reddit User Comment: ======  
+"We don't know that the agent was taking the gun away"
+
+Literal Video Playing at that moment: They all see the gun being taken away then start shooting.
+
+This can't be real life. God I hope this guy is tried Nuremberg style.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "real life"; fiction vs. nonfiction storytelling.
 >
