@@ -1481,7 +1481,7 @@ If people weren’t so fucking stupid this wouldn’t be an issue.
 > :::::: Analysis_Thoughts Commentary: ======  
 > 7 month Reddit account. Downplaying the complexity of Russian media invasion, billionaires owning all the media and sports teams. NBA topic, I used to work in social media as an expert for team owner of the Portland Trailblazers; Jody Allen and Paul Allen. It is in no way simple and this message downplaying the complexity of media ecology... bad.
 > 
-> * "::: the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s **the most powerful political rhetoric in a world** with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple” :::" - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+> * Quote ::: the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s **the most powerful political rhetoric in a world** with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple” ::: - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 >
 
 
@@ -1509,4 +1509,110 @@ it seems like that’s all anyone does anymore \- it’s maddening
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
 > "maddening"
+>
+
+
+=============
+  
+## Reddit comment o1paipi
+
+    entry 52
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1paipi/  
+Comment ID:      o1paipi  
+Author:          pwningnoobslolz  
+Bio:               
+Account Created: 2025-05-27T21:04:19Z  
+Link Karma:      1  
+Comment Karma:   11475  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:03:23Z  
+Score:           114 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+I feel like kerr is sane washing what is going on right now with this statement. I'm sure he doesnt want to fan the flames but I expected more
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1pdp2y
+
+    entry 53
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pdp2y/  
+Comment ID:      o1pdp2y  
+Author:          Gamerxx13  
+Bio:               
+Account Created: 2012-11-28T00:18:28Z  
+Link Karma:      16559  
+Comment Karma:   73090  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:17:22Z  
+Score:           5 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+I like how we all can watch the same video and have completely opposite conclusions
+
+
+
+
+=============
+  
+## Reddit comment o1piwog
+
+    entry 54
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1piwog/  
+Comment ID:      o1piwog  
+Author:          takechanceees  
+Bio:             ᴄʜᴀɴᴏ  :   
+Account Created: 2019-09-16T13:57:43Z  
+Link Karma:      1573  
+Comment Karma:   22307  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:40:38Z  
+Score:           6 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+it is insane to see Reddit legitimately saying Kerr is in the wrong in this clip my god!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "insane"
+>
+
+
+=============
+  
+## Reddit comment o1pefm8
+
+    entry 55
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pefm8/  
+Comment ID:      o1pefm8  
+Author:          Kuni_Nino  
+Bio:               
+Account Created: 2018-01-02T20:04:02Z  
+Link Karma:      1  
+Comment Karma:   21878  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:20:39Z  
+Score:           10 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+Social media really ruined our society. Giving voices to everybody was a bad idea.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Social media has exposed that we failed to teach media ecology. Neil Postman and Marshall McLuhan for starters. The 1950's, 1960's, 1970's, 1980's, 1990's we had two great teachers directly addressing the public media consumers in North America. McLuhan from University of Toronto, Neil Postman from New York University.
+> 
+> * "Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among **the most important "subjects" to be studied in the interests of survival**." - Neil Postman on media ecology
 >
