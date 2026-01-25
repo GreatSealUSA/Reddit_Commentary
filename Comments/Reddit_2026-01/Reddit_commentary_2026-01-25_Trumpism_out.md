@@ -4,7 +4,7 @@
   
 ## Reddit comment o1kir2t
 
-    entry 1 (1/46)
+    entry 1
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kir2t/  
 Comment ID:      o1kir2t  
@@ -37,7 +37,7 @@ The same level of media literacy as conservatives who are shocked to learn that 
   
 ## Reddit comment o1kf284
 
-    entry 2 (2/46)
+    entry 2
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kf284/  
 Comment ID:      o1kf284  
@@ -62,7 +62,7 @@ Almost all of them are gay men too, they just hate trans/bi peeps like Jesus fuc
   
 ## Reddit comment o1k8pdr
 
-    entry 3 (3/46)
+    entry 3
 
 Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qm94e3/rconservative_moderators_deleting_posts_and/o1k8pdr/  
 Comment ID:      o1k8pdr  
@@ -89,7 +89,7 @@ I swear they go quiet for a bit whenever something big happens so they can decid
   
 ## Reddit comment o1l2sex
 
-    entry 4 (4/46)
+    entry 4
 
 Comment URL: https://old.reddit.com/r/agedlikewine/comments/1qm8tib/2a/o1l2sex/  
 Comment ID:      o1l2sex  
@@ -125,7 +125,7 @@ The people are better of with peaceful protests without using violence or firear
   
 ## Reddit comment o1k8368
 
-    entry 5 (5/46)
+    entry 5
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k8368/  
 Comment ID:      o1k8368  
@@ -163,7 +163,7 @@ Inflection point? Fuck. I’m 55 and have four kids and I’m ready to fuck some
   
 ## Reddit comment o1k4kit
 
-    entry 6 (6/46)
+    entry 6
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k4kit/  
 Comment ID:      o1k4kit  
@@ -193,7 +193,7 @@ I talked to my MAGA neighbor today and it appears the talking point being pushed
   
 ## Reddit comment o1k7a30
 
-    entry 7 (7/46)
+    entry 7
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k7a30/  
 Comment ID:      o1k7a30  
@@ -228,7 +228,7 @@ It won’t be long before someone really does use a gun to try to harm ice agent
   
 ## Reddit comment o1mko26
 
-    entry 8 (8/46)
+    entry 8
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mko26/  
 Comment ID:      o1mko26  
@@ -251,7 +251,7 @@ billionaires should not exist
   
 ## Reddit comment o1mktjf
 
-    entry 9 (9/46)
+    entry 9
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mktjf/  
 Comment ID:      o1mktjf  
@@ -276,7 +276,7 @@ They can live comfortably anywhere. They can buy legislators in any country. The
   
 ## Reddit comment o1mjntz
 
-    entry 10 (10/46)
+    entry 10
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mjntz/  
 Comment ID:      o1mjntz  
@@ -309,7 +309,7 @@ Here's the Rotten Tomatoes page...just in case you need it...for something.
   
 ## Reddit comment o1m0sn2
 
-    entry 11 (11/46)
+    entry 11
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m0sn2/  
 Comment ID:      o1m0sn2  
@@ -340,7 +340,7 @@ Subtility would be lost on the morons they're targeting. Right wing dogwhistles 
   
 ## Reddit comment o1m79z5
 
-    entry 12 (12/46)
+    entry 12
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m79z5/  
 Comment ID:      o1m79z5  
@@ -405,7 +405,7 @@ If you fail to defend other people's rights \- that is how you lose your own.
   
 ## Reddit comment o1mfc15
 
-    entry 13 (13/46)
+    entry 13
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mfc15/  
 Comment ID:      o1mfc15  
@@ -434,7 +434,7 @@ At this point I don’t event know what we can do to restore peace in our countr
   
 ## Reddit comment o1mggi0
 
-    entry 14 (14/46)
+    entry 14
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mggi0/  
 Comment ID:      o1mggi0  
@@ -463,7 +463,7 @@ This is unbelievable but this is what the people wanted , it's no longer attacki
   
 ## Reddit comment o1mcsm0
 
-    entry 15 (15/46)
+    entry 15
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mcsm0/  
 Comment ID:      o1mcsm0  
@@ -492,7 +492,7 @@ Is there a word for this?
   
 ## Reddit comment o1memwc
 
-    entry 16 (16/46)
+    entry 16
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1memwc/  
 Comment ID:      o1memwc  
@@ -519,7 +519,7 @@ And there it is. At the end of the day, this is about controlling elections to e
   
 ## Reddit comment o1mdgp4
 
-    entry 17 (17/46)
+    entry 17
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdgp4/  
 Comment ID:      o1mdgp4  
@@ -552,7 +552,7 @@ Seriously what does voter rolls, Medicaid, and fraud have to do with immigration
   
 ## Reddit comment o1mdme8
 
-    entry 18 (18/46)
+    entry 18
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdme8/  
 Comment ID:      o1mdme8  
@@ -579,7 +579,7 @@ Extortion! They are killing Americansto get the voter data so they knew whom to 
   
 ## Reddit comment o1mkka4
 
-    entry 19 (19/46)
+    entry 19
 
 Comment URL: https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mkka4/  
 Comment ID:      o1mkka4  
@@ -612,7 +612,7 @@ This is not a "meme". This is disinformation from the official government social
   
 ## Reddit comment o1mitl7
 
-    entry 20 (20/46)
+    entry 20
 
 Comment URL: https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mitl7/  
 Comment ID:      o1mitl7  
@@ -641,7 +641,7 @@ My apologies to 13 year olds.
   
 ## Reddit comment o1noix1
 
-    entry 21 (21/46)
+    entry 21
 
 Comment URL: https://old.reddit.com/r/pics/comments/1qmptp1/this_is_america/o1noix1/  
 Comment ID:      o1noix1  
@@ -670,7 +670,7 @@ The flag should be upside\-down.
   
 ## Reddit comment o1ni1qq
 
-    entry 22 (22/46)
+    entry 22
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmo5df/this_is_america/o1ni1qq/  
 Comment ID:      o1ni1qq  
@@ -697,7 +697,7 @@ The “2A protects the 1A” cosplay guys folded quick, didn’t they? Turns out
   
 ## Reddit comment o1n74vm
 
-    entry 23 (23/46)
+    entry 23
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1n74vm/  
 Comment ID:      o1n74vm  
@@ -720,7 +720,7 @@ Born in Illinois, grew up in Green Bay, murdered in Minneapolis. It’s time we 
   
 ## Reddit comment o1nxqs0
 
-    entry 24 (24/46)
+    entry 24
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1nxqs0/  
 Comment ID:      o1nxqs0  
@@ -743,7 +743,7 @@ Their mental gymnastics on the 2nd amendment is Olympic level
   
 ## Reddit comment o1njcv5
 
-    entry 25 (25/46)
+    entry 25
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1njcv5/  
 Comment ID:      o1njcv5  
@@ -774,7 +774,7 @@ The problem is they are dumb, argued with one the other day and he legit tried t
   
 ## Reddit comment o1nn0e0
 
-    entry 26 (26/46)
+    entry 26
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1nn0e0/  
 Comment ID:      o1nn0e0  
@@ -801,7 +801,7 @@ Post Title:      He was from Green Bay.
   
 ## Reddit comment o1njok2
 
-    entry 27 (27/46)
+    entry 27
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1njok2/  
 Comment ID:      o1njok2  
@@ -828,7 +828,7 @@ I’m still trying to understand how a group of people who stormed the US Capito
   
 ## Reddit comment o1mmhfo
 
-    entry 28 (28/46)
+    entry 28
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mmhfo/  
 Comment ID:      o1mmhfo  
@@ -859,7 +859,7 @@ This administration is as childish as it is cruel.
   
 ## Reddit comment o1mmv3n
 
-    entry 29 (29/46)
+    entry 29
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mmv3n/  
 Comment ID:      o1mmv3n  
@@ -891,7 +891,7 @@ The administration is being ran by brain dead teenagers apparently.
   
 ## Reddit comment o1mzvwl
 
-    entry 30 (30/46)
+    entry 30
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mzvwl/  
 Comment ID:      o1mzvwl  
@@ -920,7 +920,7 @@ They’re calling propaganda “memes”.
   
 ## Reddit comment o1mlkeo
 
-    entry 31 (31/46)
+    entry 31
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mlkeo/  
 Comment ID:      o1mlkeo  
@@ -949,7 +949,7 @@ Imagine being a grown adult and admitting you care about memes. Let alone somebo
   
 ## Reddit comment o1ox9bz
 
-    entry 32 (32/46)
+    entry 32
 
 Comment URL: https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1ox9bz/  
 Comment ID:      o1ox9bz  
@@ -976,7 +976,7 @@ Remember this is a very precarious situation. I think it was clever of Walz how 
   
 ## Reddit comment o1oyt1n
 
-    entry 33 (33/46)
+    entry 33
 
 Comment URL: https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1oyt1n/  
 Comment ID:      o1oyt1n  
@@ -1003,7 +1003,7 @@ National guard is going to continue to allow ice and border patrol to operate un
   
 ## Reddit comment o1ozq9y
 
-    entry 34 (34/46)
+    entry 34
 
 Comment URL: https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1ozq9y/  
 Comment ID:      o1ozq9y  
@@ -1030,7 +1030,7 @@ This had me smiling. Let's show this horrible federal administration that when a
   
 ## Reddit comment o1p823h
 
-    entry 35 (35/46)
+    entry 35
 
 Comment URL: https://old.reddit.com/r/minnesota/comments/1qmv5h3/minnesota_national_guard_warmly_greeting_and/o1p823h/  
 Comment ID:      o1p823h  
@@ -1057,7 +1057,7 @@ Spot on, Gov Walz
   
 ## Reddit comment o1oo1da
 
-    entry 36 (36/46)
+    entry 36
 
 Comment URL: https://old.reddit.com/r/videos/comments/1qmtzqd/even_cnn_has_had_enough_of_the_administrations/o1oo1da/  
 Comment ID:      o1oo1da  
@@ -1084,7 +1084,7 @@ So Bovino is now leading the Pre\-Crime Division, where ICE does a great job kil
   
 ## Reddit comment o1op934
 
-    entry 37 (37/46)
+    entry 37
 
 Comment URL: https://old.reddit.com/r/videos/comments/1qmtzqd/even_cnn_has_had_enough_of_the_administrations/o1op934/  
 Comment ID:      o1op934  
@@ -1115,7 +1115,7 @@ This can't be real life. God I hope this guy is tried Nuremberg style.
   
 ## Reddit comment o1o3py4
 
-    entry 38 (38/46)
+    entry 38
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmrrvv/fbi_director_kash_patel_suggests_its_illegal_to/o1o3py4/  
 Comment ID:      o1o3py4  
@@ -1142,7 +1142,7 @@ Okay, then why were all the Jan 6 rioters who brought guns pardoned and praised?
   
 ## Reddit comment o1o6wtd
 
-    entry 39 (39/46)
+    entry 39
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmrrvv/fbi_director_kash_patel_suggests_its_illegal_to/o1o6wtd/  
 Comment ID:      o1o6wtd  
@@ -1175,7 +1175,7 @@ Plain and simple. This is the narrative they speak
   
 ## Reddit comment o1orzjg
 
-    entry 40 (40/46)
+    entry 40
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1orzjg/  
 Comment ID:      o1orzjg  
@@ -1204,7 +1204,7 @@ People hate this piece of shit to point where he can't even live in society or g
   
 ## Reddit comment o1opovb
 
-    entry 41 (41/46)
+    entry 41
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1opovb/  
 Comment ID:      o1opovb  
@@ -1231,7 +1231,7 @@ Arguably the most evil person in the planet
   
 ## Reddit comment o1ov49o
 
-    entry 42 (42/46)
+    entry 42
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1ov49o/  
 Comment ID:      o1ov49o  
@@ -1262,7 +1262,7 @@ Please watch the following video. It is based on a 2020 book titled "Hatemonger:
   
 ## Reddit comment o1op80q
 
-    entry 43 (43/46)
+    entry 43
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1op80q/  
 Comment ID:      o1op80q  
@@ -1289,7 +1289,7 @@ What a Russian operative looks like.
   
 ## Reddit comment o1ox9m5
 
-    entry 44 (44/46)
+    entry 44
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmtl05/what_an_actual_domestic_terrorist_looks_like/o1ox9m5/  
 Comment ID:      o1ox9m5  
@@ -1320,7 +1320,7 @@ The Democratic Party should be sponsoring advertisements showing these thugs at 
   
 ## Reddit comment o1payx6
 
-    entry 45 (45/46)
+    entry 45
 
 Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1payx6/  
 Comment ID:      o1payx6  
@@ -1347,7 +1347,7 @@ Correct. The media remains a tool of agitation and division with zero accountabi
   
 ## Reddit comment o1pb1p6
 
-    entry 46 (46/46)
+    entry 46
 
 Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pb1p6/  
 Comment ID:      o1pb1p6  
