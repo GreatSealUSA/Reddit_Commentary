@@ -4,7 +4,7 @@
   
 ## Reddit comment o1kir2t
 
-    entry 1 (1/7)
+    entry 1 (1/12)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kir2t/  
 Comment ID:      o1kir2t  
@@ -35,7 +35,7 @@ Social post { https://autistics.life/@RoundSparrow/115955636903354793 https://bs
   
 ## Reddit comment o1kf284
 
-    entry 2 (2/7)
+    entry 2 (2/12)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kf284/  
 Comment ID:      o1kf284  
@@ -60,7 +60,7 @@ Almost all of them are gay men too, they just hate trans/bi peeps like Jesus fuc
   
 ## Reddit comment o1k8pdr
 
-    entry 3 (3/7)
+    entry 3 (3/12)
 
 Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qm94e3/rconservative_moderators_deleting_posts_and/o1k8pdr/  
 Comment ID:      o1k8pdr  
@@ -85,7 +85,7 @@ Reddit hive mind.
   
 ## Reddit comment o1l2sex
 
-    entry 4 (4/7)
+    entry 4 (4/12)
 
 Comment URL: https://old.reddit.com/r/agedlikewine/comments/1qm8tib/2a/o1l2sex/  
 Comment ID:      o1l2sex  
@@ -119,7 +119,7 @@ Social media is not take "the high road" despite later people will claim that th
   
 ## Reddit comment o1k8368
 
-    entry 5 (5/7)
+    entry 5 (5/12)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k8368/  
 Comment ID:      o1k8368  
@@ -155,7 +155,7 @@ OPERA_A https://www.youtube.com/watch?v=okGlFU3YW_k Today is Sunday as I put thi
   
 ## Reddit comment o1k4kit
 
-    entry 6 (6/7)
+    entry 6 (6/12)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k4kit/  
 Comment ID:      o1k4kit  
@@ -183,7 +183,7 @@ Everyone needs to stay at home, use social media and focus on nonfiction. Start 
   
 ## Reddit comment o1k7a30
 
-    entry 7 (7/7)
+    entry 7 (7/12)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k7a30/  
 Comment ID:      o1k7a30  
@@ -210,3 +210,174 @@ Organization names change. Geography changes. This is not 1937 Germany. We speak
 * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
 
 Reform the toxic clergy of the Middle East / Levant with lessons on GOODNESS. Reform the toxic clergy.
+
+
+=============
+  
+## Reddit comment o1mko26
+
+    entry 8 (8/12)
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mko26/  
+Comment ID:      o1mko26  
+Author:          xtracrableg  
+Bio:               
+Account Created: 2021-01-23T14:11:08Z  
+Link Karma:      30  
+Comment Karma:   4802  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T14:58:02Z  
+Score:           None  
+Post Title:      Billionaire CEOs Slammed for Schmoozing Trump at ‘Monsters’ Ball’ After VA Nurse Killing  
+:::::: Reddit User Comment: ======  
+billionaires should not exist
+
+
+
+
+=============
+  
+## Reddit comment o1mktjf
+
+    entry 9 (9/12)
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mktjf/  
+Comment ID:      o1mktjf  
+Author:          Holdthemuffins  
+Bio:               
+Account Created: 2021-03-15T00:56:38Z  
+Link Karma:      1  
+Comment Karma:   29259  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T14:58:48Z  
+Score:           None  
+Post Title:      Billionaire CEOs Slammed for Schmoozing Trump at ‘Monsters’ Ball’ After VA Nurse Killing  
+:::::: Reddit User Comment: ======  
+Billionaires don't care. They don't care who's in charge. They don't care about any country. They don't care about any people except perhaps the few close to them.
+
+They can live comfortably anywhere. They can buy legislators in any country. They are the shadow dictators that control your lives while we pretend that our elected officials still have some power to represent us.
+
+
+
+
+=============
+  
+## Reddit comment o1mjntz
+
+    entry 10 (10/12)
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mjntz/  
+Comment ID:      o1mjntz  
+Author:          CouchCorrespondent  
+Bio:               
+Account Created: 2021-04-16T20:25:39Z  
+Link Karma:      30144  
+Comment Karma:   250787  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T14:52:57Z  
+Score:           None  
+Post Title:      Billionaire CEOs Slammed for Schmoozing Trump at ‘Monsters’ Ball’ After VA Nurse Killing  
+:::::: Reddit User Comment: ======  
+Well...they did have to watch a screening of "Melania". So there's some torture.
+
+"Melania" releases on January 30\.
+
+Here's the Rotten Tomatoes page...just in case you need it...for something.
+
+<https://www.rottentomatoes.com/m/melania>
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+Oppression is getting on the same page of content. Not to say that in the post-Surkov world there isn't a massive number of ARG patterns to choose your own fiction adventure.
+
+
+=============
+  
+## Reddit comment o1m0sn2
+
+    entry 11 (11/12)
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m0sn2/  
+Comment ID:      o1m0sn2  
+Author:          Fazgo  
+Bio:               
+Account Created: 2015-08-25T08:50:04Z  
+Link Karma:      18  
+Comment Karma:   11501  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T13:06:00Z  
+Score:           None  
+Post Title:      ICE nodding to far-right extremists in recruitment posts, experts say  
+:::::: Reddit User Comment: ======  
+Subtility would be lost on the morons they're targeting. Right wing dogwhistles are extremely on the nose.
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+Human symptoms of over-saturation of repeating messages. Islamic year 635 onward repeating Quran indoctrination behaviors in adults. A tightly packed set of monomyth patterns in the mind, public dreams, refreshed and altered over the years. Avoidance of information overload via out-group hate. "Old World Order" before year 1776, anti-inclusive. Anti Free Masons thinking. Loudly and softly, spectrum of volumes and tones, but a smaller monomyth patterns. Anti-science. "Enclosed thinking", often fiction-fixated traditions.
+
+* Avoidance: "We hold these truths to be self-evident, that all men are created equal, that they are endowed by their Creator with certain unalienable Rights" https://en.wikipedia.org/wiki/All_men_are_created_equal
+
+* Smaller public dream / mass mind / mindsets. Avoidance: “How is it that hardly any major religion has looked at science and concluded, “This is better than we thought! The Universe is **much bigger than** our prophets said, grander, more subtle, more elegant?” Instead they say, “No, no, no! My god is a **little god**, and I want him to stay that way.” A religion, old or new, that stressed the magnificence of the Universe as revealed by modern science might be able to draw forth reserves of reverence and awe hardly tapped by the conventional faiths.” ― Carl Sagan, Pale Blue Dot: A Vision of the **Human Future** in Space. November 8, 1994. 429 pages.
+
+
+=============
+  
+## Reddit comment o1m79z5
+
+    entry 12 (12/12)
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m79z5/  
+Comment ID:      o1m79z5  
+Author:          Truthisnotallowed  
+Bio:               
+Account Created: 2015-09-22T11:57:50Z  
+Link Karma:      101554  
+Comment Karma:   362532  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-25T13:45:47Z  
+Score:           None  
+Post Title:      ICE nodding to far-right extremists in recruitment posts, experts say  
+:::::: Reddit User Comment: ======  
+As one MAGA supporter put it to me:
+
+> I believe what Trump is doing is trying to terrorise immigrants who are currently here so that they will self deport en masse. Otherwise this country has no hopes of ever going back to being a white country run by whites in a freedom loving manner.
+
+They admit this is a terror campaign and yet they still support it.
+
+White Supremacist Rage is a core tenet of MAGA values. They don't just believe that Whites should be the ruling class, they are filled with fury when ever they see non\-white people. It the non\-whites are poor, they are seen as leeches and beneath contempt, not really fully human. And if the non\-whites are successful, or wealthy, MAGA supporters see them as having taken something from White people \- something that ought to belong solely to Whites.
+
+Trump would relegate non\-whites as permanent second\-class citizens. He is setting up a two\-tier legal system, in which groups of people targeted by Trump are denied access to the legal system used by the rest of the country. This is a common ploy of authoritarians \- because resistance to these attacks on the rule of law is weaker when these changes do not apply to everyone. It is much easier to pretend 'this is fine' when you yourself are not a member of one of the groups being attacked.
+
+[Video discussing two\-tier legal systems](https://www.youtube.com/watch?v=a99moLo1Hhg#t=15m33s)
+
+Trump's ultimate goal is the same as that of fascists everywhere:
+
+> The symptoms of fascist thinking are colored by environment and adapted to immediate circumstances. But always and everywhere they can be identified by their appeal to prejudice and by the desire to play upon the fears and vanities of different groups in order to gain power. It is no coincidence that the growth of modern tyrants has in every case been heralded by the growth of prejudice. It may be shocking to some people in this country to realize that, without meaning to do so, they hold views in common with Hitler when they preach discrimination against other religious, racial or economic groups. Likewise, many people whose patriotism is their proudest boast play Hitler's game by retailing distrust of our Allies and by giving currency to snide suspicions without foundation in fact.
+> 
+> The American Fascists are most easily recognized by their deliberate perversion of truth and fact. Their newspapers and propaganda carefully cultivate every fissure of disunity, every crack in the common front against fascism. They use every opportunity to impugn democracy. They use isolationism as a slogan to conceal their own selfish imperialism.
+> 
+> They cultivate hate and distrust \[of allies]. They claim to be super\-patriots, but they would destroy every liberty guaranteed by the Constitution. They demand free enterprise, but are the spokesmen for monopoly and vested interest. Their final objective toward which all their deceit is directed is to capture political power so that, using the power of the State and the power of the market simultaneously they may keep the common man in eternal subjection. \- Henry A. Wallace, Vice President, USA, 1944\.
+
+Trump would keep all of us working people in eternal subjection \- serving 'the dear leader' and his regime.
+
+[Don't Be A Sucker](https://www.youtube.com/watch?v=vGAqYNFQdZ4)
+
+> "Those who would give up essential Liberty, to purchase a little temporary Safety, deserve neither Liberty nor Safety." \- Benjamin Franklin
+
+This is not about immigration \- this is an attack on all non\-Whites, and anyone else who opposes fascism.
+
+Take Trump at his word:
+
+['Homegrowns are next': Trump hopes to deport and jail U.S. citizens abroad (April 16, 2025\)](https://www.npr.org/2025/04/16/nx-s1-5366178/trump-deport-jail-u-s-citizens-homegrowns-el-salvador) 
+
+> President Trump says his administration is actively exploring a proposal to detain U.S. citizens and send them to prisons in El Salvador. Speaking Monday, minutes before a press briefing alongside El Salvador's president, Nayib Bukele, Trump could be heard embracing the concept.
+> 
+> "The homegrowns are next, the homegrowns. You've got to build about five more places," Trump said to Bukele, an apparent reference to prison space that would be needed in El Salvador to house U.S. citizens.
+
+This terrorizing of U.S. Citizens is entirely intentional. 
+
+If you fail to defend other people's rights \- that is how you lose your own.
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+Old-school long-form Reddit posting in January 2026 on serious important topics! BrainRot Society 47 every-47-hours newsletter kind of material. To put into a FAQ / Wiki for organized same-page assertions.
