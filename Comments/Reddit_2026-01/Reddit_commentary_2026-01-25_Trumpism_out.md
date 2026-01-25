@@ -1616,3 +1616,36 @@ Social media really ruined our society. Giving voices to everybody was a bad ide
 > 
 > * "Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among **the most important "subjects" to be studied in the interests of survival**." - Neil Postman on media ecology
 >
+
+
+=============
+  
+## Reddit comment o1pobo9
+
+    entry 56
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pobo9/  
+Comment ID:      o1pobo9  
+Author:          sharksnoutpuncher  
+Bio:               
+Account Created: 2021-09-14T23:41:49Z  
+Link Karma:      809  
+Comment Karma:   17225  
+Comment Age:     45 minutes ago  
+Timestamp:       2026-01-25T23:04:38Z  
+Score:           3 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+Fox News is different. It was explicitly designed to be Republican disinfo: <https://en.wikipedia.org/wiki/History_of_Fox_News>
+
+Lots of copycats since, of course (NewsMax).
+
+Commercial media has issues, too — especially now that they are now all megacorp/billionaire\-owned (and pressured by the criminal Trump admin). But this is not a both sides are the same issue
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Fox News"; filter-bubble crisis. https://en.Wikipedia.org/wiki/Filter_bubble
+> 
+> * Published more than a decade ago: “Today, reports of the day’s events are conveyed to the viewing public by way of **alternate universes**, The Fox News cable channel conveys its **version of reality**, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+>
