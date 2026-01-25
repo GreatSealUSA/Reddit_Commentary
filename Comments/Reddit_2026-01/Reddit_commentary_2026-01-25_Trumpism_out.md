@@ -1371,3 +1371,84 @@ It just feels like a slow moving car crash and nobody can do a fucking thing bes
 > * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
 > ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University. Media studies / media ecology professor.
 >
+
+
+=============
+  
+## Reddit comment o1pbgk3
+
+    entry 47
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pbgk3/  
+Comment ID:      o1pbgk3  
+Author:          UnderbakedSalmon  
+Bio:               
+Account Created: 2025-12-15T05:27:07Z  
+Link Karma:      1  
+Comment Karma:   11009  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:07:25Z  
+Score:           203 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+I mean if you only watch a certain news channel, they never talk about any of that. In my chats with my old relatives who only watch one channel, they’re alarmingly uninformed about who Trump is and what all he’s doing. The issue is 1/3 of America is watching propaganda and falling for it
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1pdojb
+
+    entry 48
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pdojb/  
+Comment ID:      o1pdojb  
+Author:          humlogic  
+Bio:               
+Account Created: 2019-03-23T03:36:49Z  
+Link Karma:      389  
+Comment Karma:   42288  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:17:18Z  
+Score:           148 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+Guys, Kerr obviously doesn’t fuck with ICE or this administration. He’s speaking on a larger scale about how our shared reality has been twisted to the point where something obvious and real happening on video gets called in to question by regular people. It’s a statement of shock and he wants people to always go back to our main principles and ideals. Obviously it would feel good if an NBA coach spit fire and said fuck ICE from the podium but that’s not what Kerr is about. We know he thinks that. He’s already dealt with death and extremism leading to tragedy in his life. He doesn’t want anyone else to be hurt.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "our shared reality"
+>
+
+
+=============
+  
+## Reddit comment o1pdvpc
+
+    entry 49
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pdvpc/  
+Comment ID:      o1pdvpc  
+Author:          Indianianite  
+Bio:               
+Account Created: 2022-11-23T02:27:40Z  
+Link Karma:      111  
+Comment Karma:   21134  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:18:12Z  
+Score:           17 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+You guys remember that popular documentary “the social dilemma”? Everything they predicted in their simulations is proving to be true.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Not everyone has Netflix paywall access. January 26, 2020 (Sundance) September 9, 2020 (United States). https://en.wikipedia.org/wiki/The_Social_Dilemma
+>
