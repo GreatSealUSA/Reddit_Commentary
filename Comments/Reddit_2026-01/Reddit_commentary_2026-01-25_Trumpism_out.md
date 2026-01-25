@@ -1452,3 +1452,61 @@ You guys remember that popular documentary “the social dilemma”? Everything 
 > :::::: Analysis_Thoughts Commentary: ======  
 > Not everyone has Netflix paywall access. January 26, 2020 (Sundance) September 9, 2020 (United States). https://en.wikipedia.org/wiki/The_Social_Dilemma
 >
+
+
+=============
+  
+## Reddit comment o1pfnuu
+
+    entry 50
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pfnuu/  
+Comment ID:      o1pfnuu  
+Author:          NoDaddyNotTheBelt25  
+Bio:               
+Account Created: 2025-06-11T15:00:18Z  
+Link Karma:      19  
+Comment Karma:   80190  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:26:09Z  
+Score:           30 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+There’s nothing confusing about it. We went from “don’t believe what you read online” to “I read it online so it must be true” seemingly overnight. 
+
+If people weren’t so fucking stupid this wouldn’t be an issue.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 7 month Reddit account. Downplaying the complexity of Russian media invasion, billionaires owning all the media and sports teams. NBA topic, I used to work in social media as an expert for team owner of the Portland Trailblazers; Jody Allen and Paul Allen. It is in no way simple and this message downplaying the complexity of media ecology... bad.
+> 
+> * "::: the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s **the most powerful political rhetoric in a world** with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple” :::" - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+>
+
+
+=============
+  
+## Reddit comment o1pezup
+
+    entry 51
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qmwwki/steve_kerr_were_being_divided_by_media_forprofit/o1pezup/  
+Comment ID:      o1pezup  
+Author:          canigetsumgreypoupon  
+Bio:               
+Account Created: 2024-11-12T06:06:24Z  
+Link Karma:      2478  
+Comment Karma:   20904  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:23:11Z  
+Score:           32 points  
+Post Title:      Steve Kerr: “We’re being divided by media for-profit, by misinformation…It is a confusing time to be alive and be an American.”  
+:::::: Reddit User Comment: ======  
+it seems like that’s all anyone does anymore \- it’s maddening
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "maddening"
+>
