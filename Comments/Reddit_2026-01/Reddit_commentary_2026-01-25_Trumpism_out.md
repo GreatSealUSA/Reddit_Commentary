@@ -4,7 +4,7 @@
   
 ## Reddit comment o1kir2t
 
-    entry 1 (1/30)
+    entry 1 (1/31)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kir2t/  
 Comment ID:      o1kir2t  
@@ -35,7 +35,7 @@ Social post { https://autistics.life/@RoundSparrow/115955636903354793 https://bs
   
 ## Reddit comment o1kf284
 
-    entry 2 (2/30)
+    entry 2 (2/31)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kf284/  
 Comment ID:      o1kf284  
@@ -60,7 +60,7 @@ Almost all of them are gay men too, they just hate trans/bi peeps like Jesus fuc
   
 ## Reddit comment o1k8pdr
 
-    entry 3 (3/30)
+    entry 3 (3/31)
 
 Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qm94e3/rconservative_moderators_deleting_posts_and/o1k8pdr/  
 Comment ID:      o1k8pdr  
@@ -85,7 +85,7 @@ Reddit hive mind.
   
 ## Reddit comment o1l2sex
 
-    entry 4 (4/30)
+    entry 4 (4/31)
 
 Comment URL: https://old.reddit.com/r/agedlikewine/comments/1qm8tib/2a/o1l2sex/  
 Comment ID:      o1l2sex  
@@ -119,7 +119,7 @@ Social media is not take "the high road" despite later people will claim that th
   
 ## Reddit comment o1k8368
 
-    entry 5 (5/30)
+    entry 5 (5/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k8368/  
 Comment ID:      o1k8368  
@@ -155,7 +155,7 @@ OPERA_A https://www.youtube.com/watch?v=okGlFU3YW_k Today is Sunday as I put thi
   
 ## Reddit comment o1k4kit
 
-    entry 6 (6/30)
+    entry 6 (6/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k4kit/  
 Comment ID:      o1k4kit  
@@ -183,7 +183,7 @@ Everyone needs to stay at home, use social media and focus on nonfiction. Start 
   
 ## Reddit comment o1k7a30
 
-    entry 7 (7/30)
+    entry 7 (7/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k7a30/  
 Comment ID:      o1k7a30  
@@ -216,7 +216,7 @@ Reform the toxic clergy of the Middle East / Levant with lessons on GOODNESS. Re
   
 ## Reddit comment o1mko26
 
-    entry 8 (8/30)
+    entry 8 (8/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mko26/  
 Comment ID:      o1mko26  
@@ -239,7 +239,7 @@ billionaires should not exist
   
 ## Reddit comment o1mktjf
 
-    entry 9 (9/30)
+    entry 9 (9/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mktjf/  
 Comment ID:      o1mktjf  
@@ -264,7 +264,7 @@ They can live comfortably anywhere. They can buy legislators in any country. The
   
 ## Reddit comment o1mjntz
 
-    entry 10 (10/30)
+    entry 10 (10/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mjntz/  
 Comment ID:      o1mjntz  
@@ -295,7 +295,7 @@ Oppression is getting on the same page of content. Not to say that in the post-S
   
 ## Reddit comment o1m0sn2
 
-    entry 11 (11/30)
+    entry 11 (11/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m0sn2/  
 Comment ID:      o1m0sn2  
@@ -324,7 +324,7 @@ Human symptoms of over-saturation of repeating messages. Islamic year 635 onward
   
 ## Reddit comment o1m79z5
 
-    entry 12 (12/30)
+    entry 12 (12/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m79z5/  
 Comment ID:      o1m79z5  
@@ -387,7 +387,7 @@ Old-school long-form Reddit posting in January 2026 on serious important topics!
   
 ## Reddit comment o1mfc15
 
-    entry 13 (13/30)
+    entry 13 (13/31)
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mfc15/  
 Comment ID:      o1mfc15  
@@ -414,7 +414,7 @@ Answer 2: Promote Dr. Bandy X Lee's leadership and quote her October 3, 2017 boo
   
 ## Reddit comment o1mggi0
 
-    entry 14 (14/30)
+    entry 14 (14/31)
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mggi0/  
 Comment ID:      o1mggi0  
@@ -441,7 +441,7 @@ What "the people wanted". Addiction of BREAKING NEWS at high speed TCP/IP 5G+ de
   
 ## Reddit comment o1mcsm0
 
-    entry 15 (15/30)
+    entry 15 (15/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mcsm0/  
 Comment ID:      o1mcsm0  
@@ -468,7 +468,7 @@ Twitter "Engagement" technique of social machines. Ask extremely low-effort triv
   
 ## Reddit comment o1memwc
 
-    entry 16 (16/30)
+    entry 16 (16/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1memwc/  
 Comment ID:      o1memwc  
@@ -493,7 +493,7 @@ Not, it really isn't. The elections are Hunger Games focus. Democracy is EVERY D
   
 ## Reddit comment o1mdgp4
 
-    entry 17 (17/30)
+    entry 17 (17/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdgp4/  
 Comment ID:      o1mdgp4  
@@ -524,7 +524,7 @@ OPERA_A Trump / Putin / MAGA "Daddy Issues" is one of Dr. Lee's chapter titles i
   
 ## Reddit comment o1mdme8
 
-    entry 18 (18/30)
+    entry 18 (18/31)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdme8/  
 Comment ID:      o1mdme8  
@@ -549,7 +549,7 @@ Organized crime. Organized mythology. Serves to give the population, We The Peop
   
 ## Reddit comment o1mkka4
 
-    entry 19 (19/30)
+    entry 19 (19/31)
 
 Comment URL: https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mkka4/  
 Comment ID:      o1mkka4  
@@ -580,7 +580,7 @@ Why haven't these social media companies (Reddit and Bluesky) pinned educational
   
 ## Reddit comment o1mitl7
 
-    entry 20 (20/30)
+    entry 20 (20/31)
 
 Comment URL: https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mitl7/  
 Comment ID:      o1mitl7  
@@ -607,7 +607,7 @@ Twitter-length message on Reddit commenting environment. Using name-calling, deh
   
 ## Reddit comment o1noix1
 
-    entry 21 (21/30)
+    entry 21 (21/31)
 
 Comment URL: https://old.reddit.com/r/pics/comments/1qmptp1/this_is_america/o1noix1/  
 Comment ID:      o1noix1  
@@ -634,7 +634,7 @@ Social post { https://Autistics.Life/@RoundSparrow/115957315162001581 https://bs
   
 ## Reddit comment o1ni1qq
 
-    entry 22 (22/30)
+    entry 22 (22/31)
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmo5df/this_is_america/o1ni1qq/  
 Comment ID:      o1ni1qq  
@@ -659,7 +659,7 @@ The “2A protects the 1A” cosplay guys folded quick, didn’t they? Turns out
   
 ## Reddit comment o1n74vm
 
-    entry 23 (23/30)
+    entry 23 (23/31)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1n74vm/  
 Comment ID:      o1n74vm  
@@ -682,7 +682,7 @@ Born in Illinois, grew up in Green Bay, murdered in Minneapolis. It’s time we 
   
 ## Reddit comment o1nxqs0
 
-    entry 24 (24/30)
+    entry 24 (24/31)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1nxqs0/  
 Comment ID:      o1nxqs0  
@@ -705,7 +705,7 @@ Their mental gymnastics on the 2nd amendment is Olympic level
   
 ## Reddit comment o1njcv5
 
-    entry 25 (25/30)
+    entry 25 (25/31)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1njcv5/  
 Comment ID:      o1njcv5  
@@ -734,7 +734,7 @@ Avoidance of nonfiction seriously book reading. For example, Dr. Bandy X Lee's b
   
 ## Reddit comment o1nn0e0
 
-    entry 26 (26/30)
+    entry 26 (26/31)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1nn0e0/  
 Comment ID:      o1nn0e0  
@@ -759,7 +759,7 @@ Capture quote.
   
 ## Reddit comment o1njok2
 
-    entry 27 (27/30)
+    entry 27 (27/31)
 
 Comment URL: https://old.reddit.com/r/wisconsin/comments/1qmnhbj/he_was_from_green_bay/o1njok2/  
 Comment ID:      o1njok2  
@@ -784,7 +784,7 @@ I’m still trying to understand how a group of people who stormed the US Capito
   
 ## Reddit comment o1mmhfo
 
-    entry 28 (28/30)
+    entry 28 (28/31)
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mmhfo/  
 Comment ID:      o1mmhfo  
@@ -813,7 +813,7 @@ Top-voted Reddit comment, popular, on important posting. Twitter-length, gullibl
   
 ## Reddit comment o1mmv3n
 
-    entry 29 (29/30)
+    entry 29 (29/31)
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mmv3n/  
 Comment ID:      o1mmv3n  
@@ -834,7 +834,7 @@ The administration is being ran by brain dead teenagers apparently.
 :::::: Analysis_Thoughts Commentary: ======  
 <img width="872" height="273" alt="image" src="https://github.com/user-attachments/assets/7b3837a1-28b8-4ff8-ae83-745078b1da2d" />
 
-The Kremlin and White House are running circles around the Reddit fandom. Extreme low-effort commenting is being upvoted as engagement to the Reality TV / Reality Social show. The Reddit audience has such extreme recency bias that people have lost all sense THIS STYLE OF LOW-EFFORT COMMENTING HAS BEEN GOING ON FOR OVER TEN YEARS AND SEVEN MONTHS. Reddit meme aficionados who do not see the multiple venues an filter-bubble patterns Cambridge Analytica and the Russian military worked out in late year 2012. See also: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+The Kremlin and White House are running circles around the Reddit fandom. Extreme low-effort commenting is being upvoted as engagement to the Reality TV / Reality Social show. The Reddit audience has such extreme recency bias that people have lost all sense THIS STYLE OF LOW-EFFORT COMMENTING HAS BEEN GOING ON FOR OVER TEN YEARS AND SEVEN MONTHS. Reddit meme aficionados who do not see the multiple venues and filter-bubble patterns Cambridge Analytica and the Russian military worked out in late year 2012. See also: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
 
 People need to halt the entertaining engagement of low-effort commenting all on different pages and threads. We The People need to get all on the same page: Dr. Bandy X Lee's nonfiction book from October 3, 2017. https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ - We are drowning in low-effort short commenting!
 
@@ -843,7 +843,7 @@ People need to halt the entertaining engagement of low-effort commenting all on 
   
 ## Reddit comment o1mzvwl
 
-    entry 30 (30/30)
+    entry 30 (30/31)
 
 Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mzvwl/  
 Comment ID:      o1mzvwl  
@@ -864,3 +864,30 @@ They’re calling propaganda “memes”.
 Yes. Memes are John 1:1. Reddit audience has almost zero comprehension of media ecology.
 
 * “The medium **does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up**. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan. “This is Marshall McLuhan: The Medium is the Massage”, an experimental documentary produced by Ernest Pintoff and Guy Fraumeni, narrated by actor Edward Binnes and broadcasted on NBC TV (19 March 1967). https://youtu.be/cFwVCHkL-JU?t=195
+
+
+=============
+  
+## Reddit comment o1mlkeo
+
+    entry 31 (31/31)
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qmlb7m/white_house_alters_arrest_photo_of_ice_protester/o1mlkeo/  
+Comment ID:      o1mlkeo  
+Author:          Ill-Dependent2976  
+Bio:               
+Account Created: 2024-08-24T04:29:59Z  
+Link Karma:      8  
+Comment Karma:   97086  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-25T15:02:32Z  
+Score:           953 points  
+Post Title:      White House alters arrest photo of ICE protester, says "the memes will continue"  
+:::::: Reddit User Comment: ======  
+Imagine being a grown adult and admitting you care about memes. Let alone somebody who's supposed to be a professional.
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+Reddit audience. Twitter-length thinking patterns, short-message. No demonstration of knowing Neil Postman's teachings.
+
+There is no demonstration on Reddit of self-awareness of being lead by the nose / leash lead, by Elon Musk Twitter media systems / meme images. All signs and behaviors indicate a mob mentality of thinking Reddit audience has out-smarted the out-groups ( Twitter, Turning Point, Saint Petersburg Internet Research Agency seeding since March 2013, Grok AI, Rupert Mrudoch }... no invocation of { Media Ecology, Neil Postman, Marshall McLuhan }. Despite the long-established Time Magazine just months ago re-asserting Neil Postman's 1985 media ecology about addict self-awareness (Reddit high speed electric media audience). September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ only 137 days ago!
