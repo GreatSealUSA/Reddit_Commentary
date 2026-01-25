@@ -4,7 +4,7 @@
   
 ## Reddit comment o1kir2t
 
-    entry 1 (1/18)
+    entry 1 (1/19)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kir2t/  
 Comment ID:      o1kir2t  
@@ -35,7 +35,7 @@ Social post { https://autistics.life/@RoundSparrow/115955636903354793 https://bs
   
 ## Reddit comment o1kf284
 
-    entry 2 (2/18)
+    entry 2 (2/19)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kf284/  
 Comment ID:      o1kf284  
@@ -60,7 +60,7 @@ Almost all of them are gay men too, they just hate trans/bi peeps like Jesus fuc
   
 ## Reddit comment o1k8pdr
 
-    entry 3 (3/18)
+    entry 3 (3/19)
 
 Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qm94e3/rconservative_moderators_deleting_posts_and/o1k8pdr/  
 Comment ID:      o1k8pdr  
@@ -85,7 +85,7 @@ Reddit hive mind.
   
 ## Reddit comment o1l2sex
 
-    entry 4 (4/18)
+    entry 4 (4/19)
 
 Comment URL: https://old.reddit.com/r/agedlikewine/comments/1qm8tib/2a/o1l2sex/  
 Comment ID:      o1l2sex  
@@ -119,7 +119,7 @@ Social media is not take "the high road" despite later people will claim that th
   
 ## Reddit comment o1k8368
 
-    entry 5 (5/18)
+    entry 5 (5/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k8368/  
 Comment ID:      o1k8368  
@@ -155,7 +155,7 @@ OPERA_A https://www.youtube.com/watch?v=okGlFU3YW_k Today is Sunday as I put thi
   
 ## Reddit comment o1k4kit
 
-    entry 6 (6/18)
+    entry 6 (6/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k4kit/  
 Comment ID:      o1k4kit  
@@ -183,7 +183,7 @@ Everyone needs to stay at home, use social media and focus on nonfiction. Start 
   
 ## Reddit comment o1k7a30
 
-    entry 7 (7/18)
+    entry 7 (7/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k7a30/  
 Comment ID:      o1k7a30  
@@ -216,7 +216,7 @@ Reform the toxic clergy of the Middle East / Levant with lessons on GOODNESS. Re
   
 ## Reddit comment o1mko26
 
-    entry 8 (8/18)
+    entry 8 (8/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mko26/  
 Comment ID:      o1mko26  
@@ -239,7 +239,7 @@ billionaires should not exist
   
 ## Reddit comment o1mktjf
 
-    entry 9 (9/18)
+    entry 9 (9/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mktjf/  
 Comment ID:      o1mktjf  
@@ -264,7 +264,7 @@ They can live comfortably anywhere. They can buy legislators in any country. The
   
 ## Reddit comment o1mjntz
 
-    entry 10 (10/18)
+    entry 10 (10/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mjntz/  
 Comment ID:      o1mjntz  
@@ -295,7 +295,7 @@ Oppression is getting on the same page of content. Not to say that in the post-S
   
 ## Reddit comment o1m0sn2
 
-    entry 11 (11/18)
+    entry 11 (11/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m0sn2/  
 Comment ID:      o1m0sn2  
@@ -324,7 +324,7 @@ Human symptoms of over-saturation of repeating messages. Islamic year 635 onward
   
 ## Reddit comment o1m79z5
 
-    entry 12 (12/18)
+    entry 12 (12/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m79z5/  
 Comment ID:      o1m79z5  
@@ -387,7 +387,7 @@ Old-school long-form Reddit posting in January 2026 on serious important topics!
   
 ## Reddit comment o1mfc15
 
-    entry 13 (13/18)
+    entry 13 (13/19)
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mfc15/  
 Comment ID:      o1mfc15  
@@ -414,7 +414,7 @@ Answer 2: Promote Dr. Bandy X Lee's leadership and quote her October 3, 2017 boo
   
 ## Reddit comment o1mggi0
 
-    entry 14 (14/18)
+    entry 14 (14/19)
 
 Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mggi0/  
 Comment ID:      o1mggi0  
@@ -441,7 +441,7 @@ What "the people wanted". Addiction of BREAKING NEWS at high speed TCP/IP 5G+ de
   
 ## Reddit comment o1mcsm0
 
-    entry 15 (15/18)
+    entry 15 (15/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mcsm0/  
 Comment ID:      o1mcsm0  
@@ -468,7 +468,7 @@ Twitter "Engagement" technique of social machines. Ask extremely low-effort triv
   
 ## Reddit comment o1memwc
 
-    entry 16 (16/18)
+    entry 16 (16/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1memwc/  
 Comment ID:      o1memwc  
@@ -493,7 +493,7 @@ Not, it really isn't. The elections are Hunger Games focus. Democracy is EVERY D
   
 ## Reddit comment o1mdgp4
 
-    entry 17 (17/18)
+    entry 17 (17/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdgp4/  
 Comment ID:      o1mdgp4  
@@ -524,7 +524,7 @@ OPERA_A Trump / Putin / MAGA "Daddy Issues" is one of Dr. Lee's chapter titles i
   
 ## Reddit comment o1mdme8
 
-    entry 18 (18/18)
+    entry 18 (18/19)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdme8/  
 Comment ID:      o1mdme8  
@@ -543,3 +543,34 @@ Extortion! They are killing Americansto get the voter data so they knew whom to 
 
 :::::: Analysis_Thoughts Commentary: ======  
 Organized crime. Organized mythology. Serves to give the population, We The People, a topic to focus on later in the year instead of RIGHT HERE RIGHT NOW ON REDDIT SUNDAY TODAY: Promoting Dr. Bandy X Lee's nonfiction book from October 3, 2017 as an education campaign, peer to peer nonfiction education focus.
+
+
+=============
+  
+## Reddit comment o1mkka4
+
+    entry 19 (19/19)
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qmkwht/white_house_alters_arrest_photo_of_ice_protester/o1mkka4/  
+Comment ID:      o1mkka4  
+Author:          NelsonMinar  
+Bio:             NelsonMinar : Software nerd, I like making maps. Also a gamer, and gay, and older than your average Redditor.  
+Account Created: 2011-08-23T20:44:06Z  
+Link Karma:      39340  
+Comment Karma:   175442  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T14:57:31Z  
+Score:           1341 points  
+Post Title:      White House alters arrest photo of ICE protester, says “the memes will continue”  
+:::::: Reddit User Comment: ======  
+This is not a "meme". This is disinformation from the official government social media account. They've posted a lot of stupid memes that are clearly altered images. This one was designed to look real, to deceive.
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+The Kremlin / White House using Surkov student methods; plucking on the heart-strings of deeply programmed memes in the mind. John 1:1 Sunday mind-plucking with the Surkov MonoMyth patterns.
+
+Why haven't these social media companies (Reddit and Bluesky) pinned educational posts to people and informed their users to see the *forest for the trees* of how these techniques work on the general population (We The People) full of meme addictions:
+
+1. "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A **ceaseless shape-shifting that is unstoppable** because it is undefinable." - [Adam Curtis, year 2014, BBC](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+
+2. "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements, exploiting and rendering them absurd.**" - [Peter Pomerantsev, 2014](https://www.goodreads.com/author/quotes/8035579.Peter_Pomerantsev)
