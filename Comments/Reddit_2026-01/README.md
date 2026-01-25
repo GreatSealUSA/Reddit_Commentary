@@ -20,4 +20,4 @@ Media ecology focus, avoidance of subjects, avoidance of nonfiction. Avoidance o
 
 Educational Revival.   
 Why has Dr. Bandy X Lee's nonfiction teachings and education been consistently avoided since year 2017?   
-Why has Dr. Martin Luther King Jr's teachings about hate and global interconnectedness of behaviors been consistently avoided since year 2013?   
+Why has Dr. Martin Luther King Jr's teachings about hate and global interconnectedness of behaviors been consistently avoided since year 2013? https://en.WikiQuote.org/wiki/Martin_Luther_King_Jr.   
