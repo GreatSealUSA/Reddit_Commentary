@@ -4,7 +4,7 @@
   
 ## Reddit comment o1kir2t
 
-    entry 1 (1/12)
+    entry 1 (1/18)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kir2t/  
 Comment ID:      o1kir2t  
@@ -35,7 +35,7 @@ Social post { https://autistics.life/@RoundSparrow/115955636903354793 https://bs
   
 ## Reddit comment o1kf284
 
-    entry 2 (2/12)
+    entry 2 (2/18)
 
 Comment URL: https://old.reddit.com/r/gravityfalls/comments/1qm9paq/alex_still_the_goat/o1kf284/  
 Comment ID:      o1kf284  
@@ -60,7 +60,7 @@ Almost all of them are gay men too, they just hate trans/bi peeps like Jesus fuc
   
 ## Reddit comment o1k8pdr
 
-    entry 3 (3/12)
+    entry 3 (3/18)
 
 Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qm94e3/rconservative_moderators_deleting_posts_and/o1k8pdr/  
 Comment ID:      o1k8pdr  
@@ -85,7 +85,7 @@ Reddit hive mind.
   
 ## Reddit comment o1l2sex
 
-    entry 4 (4/12)
+    entry 4 (4/18)
 
 Comment URL: https://old.reddit.com/r/agedlikewine/comments/1qm8tib/2a/o1l2sex/  
 Comment ID:      o1l2sex  
@@ -119,7 +119,7 @@ Social media is not take "the high road" despite later people will claim that th
   
 ## Reddit comment o1k8368
 
-    entry 5 (5/12)
+    entry 5 (5/18)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k8368/  
 Comment ID:      o1k8368  
@@ -155,7 +155,7 @@ OPERA_A https://www.youtube.com/watch?v=okGlFU3YW_k Today is Sunday as I put thi
   
 ## Reddit comment o1k4kit
 
-    entry 6 (6/12)
+    entry 6 (6/18)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k4kit/  
 Comment ID:      o1k4kit  
@@ -183,7 +183,7 @@ Everyone needs to stay at home, use social media and focus on nonfiction. Start 
   
 ## Reddit comment o1k7a30
 
-    entry 7 (7/12)
+    entry 7 (7/18)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qm7v6j/public_opinion_shifts_on_ice_as_advocates_warn_of/o1k7a30/  
 Comment ID:      o1k7a30  
@@ -216,7 +216,7 @@ Reform the toxic clergy of the Middle East / Levant with lessons on GOODNESS. Re
   
 ## Reddit comment o1mko26
 
-    entry 8 (8/12)
+    entry 8 (8/18)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mko26/  
 Comment ID:      o1mko26  
@@ -239,7 +239,7 @@ billionaires should not exist
   
 ## Reddit comment o1mktjf
 
-    entry 9 (9/12)
+    entry 9 (9/18)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mktjf/  
 Comment ID:      o1mktjf  
@@ -264,7 +264,7 @@ They can live comfortably anywhere. They can buy legislators in any country. The
   
 ## Reddit comment o1mjntz
 
-    entry 10 (10/12)
+    entry 10 (10/18)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qml10h/billionaire_ceos_slammed_for_schmoozing_trump_at/o1mjntz/  
 Comment ID:      o1mjntz  
@@ -295,7 +295,7 @@ Oppression is getting on the same page of content. Not to say that in the post-S
   
 ## Reddit comment o1m0sn2
 
-    entry 11 (11/12)
+    entry 11 (11/18)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m0sn2/  
 Comment ID:      o1m0sn2  
@@ -324,7 +324,7 @@ Human symptoms of over-saturation of repeating messages. Islamic year 635 onward
   
 ## Reddit comment o1m79z5
 
-    entry 12 (12/12)
+    entry 12 (12/18)
 
 Comment URL: https://old.reddit.com/r/politics/comments/1qmie7b/ice_nodding_to_farright_extremists_in_recruitment/o1m79z5/  
 Comment ID:      o1m79z5  
@@ -381,3 +381,165 @@ If you fail to defend other people's rights \- that is how you lose your own.
 
 :::::: Analysis_Thoughts Commentary: ======  
 Old-school long-form Reddit posting in January 2026 on serious important topics! BrainRot Society 47 every-47-hours newsletter kind of material. To put into a FAQ / Wiki for organized same-page assertions.
+
+
+=============
+  
+## Reddit comment o1mfc15
+
+    entry 13 (13/18)
+
+Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mfc15/  
+Comment ID:      o1mfc15  
+Author:          Particular-Light-117  
+Bio:               
+Account Created: 2025-11-25T04:24:58Z  
+Link Karma:      27  
+Comment Karma:   334  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T14:30:39Z  
+Score:           91 points  
+Post Title:      This footage is being removed from reddit  
+:::::: Reddit User Comment: ======  
+At this point I don’t event know what we can do to restore peace in our country. What options do we have left?!
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+2 month Reddit account. The ANSWERS: Halt sports gaming, video gaming, non-essential entertainment. See here: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
+
+Answer 2: Promote Dr. Bandy X Lee's leadership and quote her October 3, 2017 book harder than any Epstein assertions you saw on social media in year 2025. Make Dr. Bandy X Lee a topic every 47 hours.
+
+
+=============
+  
+## Reddit comment o1mggi0
+
+    entry 14 (14/18)
+
+Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qmk5j5/this_footage_is_being_removed_from_reddit/o1mggi0/  
+Comment ID:      o1mggi0  
+Author:          Helpful_Future_9413  
+Bio:               
+Account Created: 2020-08-21T12:38:27Z  
+Link Karma:      23  
+Comment Karma:   484  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T14:36:34Z  
+Score:           13 points  
+Post Title:      This footage is being removed from reddit  
+:::::: Reddit User Comment: ======  
+This is unbelievable but this is what the people wanted , it's no longer attacking brown and black it's white people as well .....
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+What "the people wanted". Addiction of BREAKING NEWS at high speed TCP/IP 5G+ delivery on the latest model Android / Apple iPhone / Apple iPad in hand. Putin / Surkov / Trump lead with antics and BREAKING NEWS stimulation to feed the We The People audience desires. Round after round of stimulating smartphone / iPad notifications. ABSENT: Repeating and quoting Dr. Bandy X Lee's mental health teachings and public education about Trumpism since October 3, 2017 (and even earlier in non-book form).
+
+* meme-talk nation. “When a population becomes distracted by trivia, when cultural life is redefined as a **perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself...” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985. Book on paper.
+
+
+=============
+  
+## Reddit comment o1mcsm0
+
+    entry 15 (15/18)
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mcsm0/  
+Comment ID:      o1mcsm0  
+Author:          DavidGoetta  
+Bio:               
+Account Created: 2023-12-07T13:09:18Z  
+Link Karma:      9654  
+Comment Karma:   40995  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T14:17:03Z  
+Score:           None  
+Post Title:      Pam Bondi offers to pull ICE out of Minneapolis if voter files handed over  
+:::::: Reddit User Comment: ======  
+So they are conducting a campaign to terrorize residents to achieve a political goal.
+
+Is there a word for this?
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+Twitter "Engagement" technique of social machines. Ask extremely low-effort trivial questions to trivialize a topic. Anything to avoid quoting and asserting the importance of serious non-fiction books on paper in favor of short message Twitter-length. Most popular comment currently, top upvoted / liked on Reddit.
+
+
+=============
+  
+## Reddit comment o1memwc
+
+    entry 16 (16/18)
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1memwc/  
+Comment ID:      o1memwc  
+Author:          Specialist-Bug1592  
+Bio:               
+Account Created: 2025-09-12T12:14:50Z  
+Link Karma:      2  
+Comment Karma:   17676  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T14:26:57Z  
+Score:           None  
+Post Title:      Pam Bondi offers to pull ICE out of Minneapolis if voter files handed over  
+:::::: Reddit User Comment: ======  
+And there it is. At the end of the day, this is about controlling elections to ensure MAGA remains in office.
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+Not, it really isn't. The elections are Hunger Games focus. Democracy is EVERY DAY, Great Seal of the United States of America is EVERY DAY ALL DAY, not just election days. The inability to IMPEACH and REMOVE TRUMP on ANY DAY is a crisis of thinking only in terms of ELECTION DAYS. We already REMOVED TRUMP from OFFICE, Biden was put in for a full term, 4 years. But that did not address the mindrot brainrot anti-Great Seal USA thinking. www.GreatSealUSA.com lessons are urgently needed!
+
+
+=============
+  
+## Reddit comment o1mdgp4
+
+    entry 17 (17/18)
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdgp4/  
+Comment ID:      o1mdgp4  
+Author:          tresben  
+Bio:               
+Account Created: 2020-01-11T18:04:21Z  
+Link Karma:      7951  
+Comment Karma:   164081  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T14:20:39Z  
+Score:           None  
+Post Title:      Pam Bondi offers to pull ICE out of Minneapolis if voter files handed over  
+:::::: Reddit User Comment: ======  
+Her words are literally textbook fascism and abuser. We invade your city with a federal militia under the guise of “making it safer from the criminals and undesirables”. When citizens and innocent people are hurt and killed, and there’s chaos and panic everywhere, we make demands of you to give up your rights in order to be left alone. Demands that have nothing to do with the initial premise of the invasion.
+
+Seriously what does voter rolls, Medicaid, and fraud have to do with immigration? It doesn’t. It’s just a way to get Minnesota and, probably more importantly, other states to bend the knee out of fear this could happen to them.
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+<img width="1221" height="1179" alt="image" src="https://github.com/user-attachments/assets/52803920-1a72-4e4e-a1d2-11251fd838d6" />
+
+Reddit audience: **"abuser' - "textbook"** - then why are you (We The People) on Reddit not quoting any nonfiction textbooks on Reddit and asking people to follow Dr. Bandy X Lee's lead and pointing out the Reddit audience is avoiding textbooks? Why not get behind a GenX woman who is standing up to Trump / MAGA male-worship worshiping-Putin mindsets? Teach mob mentality mental health topics!!! https://en.Wikipedia.org/wiki/Bandy_X._Lee - she is New York born like Trump! Why not let her school the old man?
+
+OPERA_A Trump / Putin / MAGA "Daddy Issues" is one of Dr. Lee's chapter titles in the October 3, 2017 textbook / book she published. https://www.youtube.com/watch?v=HvazqZ5gGKQ year 2011 ReMastered. 14,102 views June 28, 2021 - Pink Floyd Multi-Color prism; Great Seal USA Pyramid higher. "Mother, should I run for President?"
+
+
+=============
+  
+## Reddit comment o1mdme8
+
+    entry 18 (18/18)
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qmk7ev/pam_bondi_offers_to_pull_ice_out_of_minneapolis/o1mdme8/  
+Comment ID:      o1mdme8  
+Author:          Cletus1923  
+Bio:               
+Account Created: 2020-09-05T22:15:13Z  
+Link Karma:      522  
+Comment Karma:   2959  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T14:21:30Z  
+Score:           None  
+Post Title:      Pam Bondi offers to pull ICE out of Minneapolis if voter files handed over  
+:::::: Reddit User Comment: ======  
+Extortion! They are killing Americansto get the voter data so they knew whom to target to put in jail.
+
+
+:::::: Analysis_Thoughts Commentary: ======  
+Organized crime. Organized mythology. Serves to give the population, We The People, a topic to focus on later in the year instead of RIGHT HERE RIGHT NOW ON REDDIT SUNDAY TODAY: Promoting Dr. Bandy X Lee's nonfiction book from October 3, 2017 as an education campaign, peer to peer nonfiction education focus.
