@@ -23,7 +23,7 @@ The same level of media literacy as conservatives who are shocked to learn that 
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Regarding the Gravity Falls Twitter comment and USA "Communism". 
+> Regarding the Gravity Falls Twitter comment and USA "Communism". 
 > 
 > Karl Marx and "Communism" did not create the 2,000 year old Bible verse "1 John 3:17".  Helping out poor people who don't worship Fox News billionaire televangelism religion is not "Communism".
 > 
@@ -81,7 +81,7 @@ I swear they go quiet for a bit whenever something big happens so they can decid
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Reddit hive mind.
+> Reddit hive mind.
 >
 
 
@@ -112,7 +112,7 @@ The people are better of with peaceful protests without using violence or firear
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Social media is not take "the high road" despite later people will claim that the "high road does not work". Look around at all the people spending their free time and spare time commenting and posting, shit-posting on social media. The high road I keep drawing circles around on the map is: Promoting Dr. Band X Lee as a leader to follow. Her October 3, 2017 nonfiction book. Quoting her numerous articles on the Internet, her book, mentioning Dr. Lee's name more than "Epstein" name. That is one example of the pro-education, pro-rescue, pro-goodness "high road" to take.
+> Social media did not take "the high road" despite people later will claim that the "high road does not work". Look around at all the people spending their free time and spare time commenting and posting, shit-posting on social media. The high road I keep drawing circles around on the map is: Promoting Dr. Band X Lee as a leader to follow. Her October 3, 2017 nonfiction book. Quoting her numerous articles on the Internet, her book, mentioning Dr. Lee's name more than "Epstein" name. That is one example of the pro-education, pro-rescue, pro-goodness "high road" to take.
 > 
 > * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
 > ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
@@ -144,7 +144,7 @@ Inflection point? Fuck. I’m 55 and have four kids and I’m ready to fuck some
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Donald Trump leads with anti-education anti-Malala values. People follow Trump's lead. Trump leads with hate, people follow Trump's lead. What people on social media are not making headlines for: Promoting Dr. Bandy X Lee on mental health of MAGA. that is NOT following MAGA, that is not joining in with the values of MAGA and Trump's leadership. Putin won. Surkov won since March 2013. Reddit audiences will not seek out nonfiction serious learning and stick to it. Surkov students won "hearts and minds" to avoid nonfiction. Dr. Martin Luther King Jr's leaning is advertising free on WikiQuotes today, Sunday, https://en.wikiquote.org/wiki/Martin_Luther_King_Jr. and Reddit users are promoting exactly what Trump leads: follow hate leadership of Trump. Hate for hate, hate harder.
+> Donald Trump leads with anti-education anti-Malala values. People follow Trump's lead. Trump leads with hate, people follow Trump's lead. What people on social media are not making headlines for: Promoting Dr. Bandy X Lee on mental health of MAGA. that is NOT following MAGA, that is not joining in with the values of MAGA and Trump's leadership. Putin won. Surkov won since March 2013. Reddit audiences will not seek out nonfiction serious learning and stick to it. Surkov students won "hearts and minds" to avoid nonfiction. Dr. Martin Luther King Jr's leaning is advertising free on WikiQuotes today, Sunday, https://en.wikiquote.org/wiki/Martin_Luther_King_Jr. and Reddit users are promoting exactly what Trump leads: follow hate leadership of Trump. Hate for hate, hate harder.
 > 
 > Children are being taught that hate wins. Trump already PROVED, already demonstrated, that Putin's hate wins over Ukraine and USA. This nation sickens me, makes me sick, the USA that desires hate, desires dehumanization for video game systems and commenting about billionaires. It is not enjoyable to murder MAGA people and murder NAZI and murder Russians. The hate itself, the killing, the addiction to "action" and violence is the thing that makes life non-fun and terrible. Being around anti-intellectual people who spend all day and night commenting about Trump with low-effort anti-teaching instead of learning from Dr. Bandy X Lee is a nightmare I live in, it i reality real.
 > 
@@ -182,7 +182,7 @@ I talked to my MAGA neighbor today and it appears the talking point being pushed
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Everyone needs to stay at home, use social media and focus on nonfiction. Start learning and teaching mental health terminology and language. Dr. Bandy X Lee's book from October 3, 2017. Stop letting meme "Celebration of Ignorance" and anti-Malala anti-education anti-nonfiction run the USA. Surkov won since March 2013.
+> Everyone needs to stay at home, use social media and focus on nonfiction. Start learning and teaching mental health terminology and language. Dr. Bandy X Lee's book from October 3, 2017. Stop letting meme "Celebration of Ignorance" and anti-Malala anti-education anti-nonfiction run the USA. Surkov won since March 2013.
 > 
 > * "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
 > ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
@@ -212,7 +212,7 @@ It won’t be long before someone really does use a gun to try to harm ice agent
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-10 month Reddit account in /r/Politics 
+> 10 month Reddit account in /r/Politics 
 > 
 > Organization names change. Geography changes. This is not 1937 Germany. We speak a different language than 1937 Germany, we are an ocean apart from Germany. The hate is the problem. Stand up against hate EVERYWHERE. All places. Show the USA has learned from mistakes and go back to American teacher, from Atlanta Georgia USA. Stop cheering on hate teams. Hate vs. hate fandoms. Hate for hate reactions. Hate itself needs to be addressed in the human brain, mind, education.
 > 
@@ -301,7 +301,7 @@ Here's the Rotten Tomatoes page...just in case you need it...for something.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Oppression is getting on the same page of content. Not to say that in the post-Surkov world there isn't a massive number of ARG patterns to choose your own fiction adventure.
+> Oppression is getting on the same page of content. Not to say that in the post-Surkov world there isn't a massive number of ARG patterns to choose your own fiction adventure.
 >
 
 
@@ -328,7 +328,7 @@ Subtility would be lost on the morons they're targeting. Right wing dogwhistles 
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Human symptoms of over-saturation of repeating messages. Islamic year 635 onward repeating Quran indoctrination behaviors in adults. A tightly packed set of monomyth patterns in the mind, public dreams, refreshed and altered over the years. Avoidance of information overload via out-group hate. "Old World Order" before year 1776, anti-inclusive. Anti Free Masons thinking. Loudly and softly, spectrum of volumes and tones, but a smaller monomyth patterns. Anti-science. "Enclosed thinking", often fiction-fixated traditions.
+> Human symptoms of over-saturation of repeating messages. Islamic year 635 onward repeating Quran indoctrination behaviors in adults. A tightly packed set of monomyth patterns in the mind, public dreams, refreshed and altered over the years. Avoidance of information overload via out-group hate. "Old World Order" before year 1776, anti-inclusive. Anti Free Masons thinking. Loudly and softly, spectrum of volumes and tones, but a smaller monomyth patterns. Anti-science. "Enclosed thinking", often fiction-fixated traditions.
 > 
 > * Avoidance: "We hold these truths to be self-evident, that all men are created equal, that they are endowed by their Creator with certain unalienable Rights" https://en.wikipedia.org/wiki/All_men_are_created_equal
 > 
@@ -397,7 +397,7 @@ If you fail to defend other people's rights \- that is how you lose your own.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Old-school long-form Reddit posting in January 2026 on serious important topics! BrainRot Society 47 every-47-hours newsletter kind of material. To put into a FAQ / Wiki for organized same-page assertions.
+> Old-school long-form Reddit posting in January 2026 on serious important topics! BrainRot Society 47 every-47-hours newsletter kind of material. To put into a FAQ / Wiki for organized same-page assertions.
 >
 
 
@@ -424,7 +424,7 @@ At this point I don’t event know what we can do to restore peace in our countr
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-2 month Reddit account. The ANSWERS: Halt sports gaming, video gaming, non-essential entertainment. See here: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
+> 2 month Reddit account. The ANSWERS: Halt sports gaming, video gaming, non-essential entertainment. See here: https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
 > 
 > Answer 2: Promote Dr. Bandy X Lee's leadership and quote her October 3, 2017 book harder than any Epstein assertions you saw on social media in year 2025. Make Dr. Bandy X Lee a topic every 47 hours.
 >
@@ -453,7 +453,7 @@ This is unbelievable but this is what the people wanted , it's no longer attacki
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-What "the people wanted". Addiction of BREAKING NEWS at high speed TCP/IP 5G+ delivery on the latest model Android / Apple iPhone / Apple iPad in hand. Putin / Surkov / Trump lead with antics and BREAKING NEWS stimulation to feed the We The People audience desires. Round after round of stimulating smartphone / iPad notifications. ABSENT: Repeating and quoting Dr. Bandy X Lee's mental health teachings and public education about Trumpism since October 3, 2017 (and even earlier in non-book form).
+> What "the people wanted". Addiction of BREAKING NEWS at high speed TCP/IP 5G+ delivery on the latest model Android / Apple iPhone / Apple iPad in hand. Putin / Surkov / Trump lead with antics and BREAKING NEWS stimulation to feed the We The People audience desires. Round after round of stimulating smartphone / iPad notifications. ABSENT: Repeating and quoting Dr. Bandy X Lee's mental health teachings and public education about Trumpism since October 3, 2017 (and even earlier in non-book form).
 > 
 > * meme-talk nation. “When a population becomes distracted by trivia, when cultural life is redefined as a **perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself...” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985. Book on paper.
 >
@@ -484,7 +484,7 @@ Is there a word for this?
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Twitter "Engagement" technique of social machines. Ask extremely low-effort trivial questions to trivialize a topic. Anything to avoid quoting and asserting the importance of serious non-fiction books on paper in favor of short message Twitter-length. Most popular comment currently, top upvoted / liked on Reddit.
+> Twitter "Engagement" technique of social machines. Ask extremely low-effort trivial questions to trivialize a topic. Anything to avoid quoting and asserting the importance of serious non-fiction books on paper in favor of short message Twitter-length. Most popular comment currently, top upvoted / liked on Reddit.
 >
 
 
@@ -511,7 +511,7 @@ And there it is. At the end of the day, this is about controlling elections to e
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Not, it really isn't. The elections are Hunger Games focus. Democracy is EVERY DAY, Great Seal of the United States of America is EVERY DAY ALL DAY, not just election days. The inability to IMPEACH and REMOVE TRUMP on ANY DAY is a crisis of thinking only in terms of ELECTION DAYS. We already REMOVED TRUMP from OFFICE, Biden was put in for a full term, 4 years. But that did not address the mindrot brainrot anti-Great Seal USA thinking. www.GreatSealUSA.com lessons are urgently needed!
+> Not, it really isn't. The elections are Hunger Games focus. Democracy is EVERY DAY, Great Seal of the United States of America is EVERY DAY ALL DAY, not just election days. The inability to IMPEACH and REMOVE TRUMP on ANY DAY is a crisis of thinking only in terms of ELECTION DAYS. We already REMOVED TRUMP from OFFICE, Biden was put in for a full term, 4 years. But that did not address the mindrot brainrot anti-Great Seal USA thinking. www.GreatSealUSA.com lessons are urgently needed!
 >
 
 
@@ -540,7 +540,7 @@ Seriously what does voter rolls, Medicaid, and fraud have to do with immigration
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-<img width="1221" height="1179" alt="image" src="https://github.com/user-attachments/assets/52803920-1a72-4e4e-a1d2-11251fd838d6" />
+> <img width="1221" height="1179" alt="image" src="https://github.com/user-attachments/assets/52803920-1a72-4e4e-a1d2-11251fd838d6" />
 > 
 > Reddit audience: **"abuser' - "textbook"** - then why are you (We The People) on Reddit not quoting any nonfiction textbooks on Reddit and asking people to follow Dr. Bandy X Lee's lead and pointing out the Reddit audience is avoiding textbooks? Why not get behind a GenX woman who is standing up to Trump / MAGA male-worship worshiping-Putin mindsets? Teach mob mentality mental health topics!!! https://en.Wikipedia.org/wiki/Bandy_X._Lee - she is New York born like Trump! Why not let her school the old man?
 > 
@@ -571,7 +571,7 @@ Extortion! They are killing Americansto get the voter data so they knew whom to 
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Organized crime. Organized mythology. Serves to give the population, We The People, a topic to focus on later in the year instead of RIGHT HERE RIGHT NOW ON REDDIT SUNDAY TODAY: Promoting Dr. Bandy X Lee's nonfiction book from October 3, 2017 as an education campaign, peer to peer nonfiction education focus.
+> Organized crime. Organized mythology. Serves to give the population, We The People, a topic to focus on later in the year instead of RIGHT HERE RIGHT NOW ON REDDIT SUNDAY TODAY: Promoting Dr. Bandy X Lee's nonfiction book from October 3, 2017 as an education campaign, peer to peer nonfiction education focus.
 >
 
 
@@ -598,7 +598,7 @@ This is not a "meme". This is disinformation from the official government social
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-The Kremlin / White House using Surkov student methods; plucking on the heart-strings of deeply programmed memes in the mind. John 1:1 Sunday mind-plucking with the Surkov MonoMyth patterns.
+> The Kremlin / White House using Surkov student methods; plucking on the heart-strings of deeply programmed memes in the mind. John 1:1 Sunday mind-plucking with the Surkov MonoMyth patterns.
 > 
 > Why haven't these social media companies (Reddit and Bluesky) pinned educational posts to people and informed their users to see the *forest for the trees* of how these techniques work on the general population (We The People) full of meme addictions:
 > 
@@ -633,7 +633,7 @@ My apologies to 13 year olds.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Twitter-length message on Reddit commenting environment. Using name-calling, dehumanizing Americans as "fly maggots". Anything but asserting Dr. Bandy X. Lee's writing and nonfiction learning, above ELI13 TLDR Reddit commenting. Highly upvoted out-group mocking and insulting, following Trump's leadership of Truth Social insulting and mocking as power and popularity methods.
+> Twitter-length message on Reddit commenting environment. Using name-calling, dehumanizing Americans as "fly maggots". Anything but asserting Dr. Bandy X. Lee's writing and nonfiction learning, above ELI13 TLDR Reddit commenting. Highly upvoted out-group mocking and insulting, following Trump's leadership of Truth Social insulting and mocking as power and popularity methods.
 >
 
 
@@ -660,7 +660,7 @@ The flag should be upside\-down.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Top upvoted comment at time of GitHub checkin
+> Top upvoted comment at time of GitHub checkin
 > 
 > Social post { https://Autistics.Life/@RoundSparrow/115957315162001581 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdbgmazohk2p }
 >
@@ -689,7 +689,7 @@ The “2A protects the 1A” cosplay guys folded quick, didn’t they? Turns out
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-2nd posting on front page. Top voted comment. 8 month Reddit account commenting.
+> 2nd posting on front page. Top voted comment. 8 month Reddit account commenting.
 >
 
 
@@ -762,7 +762,7 @@ The problem is they are dumb, argued with one the other day and he legit tried t
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-meme-addled. Ignorance. Adult education is trashed by meme addictions. Meme macro images, exchanging images.
+> meme-addled. Ignorance. Adult education is trashed by meme addictions. Meme macro images, exchanging images.
 > 
 > * “Americans no longer talk to each other, they **entertain each other**. They do not exchange ideas, they **exchange images**. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Published year 1985. Page 93.](https://books.google.com/books?id=KIjhAAAAMAAJ&q=%22They+do+not+argue+with+propositions;+they+argue+with+good+looks,+celebrities+and+commercials.%E2%80%9D&dq=%22They+do+not+argue+with+propositions;+they+argue+with+good+looks,+celebrities+and+commercials.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&printsec=frontcover&sa=X)
 > 
@@ -793,7 +793,7 @@ Post Title:      He was from Green Bay.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Capture quote.
+> Capture quote.
 >
 
 
@@ -820,7 +820,7 @@ I’m still trying to understand how a group of people who stormed the US Capito
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-**Understand that Russian information warfare** since March 2013 did not hit every group the same, not all were programmed into self-harm at the same time. MAGA rural less-educated Americans, who never heard of Neil Postman at NYU since year 1985... were already "softened up" by Fox News HDTV addictions / Rupert Murdoch manipulation. The Saint Petersburg Internet Research Agency echoland entertainment programming mindsets didn't resonate as fast with some filter-bubble groups.
+> **Understand that Russian information warfare** since March 2013 did not hit every group the same, not all were programmed into self-harm at the same time. MAGA rural less-educated Americans, who never heard of Neil Postman at NYU since year 1985... were already "softened up" by Fox News HDTV addictions / Rupert Murdoch manipulation. The Saint Petersburg Internet Research Agency echoland entertainment programming mindsets didn't resonate as fast with some filter-bubble groups.
 >
 
 
@@ -847,7 +847,7 @@ This administration is as childish as it is cruel.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-<img width="995" height="235" alt="image" src="https://github.com/user-attachments/assets/5e93a3f5-45a5-49ea-a491-cdfcd58cab1e" />
+> <img width="995" height="235" alt="image" src="https://github.com/user-attachments/assets/5e93a3f5-45a5-49ea-a491-cdfcd58cab1e" />
 > 
 > Top-voted Reddit comment, popular, on important posting. Twitter-length, gullible population. Social media commenting with low-effort short messages. Anything to avoid nonfiction serious learning about Surkovian information warfare and Surkovian governing techniques since year 2000. Minds blown and easily exploited with low-effort pranks, memes, content from Kremlin and White House since March 2013. Surkov won. The show is not just for child-ages, that's what the Twitter-length commenting mindsets see, the child performance front-end.
 > 
@@ -879,7 +879,7 @@ The administration is being ran by brain dead teenagers apparently.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-<img width="872" height="273" alt="image" src="https://github.com/user-attachments/assets/7b3837a1-28b8-4ff8-ae83-745078b1da2d" />
+> <img width="872" height="273" alt="image" src="https://github.com/user-attachments/assets/7b3837a1-28b8-4ff8-ae83-745078b1da2d" />
 > 
 > The Kremlin and White House are running circles around the Reddit fandom. Extreme low-effort commenting is being upvoted as engagement to the Reality TV / Reality Social show. The Reddit audience has such extreme recency bias that people have lost all sense THIS STYLE OF LOW-EFFORT COMMENTING HAS BEEN GOING ON FOR OVER TEN YEARS AND SEVEN MONTHS. Reddit meme aficionados who do not see the multiple venues and filter-bubble patterns Cambridge Analytica and the Russian military worked out in late year 2012. See also: https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
 > 
@@ -910,7 +910,7 @@ They’re calling propaganda “memes”.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Yes. Memes are John 1:1. Reddit audience has almost zero comprehension of media ecology.
+> Yes. Memes are John 1:1. Reddit audience has almost zero comprehension of media ecology.
 > 
 > * “The medium **does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up**. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan. “This is Marshall McLuhan: The Medium is the Massage”, an experimental documentary produced by Ernest Pintoff and Guy Fraumeni, narrated by actor Edward Binnes and broadcasted on NBC TV (19 March 1967). https://youtu.be/cFwVCHkL-JU?t=195
 >
@@ -939,7 +939,7 @@ Imagine being a grown adult and admitting you care about memes. Let alone somebo
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-Reddit audience. Twitter-length thinking patterns, short-message. No demonstration of knowing Neil Postman's teachings.
+> Reddit audience. Twitter-length thinking patterns, short-message. No demonstration of knowing Neil Postman's teachings.
 > 
 > There is no demonstration on Reddit of self-awareness of being lead by the nose / leash lead, by Elon Musk Twitter media systems / meme images. All signs and behaviors indicate a mob mentality of thinking Reddit audience has out-smarted the out-groups ( Twitter, Turning Point, Saint Petersburg Internet Research Agency seeding since March 2013, Grok AI, Rupert Mrudoch }... no invocation of { Media Ecology, Neil Postman, Marshall McLuhan }. Despite the long-established Time Magazine just months ago re-asserting Neil Postman's 1985 media ecology about addict self-awareness (Reddit high speed electric media audience). September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ only 137 days ago!
 >
