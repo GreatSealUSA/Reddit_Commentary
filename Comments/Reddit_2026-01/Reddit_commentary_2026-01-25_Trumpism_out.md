@@ -2189,3 +2189,40 @@ The shooting of Renee Good feels like it could have been 6 months ago. Not becau
 > 
 > * “Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind. To get inside in order to manipulate, exploit, control is the object now. And to generate heat, not light, is the intention. To keep everybody in the helpless state engendered by prolonged mental rutting is the effect of many ads and much entertainment alike." ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. Year 1951. https://McLuhan.substack.com/p/the-case-of-the-mail-order-bride Preface  / opening pages of the book. [Google books](https://www.google.com/books/edition/The_Mechanical_Bride/PqC4AAAAIAAJ?hl=en&gbpv=1&bsq=%22many+thousands+of+the+best-trained+individual+minds+have+made+it+a+full-time+business+to+get+inside+the+collective+public+mind.+To+get+inside%22&dq=%22many+thousands+of+the+best-trained+individual+minds+have+made+it+a+full-time+business+to+get+inside+the+collective+public+mind.+To+get+inside%22&printsec=frontcover)
 >
+
+
+=============
+  
+## Reddit comment o1s0t8x
+
+    entry 79
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qn8nkh/ice_agents_are_firing_kinetic_impact_projectiles/o1s0t8x/  
+Comment ID:      o1s0t8x  
+Author:          nanovid  
+Bio:               
+Account Created: 2019-12-21T18:31:55Z  
+Link Karma:      102  
+Comment Karma:   744  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T07:06:39Z  
+Score:           298 points  
+Post Title:      ICE agents are firing kinetic impact projectiles at close range, causing severe injuries that can result in permanent disability or death. Today, they tore off part of a woman’s hand  
+:::::: Reddit User Comment: ======  
+After jan 6 they can't claim ignorance.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> How many Reddit comments do you have to see in front of you to recognize collective group ignorance. That "meme life" is prized. Trivial entertainment information rules the population of USA.
+> 
+> 7 days ago was the dawn of Martin Luther King Jr. Day. All week Reddit could have been saying the obvious: Democracy does not work without *love one another*, "love thy neighbor*, "love they enemy*. Yet, people keep saying "empathy" without quoting Dr. Martin Luther King Jr. What is the fucking point of being famous for being an articulate good preacher if nobody bothers to go to WikiQuotes because they are so busy commenting on Reddit. https://en.WikiQuote.org/wiki/Martin_Luther_King_Jr.
+> 
+> A world in which every person is in a contest to defeat every other person with ridicule and mocking on Reddit is exactly MAGA Trump USA. Most don't even have to make a comment, just like Fox News HDTV audience passively consumes the entertainment of hate-mocking non-conforming individuals. Mob mentality is the drug, a mindset of being in a tribe / club / subreddit.
+> 
+> * “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave **every man importance only in so far as the tribe was important and he was a member** of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published year 1955.
+> 
+> Hate for hate, hate vs. hate, teaching MAGA to *hate harder* is not standing up for love. Love one another is core to democrat. The Great Seal of the United States of America is not optional. www.GreatSealUSA.com learning is not optional. It has been joked "the Illuminati", ha har, joke joke, meme meme, laugh laugh, a pyramid with an eye, what a joke we are as a nation without love. I do not "believe" in The Bible or Quran or Upanishads as nonfiction science, I believe in the entire public library of rock music lyrics, poetry, science fiction inspiration. Reading a dozen or two poetry books, one does get a sense that love and compassion are not fiction. Democracy does not work without love thy neighbor. World peace does not work without love thy enemy.
+> 
+> The Bible should be watched with The Terminator film robots. https://www.youtube.com/watch?v=jxoowglHU2w (Gun store shopping) Both are science fiction. The Terminator robots don't preach "love thy enemy". Democracy with hate as the "fun joke" becomes what we live in January 2026.
+>
