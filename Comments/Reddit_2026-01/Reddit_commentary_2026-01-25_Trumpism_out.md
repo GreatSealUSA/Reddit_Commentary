@@ -3147,3 +3147,57 @@ For the people thinking this is ridiculous, "boys in girls sports" is exactly th
 > 
 > * "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of **the West's "genderless** and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." ::: - December 20, 2013 https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
 >
+
+
+=============
+  
+## Reddit comment o1u8sp9
+
+    entry 111
+
+Comment URL: https://old.reddit.com/r/news/comments/1qnjyuk/arizona_ag_suggests_states_selfdefense_laws_allow/o1u8sp9/  
+Comment ID:      o1u8sp9  
+Author:          raincntry  
+Bio:               
+Account Created: 2015-07-26T16:22:53Z  
+Link Karma:      3210  
+Comment Karma:   103609  
+Comment Age:     57 minutes ago  
+Timestamp:       2026-01-26T16:07:18Z  
+Score:           None  
+Post Title:      Arizona AG suggests state's self-defense laws allow residents to shoot masked ICE agents  
+:::::: Reddit User Comment: ======  
+If a masked person shows up at your house, attempting to enter without announcing they are law enforcement, you can absolutely legally act in self defense. Any law enforcement agent will tell you that knock and announce is as much for their protection as anything else. ICE seems to ignore this reality.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Arizona, USA south, guns.
+>
+
+
+=============
+  
+## Reddit comment o1u8xr6
+
+    entry 112
+
+Comment URL: https://old.reddit.com/r/news/comments/1qnjyuk/arizona_ag_suggests_states_selfdefense_laws_allow/o1u8xr6/  
+Comment ID:      o1u8xr6  
+Author:          thodgson  
+Bio:             Thorasic Velamint  : Writing code is my life, but so is hiking, reading, gaming, familying, and stuff.  
+Account Created: 2006-08-21T01:01:45Z  
+Link Karma:      2284  
+Comment Karma:   90470  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T16:07:55Z  
+Score:           903 points  
+Post Title:      Arizona AG suggests state's self-defense laws allow residents to shoot masked ICE agents  
+:::::: Reddit User Comment: ======  
+Exactly what the "Don't Tread on Me" and 2nd Amendment Gun Nuts have been crying about for the last 50 years. Suddenly, they are either silent or telling everyone to comply. Hypocrites.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 19 year Reddit account.
+>
