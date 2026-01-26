@@ -4151,3 +4151,30 @@ Spoken like a true libtard. You would be facing 20 years to life but you would p
 > :::::: Analysis_Thoughts Commentary: ======  
 > Joined Reddit on a new years eve.
 >
+
+
+=============
+  
+## Reddit comment o1uqg4l
+
+    entry 147
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uqg4l/  
+Comment ID:      o1uqg4l  
+Author:          allaboutaphie  
+Bio:               
+Account Created: 2022-03-04T00:31:34Z  
+Link Karma:      257  
+Comment Karma:   7942  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T17:22:48Z  
+Score:           -53 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Let me fix the title. Dark times in Minneapolis, where your city and state leaders thought it was a great idea for people to agitate and provoke the fed government to change the subject on their mass fraud. And they apparently did not care if some would die for their political cause. Most would have called for calm but not these dudes.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "most would have called for clam"... Why are social media users not using their free time and spare time to teach from nonfiction books about *cult deprogramming* of the Fox News audience? Why is brainwashing not being taught ever 12 hours on the front page of Reddit? Why is Jen Senko's name not constantly being repeated on Reddit commenting to address the raging hate and avoidance of nonfiction serious films and books on paper? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+>
