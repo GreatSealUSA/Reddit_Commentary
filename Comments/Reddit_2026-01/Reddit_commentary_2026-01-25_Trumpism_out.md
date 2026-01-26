@@ -3795,3 +3795,359 @@ Great article, I'm sure I'll be downvoted, but I just hate how I had to turn my 
 > 
 > * "Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why." - James Joyce. Letter to Fanny Guillermet (Zurich, 5 September 1918)
 >
+
+
+=============
+  
+## Reddit comment o1w5zj7
+
+    entry 133
+
+Comment URL: https://old.reddit.com/r/books/comments/1qnqgy7/minneapolis_bookstore_owner_greg_ketter_emerges/o1w5zj7/  
+Comment ID:      o1w5zj7  
+Author:          werzberng  
+Bio:               
+Account Created: 2019-01-01T15:35:57Z  
+Link Karma:      209  
+Comment Karma:   7402  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T21:05:21Z  
+Score:           14 points  
+Post Title:      Minneapolis bookstore owner Greg Ketter emerges as a symbol of protest against ICE actions  
+:::::: Reddit User Comment: ======  
+He’s not a symbol. He’s a real, live person just like you and me.
+
+
+
+
+=============
+  
+## Reddit comment o1v0xyn
+
+    entry 134
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v0xyn/  
+Comment ID:      o1v0xyn  
+Author:          AncientBasque  
+Bio:             The creator is with us  
+Account Created: 2023-01-03T03:04:13Z  
+Link Karma:      257  
+Comment Karma:   9307  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T18:08:29Z  
+Score:           -21 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+luckly for Alex he was a full blooded white American citizen so his life had tremendous value. Any percentage of color or doubt on his nationality would have gone as justified act.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Black Lives Matter echos.
+>
+
+
+=============
+  
+## Reddit comment o1uvuxh
+
+    entry 135
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uvuxh/  
+Comment ID:      o1uvuxh  
+Author:          Big-dingaling78  
+Bio:               
+Account Created: 2020-09-21T01:00:39Z  
+Link Karma:      1556  
+Comment Karma:   2575  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T17:46:48Z  
+Score:           -8 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+[\<image\>](https://preview.redd.it/id3mzf35eqfg1.jpeg?width=1290&format=pjpg&auto=webp&s=4588a29c1115fc55d11fc276260968f54b6b1361)
+
+
+
+
+=============
+  
+## Reddit comment o1v7rh0
+
+    entry 136
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v7rh0/  
+Comment ID:      o1v7rh0  
+Author:          Tasty_Independent547  
+Bio:               
+Account Created: 2024-10-05T02:41:30Z  
+Link Karma:      1  
+Comment Karma:   -54  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T18:36:58Z  
+Score:           -15 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+I think we should set up a Go\_fund me for the officer's involved.
+
+They are getting harassed and assaulted at an alarming rate.
+
+
+
+
+=============
+  
+## Reddit comment o1uuvn9
+
+    entry 137
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uuvn9/  
+Comment ID:      o1uuvn9  
+Author:          SnooTangerines7758  
+Bio:             Mexicansuplex :   
+Account Created: 2020-08-29T16:26:50Z  
+Link Karma:      1  
+Comment Karma:   1192  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T17:42:13Z  
+Score:           -11 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+These are the same people telling you George floyd was a hero
+
+
+
+
+=============
+  
+## Reddit comment o1v2dqa
+
+    entry 138
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v2dqa/  
+Comment ID:      o1v2dqa  
+Author:          Drosenose  
+Bio:               
+Account Created: 2022-06-10T08:57:41Z  
+Link Karma:      430  
+Comment Karma:   -100  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T18:14:32Z  
+Score:           -17 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Everyone quick do the same thing petti did and expect different results.
+
+
+
+
+=============
+  
+## Reddit comment o1v55kj
+
+    entry 139
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v55kj/  
+Comment ID:      o1v55kj  
+Author:          BigCheeseTX  
+Bio:             Nerd since before it was cool.  
+Account Created: 2023-09-27T20:14:28Z  
+Link Karma:      38  
+Comment Karma:   1042  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T18:26:04Z  
+Score:           -16 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Don't reach for your holster while resisting arrest. This used to not need to be explained. Looks like he drew his spare magazine
+
+
+
+
+=============
+  
+## Reddit comment o1uvdel
+
+    entry 140
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uvdel/  
+Comment ID:      o1uvdel  
+Author:          Ok_boomer2026  
+Bio:               
+Account Created: 2025-08-18T11:04:16Z  
+Link Karma:      1  
+Comment Karma:   -100  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T17:44:32Z  
+Score:           -8 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Still kinda dumb to pack a gun. Why???
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5-month Reddit account. Twitter-length Tweet-thinking message pattern. Tiny-short message of about 2.5 seconds duration. Reddit has a cult of tiny-short thinking patterns, we need to rescue people from the Cambridge Analytica and Internet Research Agency outcomes since March 2013.
+> 
+> * “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+>
+
+
+=============
+  
+## Reddit comment o1use4v
+
+    entry 141
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1use4v/  
+Comment ID:      o1use4v  
+Author:          Ill-Operation9812  
+Bio:               
+Account Created: 2025-03-08T00:19:14Z  
+Link Karma:      1  
+Comment Karma:   -66  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T17:31:11Z  
+Score:           -19 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Yeah it’s crazy that treasonous citizens are laying down their lives to defend literal criminals
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 10 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1v1qp0
+
+    entry 142
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v1qp0/  
+Comment ID:      o1v1qp0  
+Author:          EvilCookie4250  
+Bio:             Evilcookie  : In your spawn  
+Account Created: 2017-08-20T22:52:19Z  
+Link Karma:      9555  
+Comment Karma:   9042  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T18:11:52Z  
+Score:           -19 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+arrest the governor and mayor, insurrection act now
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit account name "Evil". Twitter-length thinking mindsets.
+>
+
+
+=============
+  
+## Reddit comment o1usdce
+
+    entry 143
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1usdce/  
+Comment ID:      o1usdce  
+Author:          Tailgate-ATL  
+Bio:               
+Account Created: 2019-12-29T15:16:28Z  
+Link Karma:      134  
+Comment Karma:   441  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T17:31:05Z  
+Score:           -17 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Slowing things down and dissecting frame by frame is great for your analysis. However, the truth is this. An agitator came armed to disrupt the legal business of federal agents. He involve himself entirely too much and then fought with the police. Something happened, possibly he grabbed their gun or possibly it was a mistake. Either way it wasn’t intentional but is 100% avoidable by not showing up to one of these events armed.
+
+
+
+
+=============
+  
+## Reddit comment o1v2nz0
+
+    entry 144
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v2nz0/  
+Comment ID:      o1v2nz0  
+Author:          TerryFlapnCheeks69  
+Bio:               
+Account Created: 2023-09-26T00:39:08Z  
+Link Karma:      217  
+Comment Karma:   2791  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T18:15:43Z  
+Score:           -16 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Nah, i just know how not to get shot, this isn’t rocket science.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "not rocket science" that Russia has won hearts and minds of the entire nation to self-harm since March 2013 using Reddit infiltration. That the entire world is watching USA insult Canada and mock NATO and abandon Ukraine under Putin's military information warfare programming. Trivializing the cult of Fox News HDTV / media cult of Truth Social media issues. Downplaying the billionaires media influence (Rupert Murdoch predatory manipulation of minds) on people in the streets of MidWest cities / heartland of USA / rural population with less education.
+> 
+> * From September 9, 2014 - 11 years 4 months and some days ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating **mass hallucinations** that then translate into political action."
+>
+
+
+=============
+  
+## Reddit comment o1v64lq
+
+    entry 145
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1v64lq/  
+Comment ID:      o1v64lq  
+Author:          ma_wittle_firmworm  
+Bio:               
+Account Created: 2025-11-12T05:49:37Z  
+Link Karma:      1  
+Comment Karma:   -31  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T18:30:08Z  
+Score:           -16 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Democrats need to mind their own fucking business, stay at home and let ICE deport the illegal immigrants
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. Telling people they need to always stay inside and not encounter any Republican party members, to hide and cower anyone other than your own street gang political group. This is Reddit mind-fucking of the audience, intimidation messaging to stay inside. Putin has mind-fucked the society and we all need to be promoting Dr. Bandy X Lee's mental health leadership. People are behaving cultish towards brand-names of political organizations.
+>
+
+
+=============
+  
+## Reddit comment o1vrkc2
+
+    entry 146
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vrkc2/  
+Comment ID:      o1vrkc2  
+Author:          EmotionalCancel647  
+Bio:               
+Account Created: 2023-01-01T01:25:56Z  
+Link Karma:      1  
+Comment Karma:   -9  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T20:01:21Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Spoken like a true libtard. You would be facing 20 years to life but you would probably end up with your brain leaking out playing stupid games.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Joined Reddit on a new years eve.
+>
