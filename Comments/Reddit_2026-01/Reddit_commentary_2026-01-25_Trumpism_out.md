@@ -1893,3 +1893,193 @@ Post Title:      MN national guard is on scene. They handed out donuts and hot r
 The national guard being on the ground at the same time as ICE could mean we are at a critical point in U.S. history. If there is violence between the guard members and ICE it’s a real possibility America does not survive this a country. I could see independence movements in some blue states rise up.
 
 
+
+
+=============
+  
+## Reddit comment o1q21ee
+
+    entry 67
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qn034v/finneas_calling_out_the_hypocrisy_of_people/o1q21ee/  
+Comment ID:      o1q21ee  
+Author:          SugarCanDee  
+Bio:             Reddit please fix my status. I’m not NSFW. | Since November 2025 active : Beginner artist (pushing 20) who LOVES BoJack Horseman and Hell’s Kitchen
+|
+If I dislike a celebrity, ignore me.
+|
+Old alt was u/Traditional-Stick-21
+|
+Really not NSFW/I can’t show my profile pictures  
+Account Created: 2025-04-25T20:32:18Z  
+Link Karma:      87  
+Comment Karma:   67740  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T00:09:58Z  
+Score:           828 points  
+Post Title:      FINNEAS calling out the hypocrisy of people justifying Alex Pretti’s death because he had a gun: “you told us children had to die so we can legally carry weapons everywhere”  
+:::::: Reddit User Comment: ======  
+I love it when smart and empathetic people speak. It’s like listening to a podcast filled with people who know what they say and then ace every part of their dialogue which satisfies you
+
+
+
+
+=============
+  
+## Reddit comment o1q3hal
+
+    entry 68
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qn034v/finneas_calling_out_the_hypocrisy_of_people/o1q3hal/  
+Comment ID:      o1q3hal  
+Author:          yourangleoryuordevil  
+Bio:               
+Account Created: 2021-05-21T00:51:43Z  
+Link Karma:      33848  
+Comment Karma:   637494  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T00:16:58Z  
+Score:           346 points  
+Post Title:      FINNEAS calling out the hypocrisy of people justifying Alex Pretti’s death because he had a gun: “you told us children had to die so we can legally carry weapons everywhere”  
+:::::: Reddit User Comment: ======  
+It’s also wild how the same people who feed into the conservative argument have likely carried a concealed weapon themselves and *still* can’t seem to see themselves in the same kind of position Alex was in. Nothing made him different from anyone else who would legally carry a concealed weapon.
+
+
+
+
+=============
+  
+## Reddit comment o1q4dia
+
+    entry 69
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qn034v/finneas_calling_out_the_hypocrisy_of_people/o1q4dia/  
+Comment ID:      o1q4dia  
+Author:          The_Bravinator  
+Bio:               
+Account Created: 2012-02-12T23:21:16Z  
+Link Karma:      21381  
+Comment Karma:   1086440  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T00:21:20Z  
+Score:           293 points  
+Post Title:      FINNEAS calling out the hypocrisy of people justifying Alex Pretti’s death because he had a gun: “you told us children had to die so we can legally carry weapons everywhere”  
+:::::: Reddit User Comment: ======  
+VA ICU nurse trying to protect a woman is like... They couldn't have made up a more perfect "good guy with a gun" if they'd tried, and yet here we still are. Because at the end of the day "good guy" in their terms only ever meant "supports the status quo".
+
+
+
+
+=============
+  
+## Reddit comment o1pitz5
+
+    entry 70
+
+Comment URL: https://old.reddit.com/r/LivestreamFail/comments/1qmxwgp/xqc_says_asmongold_is_making_she_was_asking_for/o1pitz5/  
+Comment ID:      o1pitz5  
+Author:          AustinRatBuster  
+Bio:               
+Account Created: 2021-07-02T15:15:12Z  
+Link Karma:      35352  
+Comment Karma:   21904  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T22:40:18Z  
+Score:           2362 points  
+Post Title:      xQc says Asmongold is making "she was asking for it" level arguments  
+:::::: Reddit User Comment: ======  
+Asmongold wouldve snitched on Anne Frank
+
+
+
+
+=============
+  
+## Reddit comment o1piyuq
+
+    entry 71
+
+Comment URL: https://old.reddit.com/r/LivestreamFail/comments/1qmxwgp/xqc_says_asmongold_is_making_she_was_asking_for/o1piyuq/  
+Comment ID:      o1piyuq  
+Author:          Far_Rain7916  
+Bio:               
+Account Created: 2025-01-06T19:22:05Z  
+Link Karma:      1768  
+Comment Karma:   3833  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T22:40:54Z  
+Score:           672 points  
+Post Title:      xQc says Asmongold is making "she was asking for it" level arguments  
+:::::: Reddit User Comment: ======  
+I've posted exactly the same clip xqc is watching here on lsf a couple of hours ago, it reached 1300 upvotes and people were talking about it but then the mods took it down for some reason. Can I learn the reason?
+
+
+
+
+=============
+  
+## Reddit comment o1pl114
+
+    entry 72
+
+Comment URL: https://old.reddit.com/r/LivestreamFail/comments/1qmxwgp/xqc_says_asmongold_is_making_she_was_asking_for/o1pl114/  
+Comment ID:      o1pl114  
+Author:          jathhilt  
+Bio:             CHAKILO :   
+Account Created: 2012-06-28T21:00:32Z  
+Link Karma:      1601  
+Comment Karma:   17574  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T22:50:10Z  
+Score:           125 points  
+Post Title:      xQc says Asmongold is making "she was asking for it" level arguments  
+:::::: Reddit User Comment: ======  
+As long as you can pin down 1 percent of responsibility on the victim they will side with the Feds. It's disgusting.
+
+
+
+
+=============
+  
+## Reddit comment o1qblqq
+
+    entry 73
+
+Comment URL: https://old.reddit.com/r/law/comments/1qn0x0l/he_is_basically_saying_if_we_call_ice_names_there/o1qblqq/  
+Comment ID:      o1qblqq  
+Author:          Same-Temperature9472  
+Bio:               
+Account Created: 2023-09-19T00:27:42Z  
+Link Karma:      25  
+Comment Karma:   16215  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T00:56:47Z  
+Score:           200 points  
+Post Title:      He is basically saying if we call ICE names, there will be 'consequences' as we saw yesterday, aka we die, how is this legal?  
+:::::: Reddit User Comment: ======  
+[(4\) Charlie Kirk on X: "Hate speech does not exist legally in America. There's ugly speech. There's gross speech. There's evil speech. And ALL of it is protected by the First Amendment. Keep America free." / X](https://x.com/charliekirk11/status/1786189687260103119?lang=en)
+
+
+
+
+=============
+  
+## Reddit comment o1qcxuf
+
+    entry 74
+
+Comment URL: https://old.reddit.com/r/law/comments/1qn0x0l/he_is_basically_saying_if_we_call_ice_names_there/o1qcxuf/  
+Comment ID:      o1qcxuf  
+Author:          npaulette02  
+Bio:             AsAboveSoBelow :   
+Account Created: 2017-12-22T21:37:56Z  
+Link Karma:      803  
+Comment Karma:   14243  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T01:03:29Z  
+Score:           26 points  
+Post Title:      He is basically saying if we call ICE names, there will be 'consequences' as we saw yesterday, aka we die, how is this legal?  
+:::::: Reddit User Comment: ======  
+Man after Noem's presser I thought they were maybe moderating their language a little bit but then they keep sending this ugly troglodyte out there and inflaming the anger and hatred Americans feel towards these people even more. Guess they don't sense which way the winds are shifting. Or they do and they have decided to dig in. Won't end well for them.
+
+
