@@ -3068,7 +3068,47 @@ This is what I don’t get… the “right” likes to ask the question “do yo
 > 
 > Beavis and Butthead. Reddit audience is the very people who **turned the USA into "South Park" to watch on Reddit**. Because Reddit audience can't face your addition to fiction storytelling any more than Mecca Mohammad { Quran Bible Torah, Book of Mormon } science fictions fandom can face their South Park show. A nation of suckers! Donald Trump is an actor, Trump is acting, they are all acting to variations of SNL Tony Clifton character / NYC SNL of *Trump's home town* comedy empire where so many comedian like Donald Trump became world famous. Trump is a god damn performance artist! Bamboozled every one of you in the Reddit audience playing his Tony Clifton character. https://www.youtube.com/watch?v=JKTR8Yj5hg4 NYC SNL performer. AGAIN: Trump is an actor from NYC who plays POTUS Tony Clifton. Reddit *eats it up*. Surkov won.
 > 
-> Surkov won. Putin won. Russia won. NATO lost, look around at NATO in January 2026 and wake the fuck up to what Carl Sagan wrote in year 1995. Nation of suckers to Putin and Trump! They met in Alaska last summer, for fuck's sake. Re-read and KEEP re-reading the quotes from Carl Sagan!
+> Surkov won. Putin won. Russia won. NATO lost, look around at NATO in January 2026 and wake the fuck up to what Carl Sagan wrote in year 1995. Nation of suckers to Putin and Trump! https://en.wikipedia.org/wiki/2025_Russia%E2%80%93United_States_summit They met in Alaska last summer, for fuck's sake. Re-read and KEEP re-reading the quotes from Carl Sagan!
 > 
 > *  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+> 
+> 
+> Social post { https://MidWest.Social/post/42461441 }
+>
+
+
+=============
+  
+## Reddit comment o1tkayp
+
+    entry 109
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1qngihl/was_a_little_wokeness_really_that_bad/o1tkayp/  
+Comment ID:      o1tkayp  
+Author:          pUmKinBoM  
+Bio:               
+Account Created: 2011-07-07T04:26:59Z  
+Link Karma:      788  
+Comment Karma:   176545  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T14:13:03Z  
+Score:           202 points  
+Post Title:      Was a little wokeness really that bad?  
+:::::: Reddit User Comment: ======  
+That's what I keep telling my parents. A Trans swimmer finished 4th and the country lost it's absolute shit over it and ushered in fascism. All of this because of roughly 1% of the American population just existing differently than them.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1097" height="592" alt="image" src="https://github.com/user-attachments/assets/215b3a19-34d0-4884-8bf8-6fa1764a7cac" />
+> 
+> Ignorance on Reddit. The Internet Research Agency invaded USA media systems since March 2013.
+> 
+> Trans-gender swimmer 4th place. That took place year 2022. "swimmer Lia Thomas, competing for the University of Pennsylvania, became the first openly transgender woman to win a Division 1 NCAA championship, winning the 500-yard freestyle in 2022." - Google Search summary 2026-01-26 morning USA
+> 
+> That is AFTER Trump's November 8, 2013 trip to Moscow on a private jet. Trans-gender swimmer year 2022 is AFTER the December 20, 2013 article explaining Putin and Trump's new agreement! ::: "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of **the West's "genderless** and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." ::: - December 20, 2013 https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+> 
+> That year 2022 trans-gender swimmer getting 4th place is AFTER the Cambridge Analytica mental manipulation of everyone in USA population.
+> 
+> * "The work was all about trying to anticipate how people would internalize and then spread cultural information — whether that meant in joining a death cult or in choosing a wardrobe. Bannon immediately grasped all of this, even telling me that he believed, as I do, **that politics and fashion are essentially products of the same phenomenon**. It was obvious that he treated intelligence gathering in a broad and deep way, which is not something I’ve seen many people in politics do. And that’s what makes him so powerful. He reads about **intersectional feminism or the fluidity of identity** not, as I later learned, because he’s open to those ideas but because he wants to invert them — to identify what people attach themselves to and then to weaponize it. What I didn’t know that day was that Bannon wanted to fight a cultural war, and so he had come to the people who specialized in informational weapons to help him build his arsenal." ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 4 "Steve From America", page ??, **year 2019**
 >
