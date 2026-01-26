@@ -766,7 +766,7 @@ The problem is they are dumb, argued with one the other day and he legit tried t
 > 
 > * “Americans no longer talk to each other, they **entertain each other**. They do not exchange ideas, they **exchange images**. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Published year 1985. Page 93.](https://books.google.com/books?id=KIjhAAAAMAAJ&q=%22They+do+not+argue+with+propositions;+they+argue+with+good+looks,+celebrities+and+commercials.%E2%80%9D&dq=%22They+do+not+argue+with+propositions;+they+argue+with+good+looks,+celebrities+and+commercials.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&printsec=frontcover&sa=X)
 > 
-> Avoidance of nonfiction seriously book reading. For example, Dr. Bandy X Lee's book has been almost entirely ignored by the USA fandom of ICE and Trump fandom. Published October 3, 2017 it teaches and educates about the cult, mob mentality, gang thinking patterns, mass psychosis, MAGA mindsets. People need to be asserting Dr. Lee as a leader to follow in the face of Trumpism / MAGA / dangerous aspects of following Donald Trump as role model.
+> Avoidance of nonfiction serious book reading. For example, Dr. Bandy X Lee's book has been almost entirely ignored by the USA fandom of ICE and Trump fandom. Published October 3, 2017 it teaches and educates about the cult, mob mentality, gang thinking patterns, mass psychosis, MAGA mindsets. People need to be asserting Dr. Lee as a leader to follow in the face of Trumpism / MAGA / dangerous aspects of following Donald Trump as role model.
 >
 
 
@@ -2225,4 +2225,91 @@ After jan 6 they can't claim ignorance.
 > Hate for hate, hate vs. hate, teaching MAGA to *hate harder* is not standing up for love. Love one another is core to democrat. The Great Seal of the United States of America is not optional. www.GreatSealUSA.com learning is not optional. It has been joked "the Illuminati", ha har, joke joke, meme meme, laugh laugh, a pyramid with an eye, what a joke we are as a nation without love. I do not "believe" in The Bible or Quran or Upanishads as nonfiction science, I believe in the entire public library of rock music lyrics, poetry, science fiction inspiration. Reading a dozen or two poetry books, one does get a sense that love and compassion are not fiction. Democracy does not work without love thy neighbor. World peace does not work without love thy enemy.
 > 
 > The Bible should be watched with The Terminator film robots. https://www.youtube.com/watch?v=jxoowglHU2w (Gun store shopping) Both are science fiction. The Terminator robots don't preach "love thy enemy". Democracy with hate as the "fun joke" becomes what we live in January 2026.
+>
+
+
+=============
+  
+## Reddit comment o1ru1lo
+
+    entry 80
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qn4nnj/edward_norton_im_sitting_here_talking_about/o1ru1lo/  
+Comment ID:      o1ru1lo  
+Author:          stink3rb3lle  
+Bio:               
+Account Created: 2025-02-02T05:04:23Z  
+Link Karma:      4254  
+Comment Karma:   179026  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T06:13:11Z  
+Score:           1289 points  
+Post Title:      Edward Norton "I'm sitting here talking about Movies while an illegal army is being mounted against U.S. Citizens"  
+:::::: Reddit User Comment: ======  
+I'm so glad to see famous people speaking up! We can't all be as eloquent as Natalie Portman, but shine the light.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes. We all need to get *on the same page* of goodness, asserting goodness itself. Asserting that the entire society as a group (all of us, *We The People*, PLURIBUS) need a new direction. The posting title itself is great. "Amusement As Usual" with normal films and memes is drowning out "The Little Guy" voices. We do not need more pranks, jokes, bamboozle, bullshit. We need to be serious and start getting behind leaders such as Dr. Bandy X Lee on MAGA mental health. Just saying the world "cult" and joking isn't engaging serious nonfiction books on cult deprogramming.
+>
+
+
+=============
+  
+## Reddit comment o1rub9o
+
+    entry 81
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qn4nnj/edward_norton_im_sitting_here_talking_about/o1rub9o/  
+Comment ID:      o1rub9o  
+Author:          Sage_Planter  
+Bio:               
+Account Created: 2019-06-20T18:06:56Z  
+Link Karma:      14166  
+Comment Karma:   586868  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T06:15:17Z  
+Score:           1019 points  
+Post Title:      Edward Norton "I'm sitting here talking about Movies while an illegal army is being mounted against U.S. Citizens"  
+:::::: Reddit User Comment: ======  
+I appreciate him speaking up.
+
+These situations are surreal. I will never forget the chaos in Slack on Jan 6 when everyone was like "so... there's a giant mob trying to overthrow the government... are we just supposed to carry on with business as usual???"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "surreal", "business as usual"
+> 
+> *  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+>
+
+
+=============
+  
+## Reddit comment o1ruy20
+
+    entry 82
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qn4nnj/edward_norton_im_sitting_here_talking_about/o1ruy20/  
+Comment ID:      o1ruy20  
+Author:          n00bBlaster1337  
+Bio:               
+Account Created: 2025-12-23T05:25:22Z  
+Link Karma:      8  
+Comment Karma:   1301  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T06:20:10Z  
+Score:           210 points  
+Post Title:      Edward Norton "I'm sitting here talking about Movies while an illegal army is being mounted against U.S. Citizens"  
+:::::: Reddit User Comment: ======  
+Thats how I feel. I just am at home playing video games and watching youtube while this is going on. But like... wtf can I even do?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 moth Reddit account.
+> 
+> ANSWER: What We All can do on social media: quote and promote Dr. Bandy X Lee's book from October 3, 2017 and keep repeating it. There are quotes on Goodreads website. Or just this one article is a start: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 >
