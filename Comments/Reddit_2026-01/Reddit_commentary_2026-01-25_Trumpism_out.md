@@ -2309,7 +2309,766 @@ Thats how I feel. I just am at home playing video games and watching youtube whi
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-> 1 moth Reddit account.
+> 1 month Reddit account.
 > 
 > ANSWER: What We All can do on social media: quote and promote Dr. Bandy X Lee's book from October 3, 2017 and keep repeating it. There are quotes on Goodreads website. Or just this one article is a start: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+>
+
+
+=============
+  
+## Reddit comment o1qxr1v
+
+    entry 83
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_releases_a_damning_statement/o1qxr1v/  
+Comment ID:      o1qxr1v  
+Author:          ThinkPath1999  
+Bio:               
+Account Created: 2021-12-28T05:18:30Z  
+Link Karma:      294  
+Comment Karma:   112989  
+Comment Age:     8 hours ago  
+Timestamp:       2026-01-26T02:49:07Z  
+Score:           1908 points  
+Post Title:      President Clinton Releases a Damning Statement  
+:::::: Reddit User Comment: ======  
+If you go on the /Conservative sub, it is batshit crazy to see the fucking cuckoo\-for\-cocoa\-puffs lunatics in there defend what ICE is doing.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 'batshit crazy" via Reddit. "lunatics". top-voted popular comment.
+>
+
+
+=============
+  
+## Reddit comment o1rwl87
+
+    entry 84
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_releases_a_damning_statement/o1rwl87/  
+Comment ID:      o1rwl87  
+Author:          UpperApe  
+Bio:               
+Account Created: 2023-12-11T00:13:54Z  
+Link Karma:      16494  
+Comment Karma:   523962  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T06:32:56Z  
+Score:           16 points  
+Post Title:      President Clinton Releases a Damning Statement  
+:::::: Reddit User Comment: ======  
+Sure. But various political and media figures have been saying this for *years*. 
+
+The problem is the public they're saying it to just...says it back to them. Everyone in the world is waiting for the American public to act, but the American public just want to be messengers. Everybody wants to pass the buck, nobody wants to act.
+
+And that is the sad, sorry tale of the "land of the free and the home of the brave".
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "the problem is the pubic"
+> 
+> Repeating. What We All can do on social media: quote and promote Dr. Bandy X Lee's book from October 3, 2017 and keep repeating it. There are quotes on Goodreads website. Or just this one article is a start: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+>
+
+
+=============
+  
+## Reddit comment o1rsqk8
+
+    entry 85
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_releases_a_damning_statement/o1rsqk8/  
+Comment ID:      o1rsqk8  
+Author:          rhodesleadnowhere  
+Bio:               
+Account Created: 2020-08-21T19:54:07Z  
+Link Karma:      308631  
+Comment Karma:   68695  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T06:03:11Z  
+Score:           8 points  
+Post Title:      President Clinton Releases a Damning Statement  
+:::::: Reddit User Comment: ======  
+Feels almost surreal
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "surreal"
+>
+
+
+=============
+  
+## Reddit comment o1r0wcj
+
+    entry 86
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_releases_a_damning_statement/o1r0wcj/  
+Comment ID:      o1r0wcj  
+Author:          ElderberryExciting92  
+Bio:               
+Account Created: 2021-11-16T07:49:07Z  
+Link Karma:      115  
+Comment Karma:   6330  
+Comment Age:     8 hours ago  
+Timestamp:       2026-01-26T03:05:19Z  
+Score:           97 points  
+Post Title:      President Clinton Releases a Damning Statement  
+:::::: Reddit User Comment: ======  
+Oh. Another letter. 👍
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Another Reddit user drowning out important letters with banal commenting.
+>
+
+
+=============
+  
+## Reddit comment o1s1vvt
+
+    entry 87
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qn2yt6/president_clinton_releases_a_damning_statement/o1s1vvt/  
+Comment ID:      o1s1vvt  
+Author:          alextbrown4  
+Bio:               
+Account Created: 2014-04-28T01:19:10Z  
+Link Karma:      14679  
+Comment Karma:   74625  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T07:15:31Z  
+Score:           6 points  
+Post Title:      President Clinton Releases a Damning Statement  
+:::::: Reddit User Comment: ======  
+I would have given anything for him to have added a “PS: I am that Bubba” at the end there
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> MAGA fandom, Trump fandom. Audience who will give anything for more entertainment and amusement content. Exactly why Reality TV super-star of "The Apprentice" television show is leading a nation of addicts to trash media. Anything and everything to avoid the nonfiction section of the public library ad fight back against the Russian information warfare. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o1sleuf
+
+    entry 88
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qnbxpu/billie_eilish_hey_my_fellow_celebrities_u_gonna/o1sleuf/  
+Comment ID:      o1sleuf  
+Author:          Intelligent_Way7592  
+Bio:               
+Account Created: 2025-02-10T18:52:21Z  
+Link Karma:      90  
+Comment Karma:   7885  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T10:10:09Z  
+Score:           417 points  
+Post Title:      Billie Eilish: “hey my fellow celebrities u gonna speak up? or”  
+:::::: Reddit User Comment: ======  
+Taylor, Beyonce, and Sabrina stand for nothing other than their bank balance. Has Miley Cyrus said anything? She seems to be outspoken
+
+
+
+
+=============
+  
+## Reddit comment o1skzo4
+
+    entry 89
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qnbxpu/billie_eilish_hey_my_fellow_celebrities_u_gonna/o1skzo4/  
+Comment ID:      o1skzo4  
+Author:          neoncolour  
+Bio:               
+Account Created: 2017-05-25T17:38:03Z  
+Link Karma:      1939  
+Comment Karma:   26851  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T10:06:21Z  
+Score:           167 points  
+Post Title:      Billie Eilish: “hey my fellow celebrities u gonna speak up? or”  
+:::::: Reddit User Comment: ======  
+She’s also shared posts since at least Renee Good’s murder and called ICE terrorists, and used her speech at the MLK foundation yo highlight the absurdity of her receiving awards when “neighbours are being kidnapped and peaceful protesters being assaulted and murdered” and more.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> * **“The artist, the enema of society, points out things that many people would prefer not to notice.”** - from the LP recording of “The Medium is the Massage” by Marshall McLuhan, released by Columbia Records in March 1967, conceived and co-ordinated by Jerome Agel, and produced by John Simon. https://www.themediumisthemassage.com/the-record/
+>
+
+
+=============
+  
+## Reddit comment o1sh594
+
+    entry 90
+
+Comment URL: https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sh594/  
+Comment ID:      o1sh594  
+Author:          Omega0831  
+Bio:               
+Account Created: 2024-11-09T13:32:01Z  
+Link Karma:      4  
+Comment Karma:   1517  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T09:30:55Z  
+Score:           None  
+Post Title:      This is where we are  
+:::::: Reddit User Comment: ======  
+yeah my europeon ass is also like this. I think most of the world just wants your dictator in training occupied with his own country.
+
+
+
+
+=============
+  
+## Reddit comment o1sgrek
+
+    entry 91
+
+Comment URL: https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sgrek/  
+Comment ID:      o1sgrek  
+Author:          standarsh1965  
+Bio:             Standarsh :   
+Account Created: 2025-07-19T13:49:19Z  
+Link Karma:      3797  
+Comment Karma:   17817  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T09:27:18Z  
+Score:           None  
+Post Title:      This is where we are  
+:::::: Reddit User Comment: ======  
+Nah, we're real people from all over the world, we Wana see y'all mess each other up
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1sfgex
+
+    entry 92
+
+Comment URL: https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sfgex/  
+Comment ID:      o1sfgex  
+Author:          Sunfurian_Zm  
+Bio:             Sunfur :   
+Account Created: 2020-10-18T16:51:31Z  
+Link Karma:      4257  
+Comment Karma:   22063  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T09:15:07Z  
+Score:           39 points  
+Post Title:      This is where we are  
+:::::: Reddit User Comment: ======  
+Is this the American way of coping? I know they can't stand that they aren't anyones favourite country anymore, but I can assure you that not everyone who tells you to do something about that orange is a Chinese or Russian bot.
+
+
+
+
+=============
+  
+## Reddit comment o1skiac
+
+    entry 93
+
+Comment URL: https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1skiac/  
+Comment ID:      o1skiac  
+Author:          Connect-Initiative64  
+Bio:               
+Account Created: 2020-06-27T17:52:46Z  
+Link Karma:      21  
+Comment Karma:   40905  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T10:01:58Z  
+Score:           None  
+Post Title:      This is where we are  
+:::::: Reddit User Comment: ======  
+I usually follow the mindset of "Blocking is for pussies."
+
+I have followed that mindset my entire life. Reddit, facebook, every social media I have ever used, games, whatever.
+
+Reddit, unironically, has so many bots, trolls, bad actors, political\-based accounts that I have had to start blocking people on this site. I have blocked like... 100 people in the last week. 
+
+Check account, 11 years old, 60 'contributions', all in the last week and in political shit? Bot or troll, block. 
+
+Check account, 1 week old, immediately bringing up politics out of nowhere, or insulting people for no reason, blocked.
+
+Check account, 3 month old account 3000 contributions, all politics, hostile and abrasive even to those they are agreeing with, blocked.
+
+It's a fucking nightmare.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit and insincere content. "fucking nightmare"
+>
+
+
+=============
+  
+## Reddit comment o1srpjy
+
+    entry 94
+
+Comment URL: https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1srpjy/  
+Comment ID:      o1srpjy  
+Author:          LieverRoodDanRechts  
+Bio:               
+Account Created: 2022-07-18T05:38:36Z  
+Link Karma:      1151  
+Comment Karma:   140970  
+Comment Age:     25 minutes ago  
+Timestamp:       2026-01-26T11:05:22Z  
+Score:           None  
+Post Title:      This is where we are  
+:::::: Reddit User Comment: ======  
+The white house has its own troll farm.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes. Meme addict society (Reddit audience) has flocked to every antics move Putin and Trump have offered. Traditional leaders are boring to people who seek stimulation. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o1sk7h8
+
+    entry 95
+
+Comment URL: https://old.reddit.com/r/meme/comments/1qn9vam/this_is_where_we_are/o1sk7h8/  
+Comment ID:      o1sk7h8  
+Author:          Shinyhero30  
+Bio:             ShinyHero  : Has you really been far even as decided to use even go want to look more like?
+
+“Above the churning waters we stand strong and unified” 
+Steam is not a monopoly.  
+Account Created: 2020-10-20T01:39:57Z  
+Link Karma:      2368  
+Comment Karma:   61462  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T09:59:12Z  
+Score:           None  
+Post Title:      This is where we are  
+:::::: Reddit User Comment: ======  
+
+> the USA collapse
+
+the US\* collapses\* 
+
+Not a single native will make this mistake, it’s simple agreement. You could Google this.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1171" height="1238" alt="image" src="https://github.com/user-attachments/assets/82a0d7fe-279e-4bab-ade4-14fd490ad547" />
+> 
+> MAGA USA. MAGA values. Trump USA. Trump values. ICE fandom on Reddit. Stop immigrants on the public Internet streets and insult and mock them "Speak American", write like Fox News audience. Anti-diversity, attack outsiders.
+> 
+> * "Do You Speak Fox? The Atlantic. September 16, 2020 — Fox, for many of its fans, is an identity shaped by an ever-expanding lexicon: mob, PC police, Russiagate, deep state, MSM, MS-13, socialist agenda, Dems, libs..." https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+>
+
+
+=============
+  
+## Reddit comment o1qxfi5
+
+    entry 96
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qn3s00/trump_supporters_now_if_you_can_justify_his/o1qxfi5/  
+Comment ID:      o1qxfi5  
+Author:          Murderface__  
+Bio:             Dr. Murderface Murderface Murderface : Whoa-oh, what I want to know is are you kind?  
+Account Created: 2015-11-17T15:44:54Z  
+Link Karma:      1938  
+Comment Karma:   205634  
+Comment Age:     8 hours ago  
+Timestamp:       2026-01-26T02:47:30Z  
+Score:           2601 points  
+Post Title:      Trump supporters now: "If you can justify his murder, you'll justify mine", "wrong and inhumane", "I'm beyond sad", "this will be the end of Republicans", "the country I believed in is dead", "I hope protests and boycotts continue".  
+:::::: Reddit User Comment: ======  
+"if you can justify his murder, you can justify mine" should be a refrain.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Justify hate for ANY person on a planet of over 8 billion people.
+> 
+> * February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+> 
+> * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+>
+
+
+=============
+  
+## Reddit comment o1qxfz9
+
+    entry 97
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qn3s00/trump_supporters_now_if_you_can_justify_his/o1qxfz9/  
+Comment ID:      o1qxfz9  
+Author:          Winter_Bid7630  
+Bio:               
+Account Created: 2025-01-26T00:21:20Z  
+Link Karma:      1019  
+Comment Karma:   59412  
+Comment Age:     8 hours ago  
+Timestamp:       2026-01-26T02:47:34Z  
+Score:           2435 points  
+Post Title:      Trump supporters now: "If you can justify his murder, you'll justify mine", "wrong and inhumane", "I'm beyond sad", "this will be the end of Republicans", "the country I believed in is dead", "I hope protests and boycotts continue".  
+:::::: Reddit User Comment: ======  
+Wow. So all it took was a white man being killed because he was legally carrying a gun. Clearly, their worst nightmare. Not all the other absolutely horrific and inhumane things Trump has done. They didn't care until they could imagine it happening to them. What is wrong with these people?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> What is wrong with 'these" people? We The People. What changed... ANSWER: The Internet. Reddit. Trump's popularity can be tied directly to the Internet: Twitter. Logic-think. Machine dehumanization mindsets. Trump represents SYSTEMS, processes, Corporate America, Fiction Public Relations. Meme-think shallowness, superficial. Being so shallow that you want to deport people because they speak differently, dress differently, eat food differently, have sex with consenting adults differently, etc. Wanting to build organizations and gated communities / block people / burn books / burn magazines / burn content because of egoism.
+> 
+> * Fiction 1940 that people should be repeating about WHY, Twitter Reddit machines. "men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle, use you as cannon fodder. Don’t give yourselves to these unnatural men - machine men with machine minds and machine hearts! **You are not machines!** You are not cattle! You are men! You have the love of humanity in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+>
+
+
+=============
+  
+## Reddit comment o1rp4s9
+
+    entry 98
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qn5nn0/the_right_to_bear_arms_and_point_them_at_federal/o1rp4s9/  
+Comment ID:      o1rp4s9  
+Author:          smandroid  
+Bio:             Reddit!  : REDDIT!   
+Account Created: 2015-09-23T00:27:00Z  
+Link Karma:      35512  
+Comment Karma:   90030  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-26T05:36:43Z  
+Score:           None  
+Post Title:      The right to bear arms and point them at federal agents without consequence (Nevada 2014)  
+:::::: Reddit User Comment: ======  
+It's going to really kick off when someone fires back at ICE. It's a powderkeg and someone out there is probably very close to the edge with frustration.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Mental health professionals of the entire world should be using the world wide web (WWW) to promote Dr. Bandy X Lee's leadership. Her book since October 3, 2017 should be quoted and lessons given over and over and over repeating and keep repeating.
+>
+
+
+=============
+  
+## Reddit comment o1sil1w
+
+    entry 99
+
+Comment URL: https://old.reddit.com/r/marvelcirclejerk/comments/1qnbgzp/i_was_just_permanently_banned_from_the_punisher/o1sil1w/  
+Comment ID:      o1sil1w  
+Author:          GuyWithNoCountry  
+Bio:               
+Account Created: 2017-12-04T00:57:31Z  
+Link Karma:      1832  
+Comment Karma:   6158  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T09:44:13Z  
+Score:           271 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Posted it again lmaooo
+
+Update: got banned for calling them pedophile defenders.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Digital book burning, magazine burning, in 1937 Germany they didn't have block and ban buttons, they had to use flame and paper.
+>
+
+
+=============
+  
+## Reddit comment o1sjdvv
+
+    entry 100
+
+Comment URL: https://old.reddit.com/r/marvelcirclejerk/comments/1qnbgzp/i_was_just_permanently_banned_from_the_punisher/o1sjdvv/  
+Comment ID:      o1sjdvv  
+Author:          Wrench-6942  
+Bio:             Wrench :   
+Account Created: 2024-09-10T07:31:12Z  
+Link Karma:      2962  
+Comment Karma:   14726  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T09:51:41Z  
+Score:           128 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Well you have a history of posting edited comic panels where you insert an israel flag.
+
+You made multiple posts on Punisher sub, marvelcirclejerk, dccomicscirclejerk and god knows how many other places. You post this panel with an edited israel flag behind Punisher on The Wall. Trying to imply that the Pedophiles Frank kills in this scene were Israeli.
+
+[\<image\>](https://preview.redd.it/6ivup4oi1ofg1.jpeg?width=742&format=pjpg&auto=webp&s=bd0a7e2a7f19a22173ceb41bd3356aa89b16b5c4)
+
+I'm not against Israel hate but altering comic panels to fit your agenda is stupid.
+
+I'm not surprised you got banned. The ICE fan art was already posted on the subreddit before you posted it.
+
+I guess low effort Reposts was the last straw.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> A lot of these issues could be solved by having a tier system of undesired logged to another link like a second subreddit URL / community. And explain and document WHY certain material is not wanted for sake of organisation or repetition. Hiding the problems, brushing them under the rug, is what secret police do. Disappear undesired / undesirables.
+> 
+> Who is teaching morality? Who is teaching why goodness actually matters... more than entertaining comic images. Attractive art vs. standing up for inclusive equality and diversity.
+>
+
+
+=============
+  
+## Reddit comment o1stz1a
+
+    entry 101
+
+Comment URL: https://old.reddit.com/r/science/comments/1qnd1qk/the_tendency_to_feel_like_a_perpetual_victim_is/o1stz1a/  
+Comment ID:      o1stz1a  
+Author:          Not_Propaganda_AI  
+Bio:               
+Account Created: 2025-12-14T16:49:04Z  
+Link Karma:      1  
+Comment Karma:   4344  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T11:24:23Z  
+Score:           627 points  
+Post Title:      The tendency to feel like a perpetual victim is strongly tied to vulnerable narcissism. Individuals who frequently perceive themselves as victims and signal this status to others often possess high levels of vulnerable narcissism and emotional instability.  
+:::::: Reddit User Comment: ======  
+I feel like this issue is difficult to talk about because it's such a minefield of people who were genuine victims and were either accused of being abusers or accused of making it up. 
+
+Just like there are abusers who accuse victims of making it up, there are people, often abusers themselves that will lie about being victims. The problem with many of these allegations is they're not provable in either direction making it impossible to tell the victim apart from the abuser.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> I see an entire nation that is victim of Rupert Murdoch and Rush Limbaugh media systems. Even if you avoid them directly, the "second hand smoke" of other people. People who believe Fox News fiction is reality. I've lived in 4 Islamic nations and studied Malala's writings and speeches repeat times. And people are victims of bamboozle on massive scales by very gifted and talented clergy storytelling and presentation.
+> 
+> * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 241
+>
+
+
+=============
+  
+## Reddit comment o1teeqi
+
+    entry 102
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qng5e7/ice_shooting_victim_alex_pretti_was_honored_by/o1teeqi/  
+Comment ID:      o1teeqi  
+Author:          russcastella  
+Bio:             Russ Castella :   
+Account Created: 2014-12-07T05:09:56Z  
+Link Karma:      13387  
+Comment Karma:   105953  
+Comment Age:     35 minutes ago  
+Timestamp:       2026-01-26T13:42:15Z  
+Score:           270 points  
+Post Title:      ICE Shooting Victim Alex Pretti was Honored by Veteran's Hospital Co-Workers.  
+:::::: Reddit User Comment: ======  
+The fucking irony of RT covering this vs our media.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Russia today, Reality Today, people stopped caring about media warfare before it even started. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o1sn470
+
+    entry 103
+
+Comment URL: https://old.reddit.com/r/ChatGPT/comments/1qnbhrm/why_i_canceled_my_chatgpt_subscription_and_you/o1sn470/  
+Comment ID:      o1sn470  
+Author:          studmaster896  
+Bio:             Endofabyss :   
+Account Created: 2019-07-30T09:08:37Z  
+Link Karma:      53  
+Comment Karma:   25654  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T10:25:19Z  
+Score:           89 points  
+Post Title:      Why I canceled my ChatGPT subscription and you should, too: their COO gave $25M to MAGA, Inc. in September 2025  
+:::::: Reddit User Comment: ======  
+Do you guys realize all these tech guys gave Trump some money during his second term? Go look back at who showed up to the inauguration. If you are going to protest here by deleting ChatGPT, you have to take out the rest of the technology in your life as well.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We The People remarked how Fox News HDTV audience behaved in self-harm ways. And when Jen Senko's year 2015 / 2016 film came around we gave it little support and attention. "The Little Gal" stood up to Rupert Murdoch and other media manipulation. And we didn't use education and teaching with nonfiction.
+>
+
+
+=============
+  
+## Reddit comment o1tb936
+
+    entry 104
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qnfev5/us_celebrities_sharing_solidarity_with_us/o1tb936/  
+Comment ID:      o1tb936  
+Author:          Cicerothesage  
+Bio:               
+Account Created: 2021-01-05T17:14:57Z  
+Link Karma:      915139  
+Comment Karma:   321679  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T13:24:41Z  
+Score:           548 points  
+Post Title:      US celebrities sharing solidarity with US citizens unalived by US govt agents are being called the puppets.  
+:::::: Reddit User Comment: ======  
+and a puppet to the Trump Administration. His future, fortune and fame is shackled to Trump. Musk is desperate to help Trump in 2026/2028 because that means his money pipeline will dry up and he will probably be investigated
+
+sounds like a puppet to me
+
+
+
+
+=============
+  
+## Reddit comment o1tky38
+
+    entry 105
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qnh6en/billie_eilish_hey_my_fellow_celebrities_u_gonna/o1tky38/  
+Comment ID:      o1tky38  
+Author:          TheMirrorUS  
+Bio:             TheMirror.com : The Mirror is one of the oldest and most trusted news brands in the UK and we have now launched in the USA. We'll be sharing the latest US and global news, sports, entertainment and more!  
+Account Created: 2024-05-20T19:54:47Z  
+Link Karma:      2837708  
+Comment Karma:   140594  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T14:16:19Z  
+Score:           701 points  
+Post Title:      Billie Eilish: "Hey my fellow celebrities u gonna speak up? Or..."  
+:::::: Reddit User Comment: ======  
+[The 24\-year\-old](https://www.themirror.com/all-about/billie-eilish)has used her public platform to speak about billionaires, Palestine, and, more recently, the actions of ICE in Minnesota.
+
+
+
+
+=============
+  
+## Reddit comment o1tmysy
+
+    entry 106
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qnh6en/billie_eilish_hey_my_fellow_celebrities_u_gonna/o1tmysy/  
+Comment ID:      o1tmysy  
+Author:          thisnameisnowmine  
+Bio:               
+Account Created: 2014-11-11T05:49:00Z  
+Link Karma:      583  
+Comment Karma:   6331  
+Comment Age:     56 minutes ago  
+Timestamp:       2026-01-26T14:26:35Z  
+Score:           100 points  
+Post Title:      Billie Eilish: "Hey my fellow celebrities u gonna speak up? Or..."  
+:::::: Reddit User Comment: ======  
+I'm honestly sick of celebrities. And I'm sick of Americans caring about every little thing they say or do. They are people, that's it. They are not better or more important then you. Smarter than you. Or better people than you. These people sit in their mansions, protected from the world. They know nothing about the real world. These posts are so self serving, feeding only their ego, vs affecting real change. They live in a world where the people they associate with, are the people who, responsible for this. I don't see Billie Eilish standing on the front lines in Minnesota. I see Renee Good. I see Alex Pretti. The people who make this country work and who always have are working class people. Real Americans. Not celebrities. They are takers.
+
+
+
+
+=============
+  
+## Reddit comment o1tqh3l
+
+    entry 107
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qnh6en/billie_eilish_hey_my_fellow_celebrities_u_gonna/o1tqh3l/  
+Comment ID:      o1tqh3l  
+Author:          tangledDream  
+Bio:               
+Account Created: 2024-03-01T14:05:34Z  
+Link Karma:      2893  
+Comment Karma:   11755  
+Comment Age:     42 minutes ago  
+Timestamp:       2026-01-26T14:44:15Z  
+Score:           4 points  
+Post Title:      Billie Eilish: "Hey my fellow celebrities u gonna speak up? Or..."  
+:::::: Reddit User Comment: ======  
+1. This is textbook virtue signalling down to the exact definition
+2. No one should be relying on celebrities to help form an opinion. In fact, if you even care what a celebrity's opinion is on something unrelated to their craft, you are very far gone.
+
+
+
+
+=============
+  
+## Reddit comment o1tkerd
+
+    entry 108
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1qngihl/was_a_little_wokeness_really_that_bad/o1tkerd/  
+Comment ID:      o1tkerd  
+Author:          Cloaked_Crow  
+Bio:               
+Account Created: 2019-06-14T23:53:02Z  
+Link Karma:      1115  
+Comment Karma:   12747  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T14:13:36Z  
+Score:           90 points  
+Post Title:      Was a little wokeness really that bad?  
+:::::: Reddit User Comment: ======  
+This is what I don’t get… the “right” likes to ask the question “do you want a man going into the bathroom with your daughter? What if they attack her?” If that happened my anger would be at sexual predators, not trans\-people. It’s crazy to me that the “right” has a higher tolerance for sexual predators than trans\-people just trying to live their lives. They knowingly elected one to be president.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1155" height="911" alt="image" src="https://github.com/user-attachments/assets/89c55284-5563-4ff9-aeb7-90535d4af60b" />
+> 
+> People elected President Donald Trump because free thinking is rare. There is so much mental programming from toxic religion clergy and billionaires. People on Reddit do not take seriously why the richest man in the world purchased Twitter. People on Reddit do not take seriously learning from Marshall McLuhan and Neil Postman. People on Reddit do not take seriously what Putin and Surkov have done with media systems and the Internet Research Agency. People don't take Jen Senko seriously, https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad people don't take Rupert Murdoch problem seriously. People don't take Facebook fandom seriously. People don't even fucking take Mecca global media empire seriously. There is no history teaching on media ecology or self-awareness of fiction running nations and science fiction addiction behaviors.
+> 
+> Trump was elected and has a massive USA following because Trump tells fiction storytelling. Truth Social is a fiction media empire. Twitter, Elon Musk, is a fiction storytelling media empire. Mecca, Saudi Arabia's world leadership of Muslims - is a fiction media empire. Disney / Netflix / HBO - are all fiction media empires. Reddit is a fiction addict club.
+> 
+> * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+> 
+> * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+> 
+> MAGA is a product of fiction storytelling by Cambridge Analytica and Russia's Internet Research Agency https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md and all the computer tech companies have jumped on the bandwagon of fiction storytelling. Humans have favored fiction for so long, people have taken it for granted. An anti-education, anti-adult learning, anti-women education, anti-Malala, anti-Wikipedia, anti-FAQ. A society that profits from constant low-effort commenting and rectangle sports games. Predictable rectangle square thinking.
+> 
+> The truly serious problems aren't rectangle sports games. The real problems of "love one another" and marriages, and parenting, don't fit into a video game logic of machines.
+> 
+> * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to **solve the truly serious problems that face us** and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+> 
+> Elon Musk Twitter is a nation of suckers, Truth Social couldn't be more fucking in your face that the Internet Research Agency has mind-fucked all you fucking *suckers*. Reddit eats it up, no-identity anti-FAQ anti-nonfiction anti-Wiki culture of turning all information into causal non-serious conversations.
+> 
+> &nbsp;
+> 
+> * “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+> 
+> &nbsp;
+> 
+> Beavis and Butthead. Reddit audience is the very people who **turned the USA into "South Park" to watch on Reddit**. Because Reddit audience can't face your addition to fiction storytelling any more than Mecca Mohammad { Quran Bible Torah, Book of Mormon } science fictions fandom can face their South Park show. A nation of suckers! Donald Trump is an actor, Trump is acting, they are all acting to variations of SNL Tony Clifton character / NYC SNL of Trump's hone town comedy empire where so many comedian like Donald Trump became world famous. Trump is a god damn performance artist! Bamboozled every one of you playing Tony Clifton character. https://www.youtube.com/watch?v=JKTR8Yj5hg4 NYC SNL performer. AGAIN: Trump is an actor from NYC who plays POTUS Tony Clifton. Reddit *eats it up*. Surkov won.
+> 
+> Surkov won. Putin won. Russia won. NATO lost, look around at NATO in January 2026 and wake the fuck up to what Carl Sagan wrote in year 1995. Nation of suckers to Putin and Trump! They met in Alaska last summer, for fuck's sake. Re-read and KEEP re-reading the quotes from Carl Sagan!
+> 
+> *  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
 >
