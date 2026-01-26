@@ -3201,3 +3201,186 @@ Exactly what the "Don't Tread on Me" and 2nd Amendment Gun Nuts have been crying
 > :::::: Analysis_Thoughts Commentary: ======  
 > 19 year Reddit account.
 >
+
+
+=============
+  
+## Reddit comment o1u8394
+
+    entry 113
+
+Comment URL: https://old.reddit.com/r/news/comments/1qnjyuk/arizona_ag_suggests_states_selfdefense_laws_allow/o1u8394/  
+Comment ID:      o1u8394  
+Author:          AlbertaSugarFlu  
+Bio:               
+Account Created: 2025-10-09T17:24:24Z  
+Link Karma:      1  
+Comment Karma:   3712  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T16:04:14Z  
+Score:           808 points  
+Post Title:      Arizona AG suggests state's self-defense laws allow residents to shoot masked ICE agents  
+:::::: Reddit User Comment: ======  
+What’s the point of bearing arms if not to defend yourself against an immoral and corrupt government. Exactly why it’s in the constitution.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The crisis is art and meaningful literacy. People do not grasp how to read Fox News HDTV as mythological fiction storytelling. The entire reason the Founding Fathers, Free Masons, created the Great Seal of the United States of America was to teach monomyth literacy. Symbolism literacy. People can not read the Second Amendment to The Constitutions any more because we failed to educate and teach how to read year 1776 language and metaphors.
+> 
+> * "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://YouTu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller (immigrant to USA), year 1987 ===:::
+>
+
+
+=============
+  
+## Reddit comment o1uhb10
+
+    entry 114
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1uhb10/  
+Comment ID:      o1uhb10  
+Author:          OriginalSchmidt1  
+Bio:               
+Account Created: 2024-12-19T14:45:13Z  
+Link Karma:      1870  
+Comment Karma:   245698  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T16:43:38Z  
+Score:           None  
+Post Title:      Selena Gomez made a video calling out ICE a year ago, and everyone laughed and turned it into a meme. In 2019, she also produced a Netflix documentary "Living Undocumented" showing the difficult lives of 8 illegal family immigrants with children were living under Trump's first administration.  
+:::::: Reddit User Comment: ======  
+And so many of us know exactly how she felt because we have had our loved ones laugh in our faces, tell us we are catastrophizing, tell us to stop falling for click bait, don’t be so dramatic, stop falling for conspiracy theories, and on and on and on… all the time knowing deep down within your core that you are not wrong or being dramatic and completely justified in freaking the fuck out. 
+
+And we are all very patiently waiting for the perfect opportunity to tell those people “I fucking told you so”
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "and everyone laughed and turned it into a meme" - Neil Postman was correct in year 1985. Refresh from September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ only 138 days ago!
+>
+
+
+=============
+  
+## Reddit comment o1uizbm
+
+    entry 115
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1uizbm/  
+Comment ID:      o1uizbm  
+Author:          Nyfa76  
+Bio:             Nyfa :   
+Account Created: 2025-03-02T16:55:37Z  
+Link Karma:      9248  
+Comment Karma:   66924  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T16:50:46Z  
+Score:           None  
+Post Title:      Selena Gomez made a video calling out ICE a year ago, and everyone laughed and turned it into a meme. In 2019, she also produced a Netflix documentary "Living Undocumented" showing the difficult lives of 8 illegal family immigrants with children were living under Trump's first administration.  
+:::::: Reddit User Comment: ======  
+Thank you. It was horrifying for me to see how the White House threatened and mocked her on their offficial IG page after this. She knew what was going to happen and people laughed at her.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "mocked", it is a Mock Mock Mockery. https://GitHub.com/RocketDerp/April14_2025/blob/main/Art/ScreenPlay/Faiths/Out-Mock_Total_Mockery.md Faith mocking, mocking as a faith. It's active shunning, it is aggressive shunning religion behaviors.
+> 
+> "and everyone laughed and turned it into a meme"
+>
+
+
+=============
+  
+## Reddit comment o1ub40y
+
+    entry 116
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1ub40y/  
+Comment ID:      o1ub40y  
+Author:          chadwickave  
+Bio:               
+Account Created: 2013-10-03T18:33:19Z  
+Link Karma:      10173  
+Comment Karma:   234344  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T16:17:15Z  
+Score:           None  
+Post Title:      Selena Gomez made a video calling out ICE a year ago, and everyone laughed and turned it into a meme. In 2019, she also produced a Netflix documentary "Living Undocumented" showing the difficult lives of 8 illegal family immigrants with children were living under Trump's first administration.  
+:::::: Reddit User Comment: ======  
+Let’s stop using the word “illegal” to describe human beings. They are undocumented, not illegal.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Mass dehumanization is popular; popular language has become toxic-favoring in meaning. Information warfare has taken over language. Billionaire Rupert Murdoch, billionaire Elon Musk Twitter language, billionaire Vlad Putin, etc. Surkov students. https://www.TheAtlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ "Do You Speak Fox? How Donald Trump’s favorite news source became a language. By Megan Garber. September 16, 2020"
+> 
+> Reddit posting title context assertion: "and everyone laughed and turned it into a meme"
+> 
+> Meme-washing, sane-washing via humor, jokes. That's how Russia won the information warfare since March 2013. Turning all serious topics into joke humor comedy via Reddit commenting section / Trump fandom of "LOLcow milking". See: https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/
+> 
+> * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to **solve the truly serious problems that face us** and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+>
+
+
+=============
+  
+## Reddit comment nad82by
+
+    entry 117
+
+Comment URL: https://old.reddit.com/r/behindthebastards/comments/1myl480/the_lolcow_industrial_complex_is_ablist_as_fuck/nad82by/  
+Comment ID:      nad82by  
+Author:          barc0debaby  
+Bio:               
+Account Created: 2014-02-25T04:46:48Z  
+Link Karma:      148  
+Comment Karma:   577619  
+Comment Age:     5 months ago  
+Timestamp:       2025-08-24T05:22:35Z  
+Score:           71 points  
+Post Title:      The Lolcow industrial complex is Ablist as fuck. Its a modern freakshows nothing but bullying for profit. Its incredibly vile and countless online creators should be sued for harassment or minuplating a vulnerable individual to hurt themselves witch has happened countless times.  
+:::::: Reddit User Comment: ======  
+The fuck is a lolcow?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump is leading the nation of mockery, a nation of **TOTAL MOCKERY**. Mocking is the deepest faith of American population. Mock for mock, mock vs. mock. All avoiding nonfiction serious leadership by Dr. Bandy X Lee. https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+>
+
+
+=============
+  
+## Reddit comment o1ulsy2
+
+    entry 118
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1ulsy2/  
+Comment ID:      o1ulsy2  
+Author:          Isaidhowdareyou  
+Bio:             Disturbed and disturbing
+
+
+Personality like the shitstorm down in Texas
+
+Talks too much about Supernatural and Jensen Ackles
+
+Probably not dangerous  
+Account Created: 2016-08-30T17:36:28Z  
+Link Karma:      1  
+Comment Karma:   104165  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T17:02:44Z  
+Score:           None  
+Post Title:      Selena Gomez made a video calling out ICE a year ago, and everyone laughed and turned it into a meme. In 2019, she also produced a Netflix documentary "Living Undocumented" showing the difficult lives of 8 illegal family immigrants with children were living under Trump's first administration.  
+:::::: Reddit User Comment: ======  
+People always ask for celebs to speak out or else, but when they do they don't do enough or become memes👍
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "becomes memes". Meme-washing via social machine systems. Targeted keywords and topics are drowned out with insulting and mocking, following Putin and Trump leadership of mockery.
+> 
+> * 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
+>
