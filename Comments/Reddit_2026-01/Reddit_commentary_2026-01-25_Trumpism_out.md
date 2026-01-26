@@ -2083,3 +2083,109 @@ Post Title:      He is basically saying if we call ICE names, there will be 'con
 Man after Noem's presser I thought they were maybe moderating their language a little bit but then they keep sending this ugly troglodyte out there and inflaming the anger and hatred Americans feel towards these people even more. Guess they don't sense which way the winds are shifting. Or they do and they have decided to dig in. Won't end well for them.
 
 
+
+
+=============
+  
+## Reddit comment o1ocheu
+
+    entry 75
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qmssog/mtg_defends_protester_shot_by_dhs_and_says_people/o1ocheu/  
+Comment ID:      o1ocheu  
+Author:          Informal_West_6864  
+Bio:               
+Account Created: 2024-10-18T18:54:22Z  
+Link Karma:      472  
+Comment Karma:   8458  
+Comment Age:     8 hours ago  
+Timestamp:       2026-01-25T19:34:14Z  
+Score:           5199 points  
+Post Title:      MTG defends protester shot by DHS and says people need to lose their ‘blinders’: ‘You are all being incited into civil war’  
+:::::: Reddit User Comment: ======  
+I will never understand the mind switch of MTG. She consistently spread some of the cruelest and most false information consistently. And now she starts to publicly speak information that is true. It just shows that most republicans 100% know they spread false information and use the power of human conformity within a group to progress those false ideas.
+
+
+
+
+=============
+  
+## Reddit comment o1p5xkh
+
+    entry 76
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qmssog/mtg_defends_protester_shot_by_dhs_and_says_people/o1p5xkh/  
+Comment ID:      o1p5xkh  
+Author:          CulturalKing5623  
+Bio:               
+Account Created: 2022-12-19T20:09:17Z  
+Link Karma:      33  
+Comment Karma:   14947  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-25T21:43:02Z  
+Score:           None  
+Post Title:      MTG defends protester shot by DHS and says people need to lose their ‘blinders’: ‘You are all being incited into civil war’  
+:::::: Reddit User Comment: ======  
+It's this thing with MAGA, in order to say something true they have to couch it in one of their many lies. The lies are their in\-group language and it's the only way to get any sort of rational thought through the noise. You see it all the time on their sub, it might literally be the best we can hope for from them so I'm not begrudging it.
+
+
+
+
+=============
+  
+## Reddit comment o1pi63o
+
+    entry 77
+
+Comment URL: https://old.reddit.com/r/Leakednews/comments/1qmxfxc/breaking_71_of_americans_believe_the_united/o1pi63o/  
+Comment ID:      o1pi63o  
+Author:          NotADogInHumanSuit  
+Bio:               
+Account Created: 2023-02-18T18:55:06Z  
+Link Karma:      1  
+Comment Karma:   32776  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-25T22:37:17Z  
+Score:           63 points  
+Post Title:      🚨🇺🇸BREAKING: 71% of Americans believe the United States is out of control under President Trump  
+:::::: Reddit User Comment: ======  
+I’m sad to say that I know a few of those 29 percent, and it’s disgusting that I am finally realizing how sick and brainwashed they are
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "brainwashed"
+>
+
+
+=============
+  
+## Reddit comment o1s31u7
+
+    entry 78
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qn8nkh/ice_agents_are_firing_kinetic_impact_projectiles/o1s31u7/  
+Comment ID:      o1s31u7  
+Author:          Ok_Sorbet_8208  
+Bio:               
+Account Created: 2024-05-21T02:56:06Z  
+Link Karma:      104  
+Comment Karma:   159  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T07:25:25Z  
+Score:           132 points  
+Post Title:      ICE agents are firing kinetic impact projectiles at close range, causing severe injuries that can result in permanent disability or death. Today, they tore off part of a woman’s hand  
+:::::: Reddit User Comment: ======  
+Never has there been a time in US history where there were so many outrage\-level atrocities occurring in such close proximity that the Internet couldn’t keep up with them. This is a perfect example. first time seeing this. What the absolute fuck? They’ll hit another new low tomorrow I’m sure though before we can digest this one.
+
+The shooting of Renee Good feels like it could have been 6 months ago. Not because her death doesn’t matter, but because there is so much cruelty and depravity at the hands of this regime that there isn’t enough time between events to fully grasp it
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> So many people have no sense that in year 1890 the USA didn't have mobile telephones and ambulance service. The Native Americans / First Peoples had endured loss of lifestyle and death by disease and technology they had never witnessed or imagined. And the invaders never stopped taking more and more and claimed a magical God that was dominating the whole world.
+> 
+> What is mostly new is the organized information systems. So many "knowledge workers" who have learned from experiments on the public: advertising, marketing, commercial graphics, public relations. Emotionally, Reddit is a constant testing of how to get crowds to chase an image or a pattern of words. Machines run day and night measuring and counting upvotes and popularity with human minds.
+> 
+> * “Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind. To get inside in order to manipulate, exploit, control is the object now. And to generate heat, not light, is the intention. To keep everybody in the helpless state engendered by prolonged mental rutting is the effect of many ads and much entertainment alike." ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. Year 1951. https://McLuhan.substack.com/p/the-case-of-the-mail-order-bride Preface  / opening pages of the book. [Google books](https://www.google.com/books/edition/The_Mechanical_Bride/PqC4AAAAIAAJ?hl=en&gbpv=1&bsq=%22many+thousands+of+the+best-trained+individual+minds+have+made+it+a+full-time+business+to+get+inside+the+collective+public+mind.+To+get+inside%22&dq=%22many+thousands+of+the+best-trained+individual+minds+have+made+it+a+full-time+business+to+get+inside+the+collective+public+mind.+To+get+inside%22&printsec=frontcover)
+>
