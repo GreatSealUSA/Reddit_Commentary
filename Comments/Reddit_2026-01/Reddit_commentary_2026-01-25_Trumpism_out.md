@@ -3668,7 +3668,130 @@ I do not promote or condone political violence, but I do think it's a good idea 
 > :::::: Analysis_Thoughts Commentary: ======  
 > People are changed by terrorism. I lived and participated in an Islamic revolution in Africa and Middle East. I have intimately experienced terrorism mindsets. Fear and terror organized by a society.
 > 
-> People need to be standing up and fighting for Dr. Bandy X Lee's leadership. We need to RIGHT NOW be taking on the cult of Fox News HDTV an Elon Musk Twitter message cult. Serious nonfiction needs to be promoted and actively commented on social systems.
+> People need to be standing up and fighting for Dr. Bandy X Lee's leadership. We need to RIGHT NOW be taking on the cult of Fox News HDTV and Elon Musk's Twitter messaging system cult. Serious nonfiction needs to be promoted and actively commented on social systems.
 > 
 > * "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter provide immediate access to news as well as to comments from other readers with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites much more often** than they previously did, and the amount of **news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming**. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them a false sense of control and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning, page ??.
+>
+
+
+=============
+  
+## Reddit comment o1voafv
+
+    entry 129
+
+Comment URL: https://old.reddit.com/r/books/comments/1qnqgy7/minneapolis_bookstore_owner_greg_ketter_emerges/o1voafv/  
+Comment ID:      o1voafv  
+Author:          pfamsd00  
+Bio:               
+Account Created: 2018-12-30T02:50:41Z  
+Link Karma:      1009  
+Comment Karma:   61040  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T19:47:12Z  
+Score:           1819 points  
+Post Title:      Minneapolis bookstore owner Greg Ketter emerges as a symbol of protest against ICE actions  
+:::::: Reddit User Comment: ======  
+Bookstores are the bastion of all that I consider good in the world. Little shoutout to Sundog Books in Seaside, FL for all they do to combat fascism in DeSantistan.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Media ecology.
+>
+
+
+=============
+  
+## Reddit comment o1vonul
+
+    entry 130
+
+Comment URL: https://old.reddit.com/r/books/comments/1qnqgy7/minneapolis_bookstore_owner_greg_ketter_emerges/o1vonul/  
+Comment ID:      o1vonul  
+Author:          Big_Lil_Cat  
+Bio:               
+Account Created: 2021-01-02T04:19:03Z  
+Link Karma:      11  
+Comment Karma:   559  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T19:48:49Z  
+Score:           403 points  
+Post Title:      Minneapolis bookstore owner Greg Ketter emerges as a symbol of protest against ICE actions  
+:::::: Reddit User Comment: ======  
+Interestingly, I just read the book, “The Sentence,” by Louise Eldrich, which is about a Native American Minneapolis bookstore worker during the events of 2020\. Highly recommended as it put into context the current climate by reminding me of how we persevered through 2020\. (Ps, fuck ice)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> book: “The Sentence,” by Louise Eldrich
+>
+
+
+=============
+  
+## Reddit comment o1wcog4
+
+    entry 131
+
+Comment URL: https://old.reddit.com/r/books/comments/1qnqgy7/minneapolis_bookstore_owner_greg_ketter_emerges/o1wcog4/  
+Comment ID:      o1wcog4  
+Author:          CanuckaChuckFuck  
+Bio:               
+Account Created: 2025-12-17T21:23:05Z  
+Link Karma:      2  
+Comment Karma:   412  
+Comment Age:     52 minutes ago  
+Timestamp:       2026-01-26T21:35:03Z  
+Score:           19 points  
+Post Title:      Minneapolis bookstore owner Greg Ketter emerges as a symbol of protest against ICE actions  
+:::::: Reddit User Comment: ======  
+
+> "I got there about an hour after the murder..."
+
+This right fucking here, call it exactly what it was, a state\-sanctioned murder. Fuck this wishy washy language coming out of politicians (Obama one of the latest) and "news" stations, there's a precise word for it and that word is murder, plain and fucking simple
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1wc2ps
+
+    entry 132
+
+Comment URL: https://old.reddit.com/r/books/comments/1qnqgy7/minneapolis_bookstore_owner_greg_ketter_emerges/o1wc2ps/  
+Comment ID:      o1wc2ps  
+Author:          krazyken04  
+Bio:               
+Account Created: 2010-02-10T02:53:49Z  
+Link Karma:      842  
+Comment Karma:   3963  
+Comment Age:     55 minutes ago  
+Timestamp:       2026-01-26T21:32:19Z  
+Score:           15 points  
+Post Title:      Minneapolis bookstore owner Greg Ketter emerges as a symbol of protest against ICE actions  
+:::::: Reddit User Comment: ======  
+I'm so in love with this guy and what he's doing. I also love they're reporting on this. **Fuck ICE.**
+
+But holy fuck, the grammar. 
+
+They screwed up his ***name*** after using it to end the previous sentence in the opening of the next sentence. 
+
+And this was all in the first paragraphs of the article.
+
+Great article, I'm sure I'll be downvoted, but I just hate how I had to turn my brain off over and over to get through it. It makes it so amateur.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Tower of Babel, James Joyce concerns.
+> 
+> How people can get so programmed to be so deeply anti-diverse in listening (reading) to other people's best efforts at languages. Always demanding all text have professional editors and corrected before important matters are discussed. This is why billionaires have invested so much in Large language Models (LLM) - to write plebs / everyday people English for those who look-down upon others whose brain isn't gifted with excellent skill and talent. The syntax and style is the message, Marshall McLuhan, This is what Kremlin and White House have exploited and damaged in the minds. A machine-like easily derailed mindset patterns.
+> 
+> * "Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why." - James Joyce. Letter to Fanny Guillermet (Zurich, 5 September 1918)
 >
