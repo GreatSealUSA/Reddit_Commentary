@@ -1649,3 +1649,107 @@ Commercial media has issues, too — especially now that they are now all megaco
 > 
 > * Published more than a decade ago: “Today, reports of the day’s events are conveyed to the viewing public by way of **alternate universes**, The Fox News cable channel conveys its **version of reality**, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
 >
+
+
+=============
+  
+## Reddit comment o1oghm6
+
+    entry 57
+
+Comment URL: https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peaceful_shows_up_at_a/o1oghm6/  
+Comment ID:      o1oghm6  
+Author:          Going2beBANNEDanyway  
+Bio:               
+Account Created: 2025-07-24T18:00:28Z  
+Link Karma:      462  
+Comment Karma:   72777  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-25T19:52:13Z  
+Score:           1753 points  
+Post Title:      FBI: "Nobody who wants to be peaceful shows up at a protest with a firearm that is loaded with two full magazines. That is not a peaceful protest."  
+:::::: Reddit User Comment: ======  
+These are the same people who said January 6th was a peaceful protest.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1olq9t
+
+    entry 58
+
+Comment URL: https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peaceful_shows_up_at_a/o1olq9t/  
+Comment ID:      o1olq9t  
+Author:          Vibrantmender20  
+Bio:               
+Account Created: 2016-01-27T01:09:23Z  
+Link Karma:      7826  
+Comment Karma:   228939  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-25T20:15:31Z  
+Score:           564 points  
+Post Title:      FBI: "Nobody who wants to be peaceful shows up at a protest with a firearm that is loaded with two full magazines. That is not a peaceful protest."  
+:::::: Reddit User Comment: ======  
+Hey conservatives: this is what the government coming after your gun rights *actually* looks like.
+
+
+
+
+=============
+  
+## Reddit comment o1o8v7h
+
+    entry 59
+
+Comment URL: https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peaceful_shows_up_at_a/o1o8v7h/  
+Comment ID:      o1o8v7h  
+Author:          snusmini  
+Bio:               
+Account Created: 2025-02-04T17:03:44Z  
+Link Karma:      418  
+Comment Karma:   11803  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-25T19:18:10Z  
+Score:           47 points  
+Post Title:      FBI: "Nobody who wants to be peaceful shows up at a protest with a firearm that is loaded with two full magazines. That is not a peaceful protest."  
+:::::: Reddit User Comment: ======  
+lol. Inbred ammo sexuals against law abiding citizens carrying weapons. The movie Idiocracy doesn’t to them justice.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account. "LOL", a laugh-track for social media commenting section. Twitter-length short message. Joke-washing the USA situation. ICE fandom that this is entertainment content.
+>
+
+
+=============
+  
+## Reddit comment o1og17e
+
+    entry 60
+
+Comment URL: https://old.reddit.com/r/law/comments/1qmrr5k/fbi_nobody_who_wants_to_be_peaceful_shows_up_at_a/o1og17e/  
+Comment ID:      o1og17e  
+Author:          ma2is  
+Bio:               
+Account Created: 2011-05-23T07:42:38Z  
+Link Karma:      1244  
+Comment Karma:   142958  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-25T19:50:11Z  
+Score:           163 points  
+Post Title:      FBI: "Nobody who wants to be peaceful shows up at a protest with a firearm that is loaded with two full magazines. That is not a peaceful protest."  
+:::::: Reddit User Comment: ======  
+Fox news is insane. It’s not news it’s brainwashing propaganda. In Europe this type of shit would never be allowed to even be shown on a news channel. There’s no credibility and they lie, they change narratives, they move goalposts, they slander, defame, anything and everything to control the uneducated republican base and maintain as much control over their beliefs as possible.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Fox News"; "insane"
+>
