@@ -1753,3 +1753,143 @@ Fox news is insane. It’s not news it’s brainwashing propaganda. In Europe th
 > :::::: Analysis_Thoughts Commentary: ======  
 > "Fox News"; "insane"
 >
+
+
+=============
+  
+## Reddit comment o1ppltw
+
+    entry 61
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qmwl49/guns_n_roses_concert_turned_into_an_antitrump/o1ppltw/  
+Comment ID:      o1ppltw  
+Author:          Cold_Breadfruit_9794  
+Bio:             Billie Jean :   
+Account Created: 2021-10-10T00:21:46Z  
+Link Karma:      72872  
+Comment Karma:   898973  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T23:10:22Z  
+Score:           None  
+Post Title:      Guns N' Roses concert turned into an anti-Trump concert, and they along with the some audience, hung the giant Donald Trump and beat him up.  
+:::::: Reddit User Comment: ======  
+If you would have told me even like 10 years ago that they would get back together and be political in a left leaning way, I never would have believed you
+
+
+
+
+=============
+  
+## Reddit comment o1pp99v
+
+    entry 62
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qmwl49/guns_n_roses_concert_turned_into_an_antitrump/o1pp99v/  
+Comment ID:      o1pp99v  
+Author:          Advanced-Trainer508  
+Bio:               
+Account Created: 2021-03-17T00:04:00Z  
+Link Karma:      18486  
+Comment Karma:   231324  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T23:08:47Z  
+Score:           None  
+Post Title:      Guns N' Roses concert turned into an anti-Trump concert, and they along with the some audience, hung the giant Donald Trump and beat him up.  
+:::::: Reddit User Comment: ======  
+Republicans are going to be more outraged by this than a public execution
+
+
+
+
+=============
+  
+## Reddit comment o1pkurr
+
+    entry 63
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1pkurr/  
+Comment ID:      o1pkurr  
+Author:          not_productive1  
+Bio:               
+Account Created: 2020-11-17T20:26:08Z  
+Link Karma:      1222  
+Comment Karma:   678775  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:49:24Z  
+Score:           2140 points  
+Post Title:      MN national guard is on scene. They handed out donuts and hot refreshments to protestors and wore vests to differentiate themselves from the fascists.  
+:::::: Reddit User Comment: ======  
+Can you imagine the difference in morale between the good feds in their little vests handing out coffee and snacks and the bad feds in their masks rolling around looking for nurses and moms to shoot?
+
+
+
+
+=============
+  
+## Reddit comment o1pmxbc
+
+    entry 64
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1pmxbc/  
+Comment ID:      o1pmxbc  
+Author:          Knotfloyd  
+Bio:               
+Account Created: 2012-12-03T05:34:04Z  
+Link Karma:      10732  
+Comment Karma:   32378  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:58:30Z  
+Score:           843 points  
+Post Title:      MN national guard is on scene. They handed out donuts and hot refreshments to protestors and wore vests to differentiate themselves from the fascists.  
+:::::: Reddit User Comment: ======  
+ice has cosplayed the military so hard the military can't look like the military. wild
+
+
+
+
+=============
+  
+## Reddit comment o1pgkzl
+
+    entry 65
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1pgkzl/  
+Comment ID:      o1pgkzl  
+Author:          Portland-to-Vt  
+Bio:             Blue LeatherDaddy : We’re having a fire, sale?  
+Account Created: 2016-01-15T20:32:14Z  
+Link Karma:      14359  
+Comment Karma:   167133  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T22:30:12Z  
+Score:           711 points  
+Post Title:      MN national guard is on scene. They handed out donuts and hot refreshments to protestors and wore vests to differentiate themselves from the fascists.  
+:::::: Reddit User Comment: ======  
+Oooohhhh….thats how you de\-escalate a situation. 
+
+I was led to believe calling for the governor and mayor to be hung was the way forward. I mean sure let’s give this a chance….
+
+
+
+
+=============
+  
+## Reddit comment o1po5e2
+
+    entry 66
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qmxlic/mn_national_guard_is_on_scene_they_handed_out/o1po5e2/  
+Comment ID:      o1po5e2  
+Author:          TheOtherUprising  
+Bio:               
+Account Created: 2017-02-04T08:34:07Z  
+Link Karma:      2488  
+Comment Karma:   345387  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-25T23:03:53Z  
+Score:           178 points  
+Post Title:      MN national guard is on scene. They handed out donuts and hot refreshments to protestors and wore vests to differentiate themselves from the fascists.  
+:::::: Reddit User Comment: ======  
+The national guard being on the ground at the same time as ICE could mean we are at a critical point in U.S. history. If there is violence between the guard members and ICE it’s a real possibility America does not survive this a country. I could see independence movements in some blue states rise up.
+
+
