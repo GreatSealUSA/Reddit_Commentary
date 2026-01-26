@@ -4176,5 +4176,142 @@ Let me fix the title. Dark times in Minneapolis, where your city and state leade
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-> "most would have called for clam"... Why are social media users not using their free time and spare time to teach from nonfiction books about *cult deprogramming* of the Fox News audience? Why is brainwashing not being taught ever 12 hours on the front page of Reddit? Why is Jen Senko's name not constantly being repeated on Reddit commenting to address the raging hate and avoidance of nonfiction serious films and books on paper? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+> "most would have called for clam"... Why are social media users not using their free time and spare time to teach from nonfiction books about *cult deprogramming* of the Fox News audience? Why is brainwashing not being taught ever 12 hours on the front page of Reddit? Why is Jen Senko's name not constantly being repeated on Reddit commenting to address the raging hate and avoidance of nonfiction serious films and books on paper? https://en.Wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 >
+
+
+=============
+  
+## Reddit comment o1ujs84
+
+    entry 148
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1ujs84/  
+Comment ID:      o1ujs84  
+Author:          -dag-  
+Bio:               
+Account Created: 2019-02-28T14:49:33Z  
+Link Karma:      974  
+Comment Karma:   69291  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-26T16:54:08Z  
+Score:           -125 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Please don't post the video anymore. Those who want to see it have seen it. We don't need to traumatize people further.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Back to video games and sports gaming or whatever. "Amusement as Usual" platform of thoughtless meme mind programming.
+>
+
+
+=============
+  
+## Reddit comment o1uj1rc
+
+    entry 149
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1uj1rc/  
+Comment ID:      o1uj1rc  
+Author:          Visible-Elevator3801  
+Bio:               
+Account Created: 2022-04-21T04:36:02Z  
+Link Karma:      33  
+Comment Karma:   1376  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-26T16:51:02Z  
+Score:           -87 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+It’s pretty biased to clip out the sections of Alex pushing and swatting away / going hands on with the LEO at the start of the interaction and ignore the resisting arrest portion or not giving hands portion.
+
+Sad situation, wish he didn’t die, but let’s not lie about the truths/facts of the ordeal as a whole.
+
+edit: downvote all you want, it does not change the facts of the situation. facts don't care about the narrative you want to read or push.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> There were several adult men who had the guy on the ground and were using spray chemicals to incapacitate him. Why didn't they draw a gun and point it at him and tell him to stop resisting arrest, then take him to jail in a car? why did multiple gunshots, deadly ones, have to be used... People do get emotional. Domestic violence, drunks, you don't need to shoot someone to death because they are behaving out of order. Law enforcement people are supposed to have training on how to de-escalate and arrest people without killing them.
+>
+
+
+=============
+  
+## Reddit comment o1urn29
+
+    entry 150
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1urn29/  
+Comment ID:      o1urn29  
+Author:          Lopsided-Form-1417  
+Bio:               
+Account Created: 2020-11-24T10:47:29Z  
+Link Karma:      392  
+Comment Karma:   581  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-26T17:27:57Z  
+Score:           -11 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Haha the dumb Jew deserved it now hes in hell with the rest of the Jews
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Levant monomyth out-group message patterns, "Jewish". Calling people "dumb" but not recognizing the role short-message media systems have had on mindsets. Short little mocking messages that the Russian Internet Research Agency has conditioned since March 2013. Anti-humanism, "team sports mindsets" of our-group hate programming.
+> 
+> * “our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less)” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+>
+
+
+=============
+  
+## Reddit comment o1ura1y
+
+    entry 151
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1ura1y/  
+Comment ID:      o1ura1y  
+Author:          VicLaGina420  
+Bio:               
+Account Created: 2025-02-09T04:19:58Z  
+Link Karma:      1  
+Comment Karma:   13  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-26T17:26:23Z  
+Score:           -17 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Well obviously 🙃 fools up in here. Don't reach for a gun when your being detained. Thats 100 percent not going to go well for you
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1upmf3
+
+    entry 152
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1upmf3/  
+Comment ID:      o1upmf3  
+Author:          Connect_Mud_3241  
+Bio:               
+Account Created: 2022-01-08T14:33:52Z  
+Link Karma:      1  
+Comment Karma:   374  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-26T17:19:17Z  
+Score:           -20 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Only for people who don't belong here.
+
+
