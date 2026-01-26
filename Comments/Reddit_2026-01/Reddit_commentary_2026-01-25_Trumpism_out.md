@@ -3384,3 +3384,200 @@ People always ask for celebs to speak out or else, but when they do they don't d
 > 
 > * 1993 TV is now year 2013 onward Reddit commenting section. "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the **common rubble of little one line joke, you follow me? It’s made banal by it.** It’s banalised that way."; "This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Texan Rick Roderick, year 1993, Duke University. "Marcuse and One-Dimensional Man". The joking tiny-think meme-think Tweet-think one-dimensional mindset. The Trump fandom on Reddit. https://RickRoderick.org/304-marcuse-and-one-dimensional-man-1993/
 >
+
+
+=============
+  
+## Reddit comment o1uc1lh
+
+    entry 119
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qnj37j/selena_gomez_made_a_video_calling_out_ice_a_year/o1uc1lh/  
+Comment ID:      o1uc1lh  
+Author:          Maximum_Expert92  
+Bio:               
+Account Created: 2025-07-01T13:54:06Z  
+Link Karma:      626293  
+Comment Karma:   129586  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T16:21:16Z  
+Score:           None  
+Post Title:      Selena Gomez made a video calling out ICE a year ago, and everyone laughed and turned it into a meme. In 2019, she also produced a Netflix documentary "Living Undocumented" showing the difficult lives of 8 illegal family immigrants with children were living under Trump's first administration.  
+:::::: Reddit User Comment: ======  
+It's clear that Selena was right about everything. I've always been on her side. She's suffered and knows what suffering means
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6-month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1usf8y
+
+    entry 120
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qnm7np/mary_turner_president_of_national_nurses_united/o1usf8y/  
+Comment ID:      o1usf8y  
+Author:          Muted_Adagio2780  
+Bio:               
+Account Created: 2021-02-08T12:45:30Z  
+Link Karma:      1  
+Comment Karma:   849  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T17:31:19Z  
+Score:           51 points  
+Post Title:      Mary Turner president of National Nurses United from site of Alex Pretti Murder:"He was a VA nurse,an ICU nurse that cared for our most venerated patients, our veterans..Nurses across this country, we need to stand up and say enough is enough..We need to make our patients and people safe again.“  
+:::::: Reddit User Comment: ======  
+The Furor hates Veterans.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump leads with hate since June 16, 2015 and Reddit audience follows the hate leadership. Democracy does not work with "hate thy enemy", "hate thy neighbor" values. Remedial morality is not optional education, it is a crisis. MLK Jr's words on hate are not being asserted. Dr. Bandy X Lee's mental health education is not being repeated and repeated on social media commenting. We have a **massive egomania crisis**, mob mentality crisis. Media cults crisis!
+> 
+> * https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+>
+
+
+=============
+  
+## Reddit comment o1v1ci4
+
+    entry 121
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qnm7np/mary_turner_president_of_national_nurses_united/o1v1ci4/  
+Comment ID:      o1v1ci4  
+Author:          MotoriuS9000  
+Bio:             MotoriuS :   
+Account Created: 2017-10-11T07:30:22Z  
+Link Karma:      12  
+Comment Karma:   816  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T18:10:11Z  
+Score:           4 points  
+Post Title:      Mary Turner president of National Nurses United from site of Alex Pretti Murder:"He was a VA nurse,an ICU nurse that cared for our most venerated patients, our veterans..Nurses across this country, we need to stand up and say enough is enough..We need to make our patients and people safe again.“  
+:::::: Reddit User Comment: ======  
+No one should believe anything what Kirk says. She is not a professional in anything worthwhile to the society at large. She is not contributing. She only wants to extract value from others around her. ICE is not contributing anything meaningful either. Their organisation only wants to tear down things others have built and accomplished through hard effort and self sacrifice. Make that your metric of worth and hold those who do not try to make the world a better place accountable either through their actions to the contrary or lack thereof.
+
+Accountability, responsibility, dignity.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We must all (We The People) **rescue&& Erika Kirk and many others from the cults of self-harm [that Putin has cultivated since March 2013. Addicts to fiction storytelling](https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md) are raging against reality in favor of out-group hate and egoism. Cults of meme-thinking, twitter-thinking that the Saint Petersburg Internet Research Agency has cultivated.
+> 
+> * "In the best case they looked funny", "We are trying to change reality. Reality has indeed begun to change as a result of the appearance of our information in public" - **June 2, 2014** - https://www.BuzzfeedNews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+>
+
+
+=============
+  
+## Reddit comment o1v4ol8
+
+    entry 122
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qnnnt6/sepp_blatter_suggests_fans_should_not_travel_to/o1v4ol8/  
+Comment ID:      o1v4ol8  
+Author:          wolftick  
+Bio:               
+Account Created: 2014-01-06T22:18:50Z  
+Link Karma:      5005  
+Comment Karma:   406645  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T18:24:08Z  
+Score:           None  
+Post Title:      Sepp Blatter suggests fans should not travel to US for World Cup  
+:::::: Reddit User Comment: ======  
+*The Worst Person You Know Just Made a Great Point*
+
+...Actually no, Infantino is even worse.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Too exhausted to make medium commentary on this.
+>
+
+
+=============
+  
+## Reddit comment o1v1r6w
+
+    entry 123
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qnnnt6/sepp_blatter_suggests_fans_should_not_travel_to/o1v1r6w/  
+Comment ID:      o1v1r6w  
+Author:          Kerl1310  
+Bio:             Kyle Jones : Welsh Vegan Software Engineer  
+Account Created: 2015-10-06T09:20:45Z  
+Link Karma:      9  
+Comment Karma:   1692  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T18:11:55Z  
+Score:           1346 points  
+Post Title:      Sepp Blatter suggests fans should not travel to US for World Cup  
+:::::: Reddit User Comment: ======  
+Pretty weird considering the US is the sole recipient of the FIFA Peace Prize 🤷🏻
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> FIFA peace prize topic.
+>
+
+
+=============
+  
+## Reddit comment o1v7ja3
+
+    entry 124
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qno6dt/game_devs_skipping_gdc_2026_over_ice_concerns_us/o1v7ja3/  
+Comment ID:      o1v7ja3  
+Author:          rock25011  
+Bio:               
+Account Created: 2013-01-29T19:52:59Z  
+Link Karma:      1032  
+Comment Karma:   32528  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T18:36:00Z  
+Score:           1807 points  
+Post Title:      Game devs skipping GDC 2026 over ICE concerns, US safety fears  
+:::::: Reddit User Comment: ======  
+I would not come to the US.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People are recognizing that FIFA sports games and video games are not essential. And now that free time and spare time are more available, people need to promote nonfiction learning about cult deprogramming. Dr. Bandy X Lee is an excellent leader, please follow her!
+>
+
+
+=============
+  
+## Reddit comment o1v5n8h
+
+    entry 125
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qno6dt/game_devs_skipping_gdc_2026_over_ice_concerns_us/o1v5n8h/  
+Comment ID:      o1v5n8h  
+Author:          MotherFunker1734  
+Bio:             My unpopular opinions : You shouldn't be here.  
+Account Created: 2024-05-14T04:12:56Z  
+Link Karma:      1  
+Comment Karma:   66453  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-26T18:28:07Z  
+Score:           1274 points  
+Post Title:      Game devs skipping GDC 2026 over ICE concerns, US safety fears  
+:::::: Reddit User Comment: ======  
+Coming up next: The FIFA world cup has been a failure because people didn't want to visit the NAZI USA.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> GDC 2026 and FIFA topic pairing. Now if only gamer FANDOM on Reddit would shift the spare time and free time spent commenting to promoting to all *get on the same page* of Dr. Bandy X Lee. Such as all promote these pages: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ - We are drowning in reactionary (to ICE / MAGA / Trump / Musk) low-effort short commenting!
+>
