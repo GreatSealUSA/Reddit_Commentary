@@ -3102,13 +3102,48 @@ That's what I keep telling my parents. A Trans swimmer finished 4th and the coun
 > :::::: Analysis_Thoughts Commentary: ======  
 > <img width="1097" height="592" alt="image" src="https://github.com/user-attachments/assets/215b3a19-34d0-4884-8bf8-6fa1764a7cac" />
 > 
-> Ignorance on Reddit. The Internet Research Agency invaded USA media systems since March 2013.
+> Ignorance on Reddit. The [Saint Petersburg Internet Research Agency invaded USA media systems](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) since March 2013. This is a military invasion to win "Hearts and Minds".
 > 
-> Trans-gender swimmer 4th place. That took place year 2022. "swimmer Lia Thomas, competing for the University of Pennsylvania, became the first openly transgender woman to win a Division 1 NCAA championship, winning the 500-yard freestyle in 2022." - Google Search summary 2026-01-26 morning USA
+> Trans-gender swimmer 4th place. That took place year 2022 (the Joe Biden POTUS years). "swimmer Lia Thomas, competing for the University of Pennsylvania, became the first openly transgender woman to win a Division 1 NCAA championship, winning the 500-yard freestyle in 2022." - Google Search summary 2026-01-26 morning USA
 > 
-> That is AFTER Trump's November 8, 2013 trip to Moscow on a private jet. Trans-gender swimmer year 2022 is AFTER the December 20, 2013 article explaining Putin and Trump's new agreement! ::: "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of **the West's "genderless** and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." ::: - December 20, 2013 https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+> That swimmer topic is AFTER [Donald Trump's November 8, 2013 trip to Moscow on a private jet](https://time.com/5251484/donald-trump-flight-records-moscow-trip/). Trans-gender swimmer year 2022 is AFTER the December 20, 2013 article explaining Putin and Trump's new agreement! ::: "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of **the West's "genderless** and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." ::: - December 20, 2013 https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
 > 
-> That year 2022 trans-gender swimmer getting 4th place is AFTER the Cambridge Analytica mental manipulation of everyone in USA population.
+> That year 2022 trans-gender swimmer getting 4th place is AFTER the Cambridge Analytica mental manipulation of everyone in USA population / anyone who ever touched social media [or online news programming](https://www.TheAtlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/).
 > 
 > * "The work was all about trying to anticipate how people would internalize and then spread cultural information — whether that meant in joining a death cult or in choosing a wardrobe. Bannon immediately grasped all of this, even telling me that he believed, as I do, **that politics and fashion are essentially products of the same phenomenon**. It was obvious that he treated intelligence gathering in a broad and deep way, which is not something I’ve seen many people in politics do. And that’s what makes him so powerful. He reads about **intersectional feminism or the fluidity of identity** not, as I later learned, because he’s open to those ideas but because he wants to invert them — to identify what people attach themselves to and then to weaponize it. What I didn’t know that day was that Bannon wanted to fight a cultural war, and so he had come to the people who specialized in informational weapons to help him build his arsenal." ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 4 "Steve From America", page ??, **year 2019**
+> 
+> Social post { https://MidWest.Social/post/42464197 }
+>
+
+
+=============
+  
+## Reddit comment o1tiww9
+
+    entry 110
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1qngihl/was_a_little_wokeness_really_that_bad/o1tiww9/  
+Comment ID:      o1tiww9  
+Author:          in_it_to_lose_it  
+Bio:               
+Account Created: 2011-11-02T15:25:34Z  
+Link Karma:      1549  
+Comment Karma:   22464  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T14:05:52Z  
+Score:           183 points  
+Post Title:      Was a little wokeness really that bad?  
+:::::: Reddit User Comment: ======  
+For the people thinking this is ridiculous, "boys in girls sports" is exactly the refrain I get from my right\-wing acquaintances when I deride the federal government for murdering citizens. We are surrounded by millions of people who have been propagandized and brainwashed into accepting fascism.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1104" height="740" alt="image" src="https://github.com/user-attachments/assets/6d194738-56f4-450e-ba3a-f81e7198c092" />
+> 
+> Reddit comment: "millions of people who have been propagandized and brainwashed". YES, but why does nobody care about WHO did the brainwashing, WHEN it was done, HOW it was done, and how to DEFEND AGAINST BRAINWASHING? https://en.Wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+> 
+> Repeating, repeat again: This gender reaction is Russian military objective against USA. People need to start learning dates and names of the players who fucked-over USA population. Trans-gender is not new, what is new is the Saint Petersburg Internet Research Agency. Transgender has been around for tens of thousands of years in humanity. It all changed in year 2013, shortly after [Donald Trump went to Moscow, Russia on a private jet November 8, 2013](https://time.com/5251484/donald-trump-flight-records-moscow-trip/) for a gender sex entertainment broadcast.
+> 
+> * "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of **the West's "genderless** and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." ::: - December 20, 2013 https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
 >
