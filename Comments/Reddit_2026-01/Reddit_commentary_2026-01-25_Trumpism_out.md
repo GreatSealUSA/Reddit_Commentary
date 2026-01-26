@@ -3581,3 +3581,94 @@ Coming up next: The FIFA world cup has been a failure because people didn't want
 > :::::: Analysis_Thoughts Commentary: ======  
 > GDC 2026 and FIFA topic pairing. Now if only gamer FANDOM on Reddit would shift the spare time and free time spent commenting to promoting to all *get on the same page* of Dr. Bandy X Lee. Such as all promote these pages: https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/ - We are drowning in reactionary (to ICE / MAGA / Trump / Musk) low-effort short commenting!
 >
+
+
+=============
+  
+## Reddit comment o1v1n8e
+
+    entry 126
+
+Comment URL: https://old.reddit.com/r/Damnthatsinteresting/comments/1qnn3ke/spotted_in_london/o1v1n8e/  
+Comment ID:      o1v1n8e  
+Author:          NotLucidOne  
+Bio:             Just a guy scrolling for knowledge.  
+Account Created: 2022-02-20T01:51:35Z  
+Link Karma:      1  
+Comment Karma:   184  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T18:11:27Z  
+Score:           54 points  
+Post Title:      Spotted in London  
+:::::: Reddit User Comment: ======  
+the mural is between Shoreditch and Liverpool Station painted in 2018\.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Year 2018 from the UK / across the pond perspective. People recognized Trump was a singer / entertainer / public speaker / source of entertainment more. Now the USA population is so sucked into the hyper reality.
+> 
+> * Trumpism mechanics. "you’ll have a new politics. I mean that’s the deficit of experience that hasn’t **been sucked into this system of images** and so on. Now this sounds extreme but think of how we are socialised – all of us – continually bombarded with images from magazines, TVs, newspapers, videotapes. I am not unaware of where I am, I am in the circuit too now." - Duke University, Texan Rick Roderick https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+>
+
+
+=============
+  
+## Reddit comment o1uuc32
+
+    entry 127
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnmiyf/morale_plummeting_among_ice_agents_over_long/o1uuc32/  
+Comment ID:      o1uuc32  
+Author:          TheTyger  
+Bio:               
+Account Created: 2011-06-04T08:20:47Z  
+Link Karma:      2568  
+Comment Karma:   155662  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-26T17:39:39Z  
+Score:           1067 points  
+Post Title:      Morale plummeting among ICE agents over long hours, quotas and public hatred: reports  
+:::::: Reddit User Comment: ======  
+(Not So) fun fact: Many of them will be financially ruined if they quit (which is by design). The 50k signing bonus they got has to be repaid in full if they do not serve 5 years. So for any of this assholes who did this because it got them out of debt or was a way to get their family out of poverty, it means that they now are essentially indentured servants to the government, because we can all assume most of these people are too dumb to understand that the 50k needed to be put in an interest bearing account and remain untouched for 5 years in the event that they fail to keep the job for the whole claw\-back period.
+
+They are screwed because working will risk their lives, and quitting likely damns their family's future. Exactly what Trump's handlers wanted when they set this scheme up.
+
+Edit: The reason I think this is a "not so" fun fact is because these knobs are essentially now in a position where they *can't* leave the job due to financial ruin, which means they are more likely to follow orders and not argue because their it would be a disaster personally to them. They have locked themselves into a cage where they are now required to be monsters to not be ruined. (and we know they were morally bankrupt for taking the job at the onset, so that little additional pressure will make them even less human)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> When sharing "fun facts" on Reddit, people need to be linking a common (get on the same page) off-Reddit source or quoting a real person's name. Following MAGA values of information sharing without more detailed sources. People keep following Truth Social values of Trumpism society about not seeking and promoting information sources and validation of information. Fiction outsells nonfiction, and we are drowning in falsehoods.
+>
+
+
+=============
+  
+## Reddit comment o1ts9ku
+
+    entry 128
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1qnhvgn/the_news_lately/o1ts9ku/  
+Comment ID:      o1ts9ku  
+Author:          kvckeywest  
+Bio:               
+Account Created: 2010-10-01T18:49:57Z  
+Link Karma:      35  
+Comment Karma:   46809  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T14:52:56Z  
+Score:           330 points  
+Post Title:      the news lately  
+:::::: Reddit User Comment: ======  
+I do not promote or condone political violence, but I do think it's a good idea to have the ability to protect yourself from those who clearly do.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People are changed by terrorism. I lived and participated in an Islamic revolution in Africa and Middle East. I have intimately experienced terrorism mindsets. Fear and terror organized by a society.
+> 
+> People need to be standing up and fighting for Dr. Bandy X Lee's leadership. We need to RIGHT NOW be taking on the cult of Fox News HDTV an Elon Musk Twitter message cult. Serious nonfiction needs to be promoted and actively commented on social systems.
+> 
+> * "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter provide immediate access to news as well as to comments from other readers with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites much more often** than they previously did, and the amount of **news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming**. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them a false sense of control and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning, page ??.
+>
