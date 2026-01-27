@@ -5999,6 +5999,11 @@ she has no soul. nobody can do what she does and have any concept of emotion
 > I believe the USA society has moved as far away from Woodstock 1969; August 15, 1969 – August 18, 1969 New York to Trump New York, SNL New York (Tony Clifton acting by Trump), Fox News New York since October 7, 1996. I think Woodstock was our peak soul programming from white men, white young men rock and roll from UK / London airport to New York state airports... that was when we peaked white men education. Then the white men Rupert Murdoch, Trump and Musk took over for the white men.
 > 
 > AND, for the record, the white men at Woodstock in August 1969 had as many problems with 13 year old girl sex as the white men of Fox News, Musk, Trump August 2025. We all need to get behind Malala since October 8, 2013 - as that is a GLOBAL problem with men.
+> 
+> * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+> ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. Shot in the head by men at age 15.
+> 
+> * “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Shot in the head by the Adults In The Room, men shot her and her friends on her school bus for being Uppity about Girls at age 15 on the Internet (she was a [blogger and small town citizen journalist girl on the Internet *World Wide* Web since January 3, 2009](https://www.bbc.com/news/magazine-19899540) at age 11).
 >
 
 
@@ -6029,3 +6034,117 @@ After years of being lied to and spreading those lies, some Republicans finally 
 > :::::: Analysis_Thoughts Commentary: ======  
 > Fiction outsells nonfiction. "lies" are entirely acceptable within fiction storytelling. You don't consider Star Wars 1977 a "lie" because there is no factual evidence of a Death Star / space station planet killer. We need to wake up that Fox News HDTV, since year 1996, is a fiction storytelling network. Fiction outsells nonfiction. We either stand up for science nonfiction or we drown in the leadership of the most entertaining mockery like Mecca / Quran / Mohammad storytelling leads far more people than USA 0.34 billion nonfiction science foundations of the Free Masons year 1776.
 >
+
+
+=============
+  
+## Reddit comment o20gt8s
+
+    entry 215
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o20gt8s/  
+Comment ID:      o20gt8s  
+Author:          ApocalypseYay  
+Bio:             Neanderthal, at best.  
+
+But, dumber.   
+Account Created: 2020-11-28T14:27:38Z  
+Link Karma:      21180  
+Comment Karma:   343381  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T13:33:06Z  
+Score:           None  
+Post Title:      TikTok blocks Epstein mentions and anti-Trump content as well as ICE criticism  
+:::::: Reddit User Comment: ======  
+Censoring speech to protect pedophiles and Gestapo is a hideous abrogation of basic humanity, and a brutal mask\-off moment.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TikTok media ecology top of /r/All
+>
+
+
+=============
+  
+## Reddit comment o20jim3
+
+    entry 216
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o20jim3/  
+Comment ID:      o20jim3  
+Author:          thepartypantser  
+Bio:               
+Account Created: 2013-05-14T18:52:30Z  
+Link Karma:      2320  
+Comment Karma:   327455  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T13:47:27Z  
+Score:           None  
+Post Title:      TikTok blocks Epstein mentions and anti-Trump content as well as ICE criticism  
+:::::: Reddit User Comment: ======  
+Hey remember MAGA when you all were *so* upset that Hunter Biden laptop story was temporarily ranked lower in the Facebook newsfeed for ~~a few days~~ less than 24 hours?
+
+I'm sure this will upset you too.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Everything is PR", "Everything is Public Relations"  
+> "Everything is ME", "Everything is Media Ecology" around MAGA Kremlin White House since March 2013.  
+> https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+>
+
+
+=============
+  
+## Reddit comment o20kpr8
+
+    entry 217
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o20kpr8/  
+Comment ID:      o20kpr8  
+Author:          Melxgibsonx616  
+Bio:               
+Account Created: 2020-12-09T11:31:26Z  
+Link Karma:      24  
+Comment Karma:   22164  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T13:53:40Z  
+Score:           None  
+Post Title:      TikTok blocks Epstein mentions and anti-Trump content as well as ICE criticism  
+:::::: Reddit User Comment: ======  
+So guns are bad now and free speech has limits?
+
+U.S conservatives really are the worst scum of this Earth.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Russia conservatives are worse. Taliban conservatives are worse.
+> 
+> * AFTER [Donald Trump's November 8, 2013 trip to Moscow on a private jet](https://time.com/5251484/donald-trump-flight-records-moscow-trip/). Quote ::: "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of **the West's "genderless** and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." ::: - December 20, 2013 https://www.TheAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+> 
+> We need to rescue Trump, rescue Musk, rescue Murdoch, rescue MAGA, rescue NATO, rescue USA We The People from the Surkov monomyth that was deployed starting in March of year 2013.
+>
+
+
+=============
+  
+## Reddit comment o20k24s
+
+    entry 218
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o20k24s/  
+Comment ID:      o20k24s  
+Author:          PrincessImpeachment  
+Bio:             Some Guy On Reddit : 👑🚗🐸  
+Account Created: 2023-12-12T17:20:17Z  
+Link Karma:      58358  
+Comment Karma:   246538  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T13:50:16Z  
+Score:           None  
+Post Title:      TikTok blocks Epstein mentions and anti-Trump content as well as ICE criticism  
+:::::: Reddit User Comment: ======  
+So, instead of outright banning the app like they said they'd do last year, they're now rewiring it into a trash propaganda machine. But I guess using an app like TikTok is a way more efficient way of reaching millions of easily\-manipulated teenagers. They'll get a couple years worth of brainwashing and then head to the polls in 2028 to vote GOP. Republicans are pretty incompetent, but sometimes they know what they're doing. Disgusting.
