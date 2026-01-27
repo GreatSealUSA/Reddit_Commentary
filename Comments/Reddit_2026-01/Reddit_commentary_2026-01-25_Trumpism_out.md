@@ -5493,5 +5493,59 @@ The republicunts are fighting hard to justify this as it absolutely buttfucks th
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-> 2 month Reddit account. Declaring the situation as entertaining, "hilarious" that the Internet Research Agency and other organizations have wrecked the heats and minds of the USA since March 2013.
+> 2 month Reddit account. Declaring the situation as entertaining, "hilarious" that the Internet Research Agency and other organizations have wrecked the hearts and minds of the USA since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o1xer6x
+
+    entry 197
+
+Comment URL: https://old.reddit.com/r/news/comments/1qnxuor/greg_bovino_loses_his_job/o1xer6x/  
+Comment ID:      o1xer6x  
+Author:          mechajlaw  
+Bio:               
+Account Created: 2015-07-16T04:33:35Z  
+Link Karma:      946  
+Comment Karma:   94024  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T00:40:34Z  
+Score:           443 points  
+Post Title:      Greg Bovino Loses His Job  
+:::::: Reddit User Comment: ======  
+Must mean that this shit is a much bigger deal on the right than it looked.
+
+
+
+
+=============
+  
+## Reddit comment o1xioee
+
+    entry 198
+
+Comment URL: https://old.reddit.com/r/news/comments/1qnxuor/greg_bovino_loses_his_job/o1xioee/  
+Comment ID:      o1xioee  
+Author:          BallAccomplished5733  
+Bio:             Lucky : Reality is a sandwich I didn’t order.  
+Account Created: 2025-04-26T17:52:35Z  
+Link Karma:      606  
+Comment Karma:   1621  
+Comment Age:     58 minutes ago  
+Timestamp:       2026-01-27T01:00:58Z  
+Score:           None  
+Post Title:      Greg Bovino Loses His Job  
+:::::: Reddit User Comment: ======  
+This is symbolic compliance. 
+
+That’s when an institution that is violating civil rights gives the public just enough symbolic victories that accountability efforts lose steam before there has been any meaningful change.
+
+Keep the pressure on, folks.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account. "Symbolic"; user profile talks about "Reality"
 >
