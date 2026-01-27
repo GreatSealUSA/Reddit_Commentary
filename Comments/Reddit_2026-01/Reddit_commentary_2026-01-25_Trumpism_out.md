@@ -6148,3 +6148,1304 @@ Score:           None
 Post Title:      TikTok blocks Epstein mentions and anti-Trump content as well as ICE criticism  
 :::::: Reddit User Comment: ======  
 So, instead of outright banning the app like they said they'd do last year, they're now rewiring it into a trash propaganda machine. But I guess using an app like TikTok is a way more efficient way of reaching millions of easily\-manipulated teenagers. They'll get a couple years worth of brainwashing and then head to the polls in 2028 to vote GOP. Republicans are pretty incompetent, but sometimes they know what they're doing. Disgusting.
+
+
+
+
+=============
+  
+## Reddit comment o2154fm
+
+    entry 219
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qodt6v/tiktok_blocks_epstein_mentions_and_antitrump/o2154fm/  
+Comment ID:      o2154fm  
+Author:          GargleBlargleFlargle  
+Bio:               
+Account Created: 2019-03-11T22:38:26Z  
+Link Karma:      1  
+Comment Karma:   15453  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T15:33:31Z  
+Score:           None  
+Post Title:      TikTok blocks Epstein mentions and anti-Trump content as well as ICE criticism  
+:::::: Reddit User Comment: ======  
+All of this is literally the Putin playbook.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Surkov won since March of year 2013.
+>
+
+
+=============
+  
+## Reddit comment o224j3l
+
+    entry 220
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o224j3l/  
+Comment ID:      o224j3l  
+Author:          Santos_L_Halper_II  
+Bio:               
+Account Created: 2020-06-17T21:09:11Z  
+Link Karma:      273  
+Comment Karma:   884205  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:07:04Z  
+Score:           9306 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+You literally can, as you fucking people have been angrily shouting for years and years.
+
+
+
+
+=============
+  
+## Reddit comment o224mt9
+
+    entry 221
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o224mt9/  
+Comment ID:      o224mt9  
+Author:          vineyardmike  
+Bio:               
+Account Created: 2018-06-12T04:01:32Z  
+Link Karma:      19480  
+Comment Karma:   330319  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:07:30Z  
+Score:           1404 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+I don't think Trump understoods what laws are.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> simple-think
+>
+
+
+=============
+  
+## Reddit comment o224pye
+
+    entry 222
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o224pye/  
+Comment ID:      o224pye  
+Author:          PuckSenior  
+Bio:               
+Account Created: 2025-01-27T18:50:37Z  
+Link Karma:      1399  
+Comment Karma:   67505  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:07:53Z  
+Score:           517 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+What a dumbass. Are they actively trying to alienate as many people as possible?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes. Trump is an actor who is acting. To Surkov screenplays. Surkov won since March 2013. Reddit ignorance.
+>
+
+
+=============
+  
+## Reddit comment o227nsl
+
+    entry 223
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o227nsl/  
+Comment ID:      o227nsl  
+Author:          Hootinger  
+Bio:               
+Account Created: 2013-03-21T17:55:20Z  
+Link Karma:      37487  
+Comment Karma:   90806  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:20:22Z  
+Score:           232 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+Ok so this Administration has thrown out the: 
+
+* 1st Amendment
+* 4th Amendment
+* 10th Amendment
+* 14th Amendment
+* ....And now the 2nd.
+
+
+
+
+=============
+  
+## Reddit comment o225pvn
+
+    entry 224
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o225pvn/  
+Comment ID:      o225pvn  
+Author:          FuggyGlasses  
+Bio:               
+Account Created: 2017-09-04T12:45:54Z  
+Link Karma:      439  
+Comment Karma:   79852  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:12:10Z  
+Score:           217 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+Conservatives and GOP " what he means is...."
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Alternate Reality Gaming. Filter-bubble ARG. https://en.wikipedia.org/wiki/Filter_bubble Surkovian. Every person gets to live in alternate-reality based on media consumption. https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md
+>
+
+
+=============
+  
+## Reddit comment o22b0id
+
+    entry 225
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22b0id/  
+Comment ID:      o22b0id  
+Author:          iiTzSTeVO  
+Bio:             priitzel : 1312  
+Account Created: 2013-01-12T06:36:38Z  
+Link Karma:      13523  
+Comment Karma:   159796  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:34:32Z  
+Score:           39 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+Kyle Rittenhouse got a [standing ovation](https://www.nbcchicago.com/news/local/kyle-rittenhouse-gets-standing-ovation-at-conservative-conference/2712338/) at CPAC.
+
+ETA: Kyle Rittenhouse was [invited to Mar\-a\-lago](https://www.politico.com/news/2021/11/23/trump-kyle-rittenhouse-visit-trial-523283) immediately after his trial.
+
+
+
+
+=============
+  
+## Reddit comment o22dnbr
+
+    entry 226
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22dnbr/  
+Comment ID:      o22dnbr  
+Author:          Pithecanthropus88  
+Bio:             AskJeeves :   
+Account Created: 2016-12-29T04:53:21Z  
+Link Karma:      40577  
+Comment Karma:   333098  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:45:34Z  
+Score:           38 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+I'm 62\. For as long as I've been alive gun nuts have screamed "SHALL NOT BE INFRINGED" at every turn. But now I guess infringement is just fine. As long as it's liberals with the guns.
+
+
+
+
+=============
+  
+## Reddit comment o22b1k8
+
+    entry 227
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22b1k8/  
+Comment ID:      o22b1k8  
+Author:          slalmon  
+Bio:               
+Account Created: 2017-06-03T23:20:15Z  
+Link Karma:      1  
+Comment Karma:   9536  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:34:39Z  
+Score:           12 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+Lol it is like the biggest flip flop in history. You cannot trust a single thing these people say at all. 
+
+Screw you to anyone that supports this shit, and I don't even like guns!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 'LOL", **audience laugh** track. Amused to death population. SEE_ALSO September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/ last year refresher.
+>
+
+
+=============
+  
+## Reddit comment o22clxx
+
+    entry 228
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22clxx/  
+Comment ID:      o22clxx  
+Author:          Dsstar666  
+Bio:             EstEstProducer :   
+Account Created: 2016-02-23T13:37:32Z  
+Link Karma:      2034  
+Comment Karma:   105017  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:41:13Z  
+Score:           21 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+Holy shit. Did this man just commit a mortal sin for his gun worshipping party?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Gun worship.
+>
+
+
+=============
+  
+## Reddit comment o22ecmd
+
+    entry 229
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22ecmd/  
+Comment ID:      o22ecmd  
+Author:          robot_pirate  
+Bio:             Jaded &amp; Cynical Optimist  
+Account Created: 2010-08-03T02:13:42Z  
+Link Karma:      19559  
+Comment Karma:   223297  
+Comment Age:     59 minutes ago  
+Timestamp:       2026-01-27T18:48:31Z  
+Score:           20 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+Let the MAGA hair splitting and crawfishing begin.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fandom of Trump. Audience of Trump. Thrilled to see new story branches opening in the mythological leadership.
+>
+
+
+=============
+  
+## Reddit comment o228ioq
+
+    entry 230
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o228ioq/  
+Comment ID:      o228ioq  
+Author:          Onlyroad4adrifter  
+Bio:             it's a secret  : Everyone has an opinion, if you don't like mine post yours.  
+Account Created: 2019-09-18T22:55:25Z  
+Link Karma:      10761  
+Comment Karma:   212585  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:23:57Z  
+Score:           12 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+Why the fuck does this idiot have to be around a running aircraft every time he is answering questions.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Superficial concerns, shallow mindsets. Set pieces of the Reality White House performance / President Tony Clifton acting sets and backgrounds. Entertainment audience of Reddit doing ANYTHING BUT: asserting, quoting, repeating Dr. Bandy X Lee's leadership and focus on mental health of the nation leaders.
+>
+
+
+=============
+  
+## Reddit comment o22aink
+
+    entry 231
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22aink/  
+Comment ID:      o22aink  
+Author:          CobblerMoney9605  
+Bio:             Just another old retired guy living in Florida.   
+Account Created: 2025-04-22T17:07:53Z  
+Link Karma:      1404  
+Comment Karma:   36258  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:32:23Z  
+Score:           12 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+This is what you get when you vote for stupid people.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account. "Stupid people", with short-length Tweeting-style reaction commenting. Using free time and spare time in the audience of Reddit to make short comments instead or organizing an Internet intellectual education uprising. Audience of Reddit doing ANYTHING BUT: asserting, quoting, repeating Dr. Bandy X Lee's leadership and focus on mental health of the nation leaders.
+>
+
+
+=============
+  
+## Reddit comment o22aoqe
+
+    entry 232
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o22aoqe/  
+Comment ID:      o22aoqe  
+Author:          trentreynolds  
+Bio:               
+Account Created: 2012-10-12T17:15:34Z  
+Link Karma:      248  
+Comment Karma:   371648  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:33:07Z  
+Score:           10 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+These people have been insisting for decades that murdered school children were okay because we have to be able to be armed all the time.
+
+
+
+
+=============
+  
+## Reddit comment o227us5
+
+    entry 233
+
+Comment URL: https://old.reddit.com/r/law/comments/1qol5s2/trump_with_that_being_said_you_cant_have_guns_you/o227us5/  
+Comment ID:      o227us5  
+Author:          nsucs2  
+Bio:             Waffles :   
+Account Created: 2022-03-13T00:43:17Z  
+Link Karma:      64888  
+Comment Karma:   112654  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:21:11Z  
+Score:           17 points  
+Post Title:      Trump: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+On the Charlie Kirk show. Can't make this shit up.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Audience member of Reddit media does not grasp that Reality TV shows like Charlie Kirk and Putin-Trump White House Kremlin are scripted. Writers / practiced / get feedback and change up techniques / coached. Surkov student screenplays. Gullibility crisis; media ecology crisis. https://movies.StackExchange.com/questions/31721/how-to-find-out-whether-a-reality-show-is-scripted
+> 
+> * [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+>
+
+
+=============
+  
+## Reddit comment o22ar2d
+
+    entry 234
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22ar2d/  
+Comment ID:      o22ar2d  
+Author:          c0smicgirly  
+Bio:               
+Account Created: 2020-11-27T10:59:25Z  
+Link Karma:      72  
+Comment Karma:   201608  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:33:24Z  
+Score:           6741 points  
+Post Title:      Trump Against 2nd Amendment: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+MAGAts giving up their arms in 5, 4, 3, 2, 1\.
+
+They stand for nothing but this man who poops his pants and rapes kids.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> USA television audiences and social audiences have a serious diaper fetish https://en.wikipedia.org/wiki/Diaper_fetishism for old men. Again and again people prize shit-commenting, shit-posting, shit-governing, shit-media, enshitification. Short Twitter-length reaction-commenting shit media. Instead of calling for the immediate removal of Donald Trump and for people to follow Dr. Bandy X Lee's mental health education... shit social content addictions run the nation.
+>
+
+
+=============
+  
+## Reddit comment o22emj2
+
+    entry 235
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22emj2/  
+Comment ID:      o22emj2  
+Author:          toaster_kettle  
+Bio:               
+Account Created: 2024-05-17T18:56:09Z  
+Link Karma:      1  
+Comment Karma:   2436  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:49:40Z  
+Score:           530 points  
+Post Title:      Trump Against 2nd Amendment: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+World turn'd upside down!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Exactly what Russian information warfare does, Surkov monomyth inverts values in the mass man (University of Toronto Marshall McLuhan terminology) / mass mind (Howard Bloom NYC terminology). Paradox inversions of group thinking / mob mentality programming. Surkov won since March of year 2013.
+>
+
+
+=============
+  
+## Reddit comment o22awsj
+
+    entry 236
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qolzkg/trump_against_2nd_amendment_with_that_being_said/o22awsj/  
+Comment ID:      o22awsj  
+Author:          BudgetLaw2352  
+Bio:               
+Account Created: 2025-11-13T22:58:34Z  
+Link Karma:      150  
+Comment Karma:   19323  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:34:06Z  
+Score:           368 points  
+Post Title:      Trump Against 2nd Amendment: "With that being said, you can't have guns. You can't walk in with guns. You just can't. You can't walk in with guns. You can't do that. But it's just a very unfortunate incident."  
+:::::: Reddit User Comment: ======  
+The ultimate virtue of the conservative is hypocrisy. This is why arguing with them is useless. They are shifty, slimy cretins who will betray their own stated morals to crush their enemy.
+
+Do not engage with these people. They would kill you in a second if given license to do so.
+
+Edit: Now more than ever, we must find communities and friends that we trust. Talk to your neighbors, stock up on canned foods, save money, and stay safe. Bovino being fired is good news, but the administration is going to continue their reign of terror, and we must stay strong.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o21mqq2
+
+    entry 237
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qoiomj/last_night_jimmy_kimmel_didnt_tell_jokes_he_stood/o21mqq2/  
+Comment ID:      o21mqq2  
+Author:          umdivx  
+Bio:             Old Man DivX : Old Man DivX  
+Account Created: 2014-09-05T15:42:55Z  
+Link Karma:      4016  
+Comment Karma:   73311  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T16:50:19Z  
+Score:           382 points  
+Post Title:      Last night, Jimmy Kimmel didn't tell jokes. He stood on his stage, looked into the camera, and said plainly what the news anchors are too afraid to whisper. "We watched an American executed on video and officials won’t even admit it was a mistake."  
+:::::: Reddit User Comment: ======  
+"where are the reasonable voices" "we don't have to agree on everything.. but come on" been saying this all along, this isn't a political thing, it's a human thing. No one deserves to be killed, especially for what happened here in MN.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Call for a stop to all the comedy-washing joke-washing sane-washing of Trump through meme-making joke-cracking, humor-based mental exploits. Surkov won since March 2013.
+> 
+> * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+> ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University. Media studies / media ecology professor.
+>
+
+
+=============
+  
+## Reddit comment o21ow8u
+
+    entry 238
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qoiomj/last_night_jimmy_kimmel_didnt_tell_jokes_he_stood/o21ow8u/  
+Comment ID:      o21ow8u  
+Author:          okiimio  
+Bio:               
+Account Created: 2021-12-07T00:08:43Z  
+Link Karma:      83  
+Comment Karma:   22312  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T16:59:29Z  
+Score:           305 points  
+Post Title:      Last night, Jimmy Kimmel didn't tell jokes. He stood on his stage, looked into the camera, and said plainly what the news anchors are too afraid to whisper. "We watched an American executed on video and officials won’t even admit it was a mistake."  
+:::::: Reddit User Comment: ======  
+I kind of miss the old days when they would at least pretend like they’re not lying to us and said things like they are still gathering all the facts and cannot comment on an ongoing investigation. Now they immediately assign blame and say things that are obviously untrue.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "pretend", "untrue"
+>
+
+
+=============
+  
+## Reddit comment o20ul58
+
+    entry 239
+
+Comment URL: https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20ul58/  
+Comment ID:      o20ul58  
+Author:          AwokenByGunfire  
+Bio:             The was my country once, and may be again, but something has come between it and the sun.  
+Account Created: 2021-10-27T00:08:08Z  
+Link Karma:      4881  
+Comment Karma:   55420  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T14:43:37Z  
+Score:           4289 points  
+Post Title:      Protesters in Phoenix -- on the sidewalk, impeding no one -- get drive-by maced by an ICE agent from a truck  
+:::::: Reddit User Comment: ======  
+That’s a violent felony. Not even the absolute thinnest justification exists for this.
+
+
+
+
+=============
+  
+## Reddit comment o20s37i
+
+    entry 240
+
+Comment URL: https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20s37i/  
+Comment ID:      o20s37i  
+Author:          TrashApocalypse  
+Bio:               
+Account Created: 2020-09-21T17:01:04Z  
+Link Karma:      32750  
+Comment Karma:   138344  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T14:31:11Z  
+Score:           1810 points  
+Post Title:      Protesters in Phoenix -- on the sidewalk, impeding no one -- get drive-by maced by an ICE agent from a truck  
+:::::: Reddit User Comment: ======  
+This is state terrorism
+
+
+
+
+=============
+  
+## Reddit comment o20yrqx
+
+    entry 241
+
+Comment URL: https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20yrqx/  
+Comment ID:      o20yrqx  
+Author:          TheModWhoShaggedMe  
+Bio:             I will block psychos.  
+Account Created: 2025-04-10T22:06:13Z  
+Link Karma:      5517  
+Comment Karma:   175568  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T15:03:51Z  
+Score:           275 points  
+Post Title:      Protesters in Phoenix -- on the sidewalk, impeding no one -- get drive-by maced by an ICE agent from a truck  
+:::::: Reddit User Comment: ======  
+My brother\-in\-law, a detective, used to intentionally clip skateboarders with the mirrors on his vehicle (on the hip, their arm, etc.) when he was a beat cop driving by them. I know because he bragged about it at Christmas until we almost got into fisticuffs. When I asked if they were ever physically harmed, he joked that "a few probably aren't skating anymore".
+
+Conservatives are *the worst people you know.*
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o20v0ci
+
+    entry 242
+
+Comment URL: https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20v0ci/  
+Comment ID:      o20v0ci  
+Author:          Fun-Description-6069  
+Bio:             Country life is the same as mountain life but with better weather .  
+Account Created: 2022-12-11T14:07:19Z  
+Link Karma:      8  
+Comment Karma:   11735  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T14:45:40Z  
+Score:           124 points  
+Post Title:      Protesters in Phoenix -- on the sidewalk, impeding no one -- get drive-by maced by an ICE agent from a truck  
+:::::: Reddit User Comment: ======  
+They are terrorists. Gang members do drive by. Aresst them!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Media street gangs. Bible science fiction street gang against Carl Sagan science street gang. Fox News HDTV street gang against Reddit news street gang. People who are ALL VOIDING: Dr. Bandy X Lee being promoted every 12 hours on social media. Mental Health topics and quotes of nonfiction from Dr. Lee.
+>
+
+
+=============
+  
+## Reddit comment o20vroy
+
+    entry 243
+
+Comment URL: https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20vroy/  
+Comment ID:      o20vroy  
+Author:          MissTat2  
+Bio:               
+Account Created: 2025-07-16T15:57:38Z  
+Link Karma:      6650  
+Comment Karma:   20811  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T14:49:23Z  
+Score:           61 points  
+Post Title:      Protesters in Phoenix -- on the sidewalk, impeding no one -- get drive-by maced by an ICE agent from a truck  
+:::::: Reddit User Comment: ======  
+I think they are underestimating how bad an idea it is to do an operation in Phoenix. Anyone who lived through the Sheriff Arpaio years remembers the racist sweeps his goons used to do in the city. They had no pretense for asking for “papers” beyond just being brown in public. It was unconstitutional then and it is unconstitutional now.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o20vbfq
+
+    entry 244
+
+Comment URL: https://old.reddit.com/r/50501/comments/1qofc96/protesters_in_phoenix_on_the_sidewalk_impeding_no/o20vbfq/  
+Comment ID:      o20vbfq  
+Author:          NuclearReactions  
+Bio:             Prabhakar Raghavan and likeminded people are terrorists  
+Account Created: 2019-07-05T14:47:33Z  
+Link Karma:      3487  
+Comment Karma:   158057  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T14:47:11Z  
+Score:           264 points  
+Post Title:      Protesters in Phoenix -- on the sidewalk, impeding no one -- get drive-by maced by an ICE agent from a truck  
+:::::: Reddit User Comment: ======  
+Also ffs don't bring your pets to a protest, are you insane?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "insane"
+>
+
+
+=============
+  
+## Reddit comment o22dcey
+
+    entry 245
+
+Comment URL: https://old.reddit.com/r/news/comments/1qom99v/person_in_critical_condition_after_being_shot_in/o22dcey/  
+Comment ID:      o22dcey  
+Author:          jinglejangle_spurs  
+Bio:               
+Account Created: 2025-02-21T20:01:00Z  
+Link Karma:      1  
+Comment Karma:   40415  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T18:44:18Z  
+Score:           3219 points  
+Post Title:      Person in critical condition after being shot in incident involving border patrol in Arizona  
+:::::: Reddit User Comment: ======  
+Not to be confused with a separate shooting by Phoenix PD responding to a call. They shot the person who called for help. Shot him in the face. This happened last night.
+
+[https://ktar.com/arizona\-news/deadly\-shooting\-police\-west\-phoenix/5812764/](https://ktar.com/arizona-news/deadly-shooting-police-west-phoenix/5812764/)
+
+Old link wasn’t working for me anymore, so here’s another one:
+
+[https://www.abc15\.com/news/crime/person\-taken\-to\-hospital\-after\-being\-shot\-by\-phoenix\-police\-near\-75th\-avenue\-and\-lower\-buckeye\-road](https://www.abc15.com/news/crime/person-taken-to-hospital-after-being-shot-by-phoenix-police-near-75th-avenue-and-lower-buckeye-road)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account; top-upvoted popular comment.
+>
+
+
+=============
+  
+## Reddit comment o22bhaj
+
+    entry 246
+
+Comment URL: https://old.reddit.com/r/news/comments/1qom99v/person_in_critical_condition_after_being_shot_in/o22bhaj/  
+Comment ID:      o22bhaj  
+Author:          helava  
+Bio:               
+Account Created: 2016-01-21T00:34:33Z  
+Link Karma:      6169  
+Comment Karma:   142224  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T18:36:29Z  
+Score:           5118 points  
+Post Title:      Person in critical condition after being shot in incident involving border patrol in Arizona  
+:::::: Reddit User Comment: ======  
+Just remember: based on their record of blatant lies about every incident relating to ICE/CBP, nothing the government says about this is trustworthy.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> War Against Reality. War Against Nonfiction.
+>
+
+
+=============
+  
+## Reddit comment o22ktf5
+
+    entry 247
+
+Comment URL: https://old.reddit.com/r/nba/comments/1qonbeo/victor_wenbanyama_about_the_events_in_minnesota/o22ktf5/  
+Comment ID:      o22ktf5  
+Author:          desirox  
+Bio:               
+Account Created: 2017-03-12T21:53:38Z  
+Link Karma:      480  
+Comment Karma:   480541  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T19:16:16Z  
+Score:           828 points  
+Post Title:      Victor Wenbanyama about the events in Minnesota: Spurs PR has tried to train me, but I don’t want to be politically correct. It’s crazy that people make it seem like the murder of innocent civilians is acceptable  
+:::::: Reddit User Comment: ======  
+It’s insane that murder has been politicized
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Posting title "crazy", comment 'insane"
+>
+
+
+=============
+  
+## Reddit comment o20qqh6
+
+    entry 248
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_there_for/o20qqh6/  
+Comment ID:      o20qqh6  
+Author:          eagles_evertonfan88  
+Bio:               
+Account Created: 2025-02-14T20:01:21Z  
+Link Karma:      1  
+Comment Karma:   5873  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-27T14:24:30Z  
+Score:           1245 points  
+Post Title:      Literally what it's there for  
+:::::: Reddit User Comment: ======  
+Also, and this point can’t be made often enough, it’s ICE that’s dressed unnecessarily as a militia. They are enforcing civil violations for those who came here legally then overstayed, it’s not a criminal offense, and for those who entered illegally that’s a misdemeanor. They are fucking meter maids.
+
+Only those who have been deported and re\-entered have committed a felony
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11-month Reddit account; top-voted popular comment.
+>
+
+
+=============
+  
+## Reddit comment o20ypx5
+
+    entry 249
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_there_for/o20ypx5/  
+Comment ID:      o20ypx5  
+Author:          IhasCandies  
+Bio:               
+Account Created: 2009-10-28T13:36:48Z  
+Link Karma:      414  
+Comment Karma:   49298  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T15:03:37Z  
+Score:           5 points  
+Post Title:      Literally what it's there for  
+:::::: Reddit User Comment: ======  
+Remember when playing dungeons and dragons meant you were a Satan worshipper? Conservatives have always been able to twist the most innocent and mundane things into the most demonic and wicked shit imaginable. It honestly tells you what sort of sick twisted shit is going through these peoples minds at any given time to be able to conjure up such insane takes.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We The People, as a society, have not taken on educating Bible verse "1 John 4:20" to the general public. You have not seen the fiction character God. God is a metaphor. We are in a crisis of Levant science fiction trilogy ( Torah, Bible, Quran, Book of Mormon, etc) interpretation. People believe Fox News fiction is nonfiction, we are in full blown crisis concerning metaphors.
+> 
+> * “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+>
+
+
+=============
+  
+## Reddit comment o20sk7l
+
+    entry 250
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qoezyr/literally_what_its_there_for/o20sk7l/  
+Comment ID:      o20sk7l  
+Author:          ovrlrd1377  
+Bio:               
+Account Created: 2017-01-23T20:59:51Z  
+Link Karma:      129  
+Comment Karma:   46213  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-27T14:33:35Z  
+Score:           37 points  
+Post Title:      Literally what it's there for  
+:::::: Reddit User Comment: ======  
+If you find yourself in argument with an idiot, you just found two idiots
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Except when you argue in public on Twitter and Reddit you can document it on GitHub and teach media ecology self-awareness. People who are "an idiot" are very often not educated. Lacking self-awareness of how adult education works from Fox News HDTV. That's one of the most important education concerns of our time; Twitter, Bluesky, Reddit, YouTube, TikTok, Truth Social compulsive behaviors of hive minded individuals.
+> 
+> * "Being illiterate in the processes of any **medium** (language) leaves one at the mercy of those who control it. The **new media** — these new languages — then are among the most important "subjects" to be studied in the interests of survival." - Neil Postman on media ecology
+>
+
+
+=============
+  
+## Reddit comment o22jxxm
+
+    entry 251
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22jxxm/  
+Comment ID:      o22jxxm  
+Author:          WeirdProudAndHungry  
+Bio:               
+Account Created: 2023-04-24T00:19:56Z  
+Link Karma:      54823  
+Comment Karma:   90738  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T19:12:29Z  
+Score:           1537 points  
+Post Title:      Trump just doubled down on saying we don’t have 2A rights. The NRA has donated millions to Trump’s campaigns since 2016. Note: Unable to post his most recent statement because my post gets taken down *for repeating the President’s words*.  
+:::::: Reddit User Comment: ======  
+So he's already gotten rid of the 1st, 4th and 5th Amendments, now he's abolishing the 2nd? He's crossing off the Bill of Rights like it's a grocery list.
+
+
+
+
+=============
+  
+## Reddit comment o22isss
+
+    entry 252
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22isss/  
+Comment ID:      o22isss  
+Author:          KarateKid1984  
+Bio:               
+Account Created: 2014-11-09T00:45:12Z  
+Link Karma:      44560  
+Comment Karma:   365749  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T19:07:30Z  
+Score:           1477 points  
+Post Title:      Trump just doubled down on saying we don’t have 2A rights. The NRA has donated millions to Trump’s campaigns since 2016. Note: Unable to post his most recent statement because my post gets taken down *for repeating the President’s words*.  
+:::::: Reddit User Comment: ======  
+I'm just waiting to see how the conservative sub spins this to say "WELL....what he's really saying is....and here's why it's good for us..."
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Loyal fandom to Trump contenting, waiting to watch how competing audiences react to the Reality White House Kremlin entertainment. High speed messaging addictions now drive society. People who get into media fandom clubs of Trump / ICE / MAGA / Rupert Murdoch managed commentary - and react like team fans. Group thinking. All of which are so engaged by the social media engagement systems / memes and Fox News graphic artists - that they do not desire to *remove Trump* and heal MAGA - because the entertainment will no longer stimulate their minds. Addiction to Trump stimulation. Antics politics fandoms. ALWAYS AVOIDING: promoting Dr. Bandy X Lee and her October 3, 2017 nonfiction book on mental health of Trump and how dangerous it is to have Donald Trump in power.
+>
+
+
+=============
+  
+## Reddit comment o22kb24
+
+    entry 253
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22kb24/  
+Comment ID:      o22kb24  
+Author:          Whornz4  
+Bio:               
+Account Created: 2019-02-14T03:07:39Z  
+Link Karma:      5951  
+Comment Karma:   360489  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T19:14:04Z  
+Score:           392 points  
+Post Title:      Trump just doubled down on saying we don’t have 2A rights. The NRA has donated millions to Trump’s campaigns since 2016. Note: Unable to post his most recent statement because my post gets taken down *for repeating the President’s words*.  
+:::::: Reddit User Comment: ======  
+These idiots at the NRA were too racist and stupid to realize that a black president sells a lot more guns. Had they supported Kamala Harris, their sales and membership would have drastically increased. Nope the ly chose chaos. Now let it consume them.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Gun sales. Weapon brandishing. Hate motivates.
+>
+
+
+=============
+  
+## Reddit comment o22kp4o
+
+    entry 254
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qon0en/trump_just_doubled_down_on_saying_we_dont_have_2a/o22kp4o/  
+Comment ID:      o22kp4o  
+Author:          Oxy_1993  
+Bio:               
+Account Created: 2020-12-16T04:37:55Z  
+Link Karma:      132  
+Comment Karma:   63670  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T19:15:45Z  
+Score:           176 points  
+Post Title:      Trump just doubled down on saying we don’t have 2A rights. The NRA has donated millions to Trump’s campaigns since 2016. Note: Unable to post his most recent statement because my post gets taken down *for repeating the President’s words*.  
+:::::: Reddit User Comment: ======  
+Wait for MAGA to say “well, we never cared about our guns anyway, 2A should be abolished”…. They’ll move goalposts for their orange shitstain Jesus
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Jesus"
+>
+
+
+=============
+  
+## Reddit comment o21h186
+
+    entry 255
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21h186/  
+Comment ID:      o21h186  
+Author:          Rekltpzyxm  
+Bio:               
+Account Created: 2023-05-12T17:08:11Z  
+Link Karma:      28  
+Comment Karma:   6374  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T16:25:40Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+This is how they normalize hatred and racism.
+
+
+
+
+=============
+  
+## Reddit comment o21w4op
+
+    entry 256
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21w4op/  
+Comment ID:      o21w4op  
+Author:          batmanineurope  
+Bio:               
+Account Created: 2023-02-21T21:30:21Z  
+Link Karma:      4883  
+Comment Karma:   69014  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-27T17:30:54Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+Is there any actual reason to why they put up that slogan?
+
+Edit: So I found out the reason. Some PTA parents couldn't be bothered to have their kids wear masks during COVID, so they threatened and intimidated school officials, and the FBI (temporarilly) labeled them domestic terrorists so their threats could be tracked. Which tracks for conservatives \- not bothering to help others if it inconveniences them and then resorting to threats \- so makes sense that they would take this as a sense of pride.
+
+
+
+
+=============
+  
+## Reddit comment o21pndh
+
+    entry 257
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21pndh/  
+Comment ID:      o21pndh  
+Author:          ThickMikeyMoolah  
+Bio:             Bobby_Bamboozled :   
+Account Created: 2025-06-04T02:45:15Z  
+Link Karma:      1  
+Comment Karma:   8568  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T17:02:44Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+Bro. What the fuck is happening
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 7 month Reddit account. Mocking name ("Bamboozled") on profile. Tiny-short Twitter-think Tweet-length messaging of banality.
+>
+
+
+=============
+  
+## Reddit comment o21s55c
+
+    entry 258
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21s55c/  
+Comment ID:      o21s55c  
+Author:          A-Chntrd  
+Bio:               
+Account Created: 2022-08-19T12:02:07Z  
+Link Karma:      26  
+Comment Karma:   111391  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T17:13:37Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+When people tell you who they are… believe them. And then move on, don’t argue with them. 
+
+This ain’t something to joke about and then be taken seriously anyway. It’s like your date bragging about never been found guilty of date rape and then bragging he knows of a drug that leaves zero traces…
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit society jokes about everything. Joking about Trump being weak, Trump only golfing and not being a threat to humanity. Joke-washing mockery-washing, LOL-washing / LOL cow milking of Trump is his very source of power. Comedy audience keeps Trump at the center of all jokes, all amusement, all memes, all day, all night.
+>
+
+
+=============
+  
+## Reddit comment o21j7af
+
+    entry 259
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o21j7af/  
+Comment ID:      o21j7af  
+Author:          tr00th  
+Bio:             tr00th : I Don't Want to Live on This Planet Anymore  
+Account Created: 2016-11-12T20:38:01Z  
+Link Karma:      24389  
+Comment Karma:   325615  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T16:35:07Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+Basket of Deplorables, just like Hilary said they were.
+
+
+
+
+=============
+  
+## Reddit comment o221u5o
+
+    entry 260
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o221u5o/  
+Comment ID:      o221u5o  
+Author:          Spartan2470  
+Bio:               
+Account Created: 2012-05-10T19:08:00Z  
+Link Karma:      15088  
+Comment Karma:   3583583  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-27T17:55:35Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+[Here](https://media2.dallasobserver.com/dal/imager/u/original/14546296/domestic-terrorists-cpac-dallas-patrick-strickland.jpg) is a much higher\-quality version of this image. [Here](https://www.dallasobserver.com/news/at-cpac-dallas-migration-is-an-invasion-communism-looms-and-trumps-the-most-persecuted-man-in-america-14533888/) is the source that has a pretty good article about this. Credit to the photographer and author, Patrick Strickland.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Nonfiction serious commenting. There needs to be editors, not moderators, but edited commentary overlayed with posting. Rewrite titles, one-paragraph summary. Pool of editors you can subscribe to. Like having Roger Ebert reviews to go along with a film.
+>
+
+
+=============
+  
+## Reddit comment o22dt99
+
+    entry 261
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22dt99/  
+Comment ID:      o22dt99  
+Author:          RiddleyWaIker  
+Bio:               
+Account Created: 2018-04-21T07:25:45Z  
+Link Karma:      174  
+Comment Karma:   10843  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T18:46:15Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+The right is the enemy of all life on Earth, and must be destroyed entirely once and for all.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Tweet-length Twitter-think simplistic logic binary answer to complex problems. Right vs. left one-bit brainrot mindsets. No off-Reddit URL, no book quotes, no author names. It is so easy to toss out hate-filled *kill everyone* simplistic shit-commenting shit-postings. We are drowning in MAGA thinking like this. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o22sldv
+
+    entry 262
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22sldv/  
+Comment ID:      o22sldv  
+Author:          Memitim  
+Bio:             Stonemuzzle :   
+Account Created: 2009-12-18T13:30:45Z  
+Link Karma:      412  
+Comment Karma:   111050  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T19:50:49Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+And conservatives nodded their heads and went along with it. Republicans knew their audience, and now we do, too. This past year has been a clinic in conservative evil.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Putin won an information war, and people think the chaotic reactions pandemic and COVID-2019 had nothing to do with Russia's Internet Research Agency in Saint Petersburg.  AVOIDED: Factual evidence, validated evidence released August 24, 2018: https://www.bbc.com/news/world-us-canada-45294192 and people still think it is LOL LOL LOL LMAO funny to have RFK Jr spreading measles and people will not address the Twitter fnadom mindsets, Fox News HDTV mindsets. Dangerous is the words Dr. Bandy X Lee uses about mental health - and so much time is wasted "debating" as Putin conditioned. Read it again: https://www.bbc.com/news/world-us-canada-45294192
+> 
+> We are manipulating our own brains, exploiting our minds, into feedback loops of Americans vs. Americans because of addiction to high-speed Twitter messaging. https://www.bbc.com/news/world-us-canada-45294192
+>
+
+
+=============
+  
+## Reddit comment o220tof
+
+    entry 263
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o220tof/  
+Comment ID:      o220tof  
+Author:          CrimsonHeretic  
+Bio:               
+Account Created: 2013-07-15T20:36:25Z  
+Link Karma:      167  
+Comment Karma:   57617  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-27T17:51:20Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+All Republicans are fascist domestic terrorists. All of them. There are no exceptions. 
+
+How do you have a functioning society when 42% of it supports ICE?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Again, READ these Reddit messages in this commenting thread. Then ask yourself: Why are so many people using their spare time and free time and not promoting and following the leadership of Dr. Bandy X Lee since she published her October 3, 2017 book?
+> 
+> * "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter provide immediate access to news as well as to comments from other readers with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites much more often** than they previously did, and the amount of **news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming**. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them a false sense of control and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning, page ??.
+>
+
+
+=============
+  
+## Reddit comment o22mxjj
+
+    entry 264
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22mxjj/  
+Comment ID:      o22mxjj  
+Author:          bgzlvsdmb  
+Bio:               
+Account Created: 2012-07-19T07:11:47Z  
+Link Karma:      34615  
+Comment Karma:   231681  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T19:25:35Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+Trying (read: desperately trying) to give them the benefit of the doubt, it always seemed like they only did this to piss off the people calling them "domestic terrorists." Since owning libs is the only platform most conservatives have. 
+
+Turns out, they were openly admitting how awful they really are. And they were still holding back. Who knows what evil they will unleash in 2026\.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The entire world, over 8 billion people, are going to think that about USA as a nation in total. A nation of 0.34 billion who did not rise up and **OCCUPY SOCIAL MEDIA** calling for Dr. Bandy X Lee leadership on mental health. The absent Internet social media teaching about Fox News brainwashing, promoting Jen Senko's film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Instead, we get low-effort different-page commenting over and over since June 16, 2015. Internet users will not come together on the same page of promoting Dr. Bandy X Lee's mental health topics. 
+> 
+> People in commenting complain over and over and over and over about "The Media" while not encouraging online meetings, FAQ, Wiki organizing of topics, WikiTribune as We The People news reporting. So much free time and spare time consumed with low-effort disorganized commenting on Bluesky and Reddit.
+>
+
+
+=============
+  
+## Reddit comment o22zhc1
+
+    entry 265
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22zhc1/  
+Comment ID:      o22zhc1  
+Author:          orangesfwr  
+Bio:               
+Account Created: 2017-12-31T16:42:45Z  
+Link Karma:      3869  
+Comment Karma:   339323  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T20:21:46Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+They told you who they are. You didn't believe them.
+
+
+
+
+=============
+  
+## Reddit comment o22y3u4
+
+    entry 266
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoied3/a_photo_of_the_us_republican_cpac_in_2022/o22y3u4/  
+Comment ID:      o22y3u4  
+Author:          nathism  
+Bio:               
+Account Created: 2010-02-18T12:35:06Z  
+Link Karma:      397  
+Comment Karma:   30962  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T20:15:30Z  
+Score:           None  
+Post Title:      A Photo of the US Republican CPAC in 2022  
+:::::: Reddit User Comment: ======  
+Yeah this is the most fucking moronic part about all of this. Republicans gloated about the fact that their side were labeled as Domestic terrorists and claimed it didn't mean anything and now that they are in charge they are trying to re\-legitimize the term and prosecute folks for it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The entire nation won't be bothered to learn **serious nonfiction** about the Internet Research Agency in Saint Petersburg. People won't discuss what exactly Cambridge Analytica did to minds / mental programming that doctors of psychology and psychiatry designed.
+> 
+> * May 7, 2017  https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
+>
