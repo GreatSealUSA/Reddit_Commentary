@@ -5549,3 +5549,417 @@ Keep the pressure on, folks.
 > :::::: Analysis_Thoughts Commentary: ======  
 > 9 month Reddit account. "Symbolic"; user profile talks about "Reality"
 >
+
+
+=============
+  
+## Reddit comment o1xed52
+
+    entry 199
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xed52/  
+Comment ID:      o1xed52  
+Author:          MentalSky_  
+Bio:               
+Account Created: 2025-10-02T00:29:12Z  
+Link Karma:      209  
+Comment Karma:   30949  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T00:38:36Z  
+Score:           3057 points  
+Post Title:      Fox News throws No and Bovino under the bus  
+:::::: Reddit User Comment: ======  
+The second they questioned the 2A and said cops can shoot you for legally carrying they were done.
+
+Alex’s death was too real. White, male, 2A advocate with legal carry, VA nurse.
+
+No spin was going to work for the non\-maga republicans.
+
+And Trump needs the non\-maga republicans if he wants to survive the midterm.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account. Top-voted popular comment.
+>
+
+
+=============
+  
+## Reddit comment o1xdzi8
+
+    entry 200
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xdzi8/  
+Comment ID:      o1xdzi8  
+Author:          xdr01  
+Bio:               
+Account Created: 2016-11-27T11:26:45Z  
+Link Karma:      11295  
+Comment Karma:   250749  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T00:36:38Z  
+Score:           45 points  
+Post Title:      Fox News throws No and Bovino under the bus  
+:::::: Reddit User Comment: ======  
+Yeah today, tomorrow puppy killer Barbie will be the saviour of the US.
+
+This is how state media dodges any accountability for their constant lies.
+
+
+
+
+=============
+  
+## Reddit comment o1xkgao
+
+    entry 201
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xkgao/  
+Comment ID:      o1xkgao  
+Author:          Main-Eagle-26  
+Bio:             Mal :   
+Account Created: 2021-02-05T00:01:13Z  
+Link Karma:      255  
+Comment Karma:   50565  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T01:10:32Z  
+Score:           32 points  
+Post Title:      Fox News throws No and Bovino under the bus  
+:::::: Reddit User Comment: ======  
+NOT GOOD ENOUGH. This is a symbolic distraction for one low level loser and a figurehead.
+
+Stephen Miller is THE REAL PROBLEM. NONE OF US should be satisfied until Miller is OUT of government. He is the white supremacist zealot behind all of this and HE MUST BE REMOVED.
+
+
+
+
+=============
+  
+## Reddit comment o1xof3s
+
+    entry 202
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1qnydfp/fox_news_throws_no_and_bovino_under_the_bus/o1xof3s/  
+Comment ID:      o1xof3s  
+Author:          SinfullySinless  
+Bio:               
+Account Created: 2017-01-06T04:51:09Z  
+Link Karma:      29606  
+Comment Karma:   876337  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T01:32:09Z  
+Score:           9 points  
+Post Title:      Fox News throws No and Bovino under the bus  
+:::::: Reddit User Comment: ======  
+As a Minnesotan, nothing would please me more than the total downfall and disgrace of Kristi Noem by Trump and the Republicans. She spent her governorship constantly chirping about Minnesota.
+
+
+
+
+=============
+  
+## Reddit comment o1xziru
+
+    entry 203
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with_secret_bid_to/o1xziru/  
+Comment ID:      o1xziru  
+Author:          Patman350  
+Bio:               
+Account Created: 2014-05-29T01:46:43Z  
+Link Karma:      16955  
+Comment Karma:   46850  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T02:32:56Z  
+Score:           1788 points  
+Post Title:      Trump Sparks Fresh Outrage With Secret Bid to Send ICE to the Olympics | The report has led to anger, confusion, petitions, and demands that Trump’s “thugs” not be allowed to set foot in Italy.  
+:::::: Reddit User Comment: ======  
+Ok. This is it. This is the dumbest thing I’ve read all day.
+
+
+
+
+=============
+  
+## Reddit comment o1y8zpe
+
+    entry 204
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with_secret_bid_to/o1y8zpe/  
+Comment ID:      o1y8zpe  
+Author:          femmestem  
+Bio:               
+Account Created: 2014-01-29T23:08:11Z  
+Link Karma:      4333  
+Comment Karma:   87668  
+Comment Age:     54 minutes ago  
+Timestamp:       2026-01-27T03:25:18Z  
+Score:           28 points  
+Post Title:      Trump Sparks Fresh Outrage With Secret Bid to Send ICE to the Olympics | The report has led to anger, confusion, petitions, and demands that Trump’s “thugs” not be allowed to set foot in Italy.  
+:::::: Reddit User Comment: ======  
+I accidentally sanewashed this myself because it makes no sense for him to send ICE agents abroad. No matter what anyone thought of him before, this is another level of bizarre.
+
+
+
+
+=============
+  
+## Reddit comment o1xzxnn
+
+    entry 205
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with_secret_bid_to/o1xzxnn/  
+Comment ID:      o1xzxnn  
+Author:          skippitypapps  
+Bio:               
+Account Created: 2022-03-05T18:41:33Z  
+Link Karma:      208  
+Comment Karma:   15076  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T02:35:14Z  
+Score:           282 points  
+Post Title:      Trump Sparks Fresh Outrage With Secret Bid to Send ICE to the Olympics | The report has led to anger, confusion, petitions, and demands that Trump’s “thugs” not be allowed to set foot in Italy.  
+:::::: Reddit User Comment: ======  
+I just...what??
+
+Can I PLEASE crack this bottle of champagne open soon? Like, this week would be great.
+
+
+
+
+=============
+  
+## Reddit comment o1y9hf4
+
+    entry 206
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qo1472/trump_sparks_fresh_outrage_with_secret_bid_to/o1y9hf4/  
+Comment ID:      o1y9hf4  
+Author:          chbb  
+Bio:               
+Account Created: 2016-07-25T23:18:40Z  
+Link Karma:      122  
+Comment Karma:   1121  
+Comment Age:     57 minutes ago  
+Timestamp:       2026-01-27T03:28:07Z  
+Score:           46 points  
+Post Title:      Trump Sparks Fresh Outrage With Secret Bid to Send ICE to the Olympics | The report has led to anger, confusion, petitions, and demands that Trump’s “thugs” not be allowed to set foot in Italy.  
+:::::: Reddit User Comment: ======  
+Because he does not trust regular Secret Service.
+
+Very typical that dictator does not trust “regulars”, who are suspected of having loyalty lie with the country, not with the boss.
+
+
+
+
+=============
+  
+## Reddit comment o1y49wg
+
+    entry 207
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qo1om5/just_comply/o1y49wg/  
+Comment ID:      o1y49wg  
+Author:          ChefAsstastic  
+Bio:             We Will Rise Again : Cincinnati Chili Recipe 3 hrs
+2 lb ground beef, 1 onion, 1 tbsp cocoa powder, 1 tsp clove, 1 tsp allspice, 1 tbsp apple cider vinegar, 1 bay leaf, 1 qt water, 1 tbsp Chili powder,1 tbsp Worcestershire  
+Account Created: 2024-11-10T13:22:12Z  
+Link Karma:      12421  
+Comment Karma:   269596  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T02:58:47Z  
+Score:           287 points  
+Post Title:      Just comply......  
+:::::: Reddit User Comment: ======  
+They've sold their souls.
+
+
+
+
+=============
+  
+## Reddit comment o1y5s52
+
+    entry 208
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qo1om5/just_comply/o1y5s52/  
+Comment ID:      o1y5s52  
+Author:          at_least_u_tried  
+Bio:               
+Account Created: 2017-01-20T01:37:19Z  
+Link Karma:      4226  
+Comment Karma:   94961  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T03:07:06Z  
+Score:           108 points  
+Post Title:      Just comply......  
+:::::: Reddit User Comment: ======  
+“then you get to keep your life”
+
+how can someone read this phrasing and not see it as unhinged
+
+
+
+
+=============
+  
+## Reddit comment o1y4ai4
+
+    entry 209
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qo1om5/just_comply/o1y4ai4/  
+Comment ID:      o1y4ai4  
+Author:          StickComfortable346  
+Bio:             Subject_Name_Here :   
+Account Created: 2025-10-24T13:16:05Z  
+Link Karma:      373  
+Comment Karma:   5790  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-27T02:58:52Z  
+Score:           23 points  
+Post Title:      Just comply......  
+:::::: Reddit User Comment: ======  
+We’re so unbelievably cooked to the point that future students will view us as 1930s Germany that not only stood by while fascists took over the country but failed to learn from THE FIRST TIME IT HAPPENED
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1yblhl
+
+    entry 210
+
+Comment URL: https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1yblhl/  
+Comment ID:      o1yblhl  
+Author:          Depressed-Industry  
+Bio:               
+Account Created: 2025-02-28T00:43:55Z  
+Link Karma:      11  
+Comment Karma:   126286  
+Comment Age:     8 hours ago  
+Timestamp:       2026-01-27T03:40:29Z  
+Score:           2172 points  
+Post Title:      White House backtracks initial claims about Alex Pretti after intense backlash | Trump administration  
+:::::: Reddit User Comment: ======  
+"Todd Blanche, the deputy attorney general, separately tried to backpedal on behalf of the administration, telling Fox News: “I don’t think anybody thinks that they were comparing what happened on Saturday to the legal definition of domestic terrorism.”
+
+Krusty Gnome literally said that.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The top message and highest reply to message are 1 year Reddit accounts.
+>
+
+
+=============
+  
+## Reddit comment o1y53s9
+
+    entry 211
+
+Comment URL: https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1y53s9/  
+Comment ID:      o1y53s9  
+Author:          slumvillain  
+Bio:             glumvillain : people weird me out.  
+Account Created: 2017-09-11T00:59:59Z  
+Link Karma:      3754  
+Comment Karma:   142656  
+Comment Age:     9 hours ago  
+Timestamp:       2026-01-27T03:03:21Z  
+Score:           914 points  
+Post Title:      White House backtracks initial claims about Alex Pretti after intense backlash | Trump administration  
+:::::: Reddit User Comment: ======  
+And yet nobody worth a damn is able to hold anyone accountable.
+
+Vigorous finger wagging in the face of violence isn't how I raised to believe Americans dealt with bullies. Much less tyrannical bastards cosplaying as military in the streets.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> IMPORTANT_A expand on this.
+> 
+> <img width="951" height="1469" alt="image" src="https://github.com/user-attachments/assets/156c0bde-7ea1-4c26-9439-afad77a56ce0" />
+> 
+> Street gang signs of pro-violence, anti-MLK Jr. Raised in USA to believe in gun worship an gun violence and to ignorance the huge progress GLOBALLY of Dr. Martin Luther King Jr's ideas. People an not see how they are glued to Reddit commenting. And the CONTENT of that commenting, such as promoting violence. There is no morality teaching. MAGA is a cult, and Fox News HDTV is a cult, and Reddit is a cult. Fiction low-effort information cults.
+> 
+> Memes and jokes have wrecked the USA via the Russian Internet Research Agency. Russia / Putin is the BULLY that has been openly abusing Ukraine and threatening NATO with nuclear war. But Reddit consumers will not hold Russia accountable on REDDIT by keeping the EYE on the ball. 
+> 
+> 1. 4 days ago https://www.ibtimes.co.uk/russian-state-tv-issues-chilling-warning-that-britain-could-cease-exist-strike-1773296
+> 
+> 2. December 14, 2025 https://www.express.co.uk/news/world/2146085/russia-sends-horror-ww3-threat
+> 
+> 3. August 24, 2018 pre-pandemic; Measles and before COVID-2019 https://www.bbc.com/news/world-us-canada-45294192
+> 
+> 4. You need to read the links and actually look for more
+> 
+> 5. November 2, 2025 https://ukdefencejournal.org.uk/russia-threatens-nuclear-armageddon/
+> 
+> 6. Reddit is NOT standing up to the Bully that has backed Trump and MAGA since March 2013 and manipulated minds.
+> 
+> 7. February 29, 2024 https://www.reuters.com/world/europe/putin-warns-west-risk-nuclear-war-says-moscow-can-strike-western-targets-2024-02-29/
+> 
+> 8. Your nation is the bullies to Greenland and Canada, so by the logic of violence dealing with bullies, the entire USA should be wrecked.
+> 
+> 9. All war is raising children to solve problems with war. LOOK AROUND, why for year after year does Reddit not put as much attention on Russia backing Trump as it does in hating rural less-educated, poorly educated, abused by billionaire Rupert Murdoch rural less-educated Americans? The education system has failed to prepare people for low-effort commenting addictions. Have you forgotten what Twitter, Facebook and memes have done to rural Americans since the Apple iPhone and Apple iPad took over daily life in year 2007? You never fucking heard of "Truth Social" how you were raised, wake the fuck up that information war is a real war! Terrorism and manipulated people to die for a Heaven and Eden AFTER DEATH is a real funking mind war of suicide airplane pilots, 9/11, September 11 brainwashing!!! Mosque mind war. Fox News HDTV mind war. Truth Social mind war!!! Internet Research Agency in Saint Petersburg MIND WAR. Cambridge Analytica MIND WAR!!! Spread COVID-2019, spread measles, flat earth MIND WAR! Russia won! Guns do not fix cults and terrorism. Books do. Nobody stood up for Malala in a SUSTAINED way. Fox News HDTV has been a sustained mind-fucking.
+> 
+> Go over this list, and look at the addictions to short engaging commenting over and over every hour on Reddit. Life did not used to be like this before social media addictions took over. Read this: September 10, 2025: https://Time.com/7313999/neil-postman-trump-prediction/ only 139 days ago! Time Magazine!!!
+> 
+> People on Reddit are following Putin's lead to self-harm USA. People on Reddit are following Trump's lead to self-harm USA. Surkov won. Russia has been the BULLY that the USA Pentagon / military has lost, NATO is wrecked. WAKE UP! The whole world is watching the anti-NATO pro-Putin BULLSHIT!
+>
+
+
+=============
+  
+## Reddit comment o1y6734
+
+    entry 212
+
+Comment URL: https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1y6734/  
+Comment ID:      o1y6734  
+Author:          ForsakenRacism  
+Bio:               
+Account Created: 2023-03-21T03:42:58Z  
+Link Karma:      3196  
+Comment Karma:   549518  
+Comment Age:     10 hours ago  
+Timestamp:       2026-01-27T03:09:26Z  
+Score:           737 points  
+Post Title:      White House backtracks initial claims about Alex Pretti after intense backlash | Trump administration  
+:::::: Reddit User Comment: ======  
+I was laughing cus those agents will get sold out in a millisecond if the president decides to change his mind. They aren’t actually loyal to them
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "laughing", everything Trump does is so entertaining to low-effort commenting addicts on meme gathering spots (Reddit) with touch high-speed reacting machines.
+> 
+> * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+> 
+> For, in the end, Russia mind-fucked MAGA first, the rural less-education population to laugh and mock "liberal tears" and now everyone is laughing and mocking back at MAGA. Russia created a feedback loop of /r/Conservative /r/The_Donald since March 2013 that has become "liberal tears", LOL LOL LOL, "Leopards Ate Faces", LOL LOL LOL laughing again and again.
+> 
+> * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+> 
+> UKRAINE WAR, is when it all started. MAGA, Trump, Musk, all the shit that dominates the news every hour of every day on Reddit regarding MAGA and Trump started February 20, 2014 with Crimea and Ukraine. Neil Postmen was WARNING US about Fox News in year 1985, which is 11 years BEFORE Fox News in year 1996. Reddit, Facebook, Musk Twitter, THE NEWS IS THE PROBLEM.
+> 
+> We are fighting news network vs. news network. Twitter vs. Reddit. Subreddit vs. Subreddit. Information bubble, egoism, egomania, information overload symptoms!
+> 
+> NOBODY fucking wins in murder and war. NOBODY wins. It just fucks up the minds of children that war and terrorism and bombing and guns solve problem. MLK Jr was correct. Malala was correct in year 2013. But we have to deal with the brain issues. The mind issues. Dr. Bandy X Lee - why has Reddit not made her super famous, more famous than Epstein in year 2025? Why is Dr. Bandy X Lee's leadership ignored? Why is Jen Senko's social leadership ignored? Why is the Fox News HDTV issue not having protests in the street about billionaire Rupert Murdoch mind-fucking less-educated rural farmers and small-town "red state" areas? NEW YORK CITY FOX NEWS, has mind-fucked rural less educated small towns. And why isn't Jen Senko discussed every single day for being a hero?
+> 
+> LOOK AT THE DATE this was published and COUNT how many times Reddit comments have mentioned the "Fox News" problem since year 2015 when this was published!!!!
+> 
+> * “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its **version of reality**, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.”
+> ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+> 
+> We are living in subreddit by subreddit, TV channel by TV news channel. ARG. Alternate Reality Games. Everyone on DIFFERENT PAGES.
+> 
+> Think back to year 2013, before that was published October 27, 2015. Think back before Donald Trump was the magical disco ball of egoism reflecting since June 16, 2015. Beg everyone around you to pay attention and keep re-reading and thinking BEFORE Trump was front page of Reddit /r/All every hour of every day. Back to January 2015.
+> 
+> *  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+>
