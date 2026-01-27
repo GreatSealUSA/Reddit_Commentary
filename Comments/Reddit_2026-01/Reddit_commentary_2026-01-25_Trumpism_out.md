@@ -5938,6 +5938,8 @@ I was laughing cus those agents will get sold out in a millisecond if the presid
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1091" height="468" alt="image" src="https://github.com/user-attachments/assets/bf7e6a4c-5d2e-4a63-9922-79f8e2111da5" />
+> 
 > "laughing", everything Trump does is so entertaining to low-effort commenting addicts on meme gathering spots (Reddit) with touch high-speed reacting machines.
 > 
 > * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
@@ -5962,4 +5964,39 @@ I was laughing cus those agents will get sold out in a millisecond if the presid
 > Think back to year 2013, before that was published October 27, 2015. Think back before Donald Trump was the magical disco ball of egoism reflecting since June 16, 2015. Beg everyone around you to pay attention and keep re-reading and thinking BEFORE Trump was front page of Reddit /r/All every hour of every day. Back to January 2015.
 > 
 > *  Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+>
+
+
+=============
+  
+## Reddit comment o1yn3am
+
+    entry 213
+
+Comment URL: https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1yn3am/  
+Comment ID:      o1yn3am  
+Author:          mylopolis  
+Bio:             mylo : hi  
+Account Created: 2010-11-15T18:04:29Z  
+Link Karma:      1579  
+Comment Karma:   62832  
+Comment Age:     8 hours ago  
+Timestamp:       2026-01-27T04:52:30Z  
+Score:           186 points  
+Post Title:      White House backtracks initial claims about Alex Pretti after intense backlash | Trump administration  
+:::::: Reddit User Comment: ======  
+she has no soul. nobody can do what she does and have any concept of emotion
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="877" height="385" alt="image" src="https://github.com/user-attachments/assets/06f67a09-9282-4d76-95dc-0a450218311d" />
+> 
+> In **traditional "Western Culture'**, that attitude and behavior is considered the worst sin. To declare a human person to be without soul. Bible verses { Matthew 12:31-32, Mark 3:28-30, Luke 12:10 }. "Therefore I tell you, every sin and blasphemy will be forgiven people, but the blasphemy against **the Spirit** will not be forgiven. And whoever speaks a word against the Son of Man will be forgiven, but whoever speaks against the Holy **Spirit** will not be forgiven, either in this age or in the age to come"
+> 
+> I believe in the Great Seal of the United States of America - that teaches **soul is a product of education**. And the anti-goodness soul is the product of October 7, 1996 onward Fox News HDTV and the Rupert Murdoch media empire. Just like anti-goodness souls come out of terrorism Mosque teachings (not all Mosques teach the same way,  not all HDTV networks teach the same way, not all book authors tell the same fiction stories with the same audience fandom outcomes, cult fandoms / fanbases).
+> 
+> I believe the USA society has moved as far away from Woodstock 1969; August 15, 1969 – August 18, 1969 New York to Trump New York, SNL New York (Tony Clifton acting by Trump), Fox News New York since October 7, 1996. I think Woodstock was our peak soul programming from white men, white young men rock and roll from UK / London airport to New York state airports... that was when we peaked white men education. Then the white men Rupert Murdoch, Trump and Musk took over for the white men.
+> 
+> AND, for the record, the white men at Woodstock in August 1969 had as many problems with 13 year old girl sex as the white men of Fox News, Musk, Trump August 2025. We all need to get behind Malala since October 8, 2013 - as that is a GLOBAL problem with men.
 >
