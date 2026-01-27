@@ -4808,3 +4808,690 @@ Why is anyone surprised? They've been militarizing our police forces and every 3
 > 
 > * "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.Heritage.Org/defense/commentary/putin-winning-russias-hybrid-war-against-america (Before January 6, 2021 - by weeks. QAnon was Russian Hybrid warfare, QAnon flags on January 6 https://Old.Reddit.com/r/QAnonRussia QAnon-Russia subreddit)
 >
+
+
+=============
+  
+## Reddit comment o1vdfj8
+
+    entry 171
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vdfj8/  
+Comment ID:      o1vdfj8  
+Author:          Gildian  
+Bio:               
+Account Created: 2009-11-05T18:26:01Z  
+Link Karma:      4648  
+Comment Karma:   178243  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T19:00:34Z  
+Score:           2 points  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Wtf is with this sub and the sheer amount of bot accounts and bootlickers
+
+
+
+
+=============
+  
+## Reddit comment o1vei6h
+
+    entry 172
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vei6h/  
+Comment ID:      o1vei6h  
+Author:          Squidorb  
+Bio:               
+Account Created: 2016-11-06T21:20:45Z  
+Link Karma:      2626  
+Comment Karma:   11617  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-26T19:05:07Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Sad that this sub is being brigaded but us people that actually live here know the truth
+
+
+
+
+=============
+  
+## Reddit comment o1vge7k
+
+    entry 173
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vge7k/  
+Comment ID:      o1vge7k  
+Author:          Low-Syllable-Whisper  
+Bio:               
+Account Created: 2025-06-22T22:15:11Z  
+Link Karma:      5  
+Comment Karma:   260  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:13:06Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+SHOW ME YOUR PAPERS!
+
+Keep this clearly documented trend in mind:
+
+1. Maga does a terrible thing.
+2. People react.
+3. Maga doubles down, makes excuses, does something even worse than before.
+4. Repeat.
+
+THERE IS NO BOTTOM FOR THE maga FASCISTS.
+
+WHATEVER COMES NEXT WILL BE WORSE.
+
+Act accordingly and ACT NOW.
+
+DO NOT WAIT FOR ORDERS, INVENT SOLUTIONS!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 7 month Reddit account. "people react", reaction commenting on Reddit. Media addictions are why people follow Trump's leadership. Trump provides hate signaling that people follow. Hate leads the USA. You do not see people on social media calling for attention to be focused on mental health professionals like Dr. Bandy X Lee since year 2017. Instead, you see media sickness / addiction to fiction and antics.
+>
+
+
+=============
+  
+## Reddit comment o1vgeqv
+
+    entry 174
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vgeqv/  
+Comment ID:      o1vgeqv  
+Author:          No-Management-1521  
+Bio:               
+Account Created: 2023-02-15T12:59:45Z  
+Link Karma:      1  
+Comment Karma:   1017  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:13:09Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Play stupid games win stupid prizes, you have no business interfering with any form of law enforcement. Funny they leave out the part we're his parents told him not to go that this was going to happen if he tried to interfere.
+
+
+
+
+=============
+  
+## Reddit comment o1vipam
+
+    entry 175
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vipam/  
+Comment ID:      o1vipam  
+Author:          InternationalNet8193  
+Bio:               
+Account Created: 2022-05-12T11:14:14Z  
+Link Karma:      1  
+Comment Karma:   -7  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:22:59Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Stay home, it saves lives remember? 🤣🤣🤣🤣
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Message to American people: stay at home, watch the Trump entertainment show. The emoji LOL laugh-track. Twitter-length short-messaging. This serves as a marketing message to stay on Reddit and give up on real-person encounters.
+>
+
+
+=============
+  
+## Reddit comment o1vj5dj
+
+    entry 176
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vj5dj/  
+Comment ID:      o1vj5dj  
+Author:          Connect_Beginning_13  
+Bio:             Scarlet Overkill :   
+Account Created: 2023-08-20T21:50:49Z  
+Link Karma:      6896  
+Comment Karma:   37962  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:24:55Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Lot of guys in St. Paul who wish they could have shot Alex it seems. Yuck
+
+
+
+
+=============
+  
+## Reddit comment o1vjeux
+
+    entry 177
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vjeux/  
+Comment ID:      o1vjeux  
+Author:          Hiimzap  
+Bio:               
+Account Created: 2020-06-15T19:58:29Z  
+Link Karma:      7415  
+Comment Karma:   128620  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:26:02Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Damn completely overrun by bots huh
+
+
+
+
+=============
+  
+## Reddit comment o1vjrnw
+
+    entry 178
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vjrnw/  
+Comment ID:      o1vjrnw  
+Author:          DoubleT_TechGuy  
+Bio:               
+Account Created: 2019-08-29T00:26:23Z  
+Link Karma:      2391  
+Comment Karma:   6624  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:27:34Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Im a 2A and self defense advocate. Part of advocating for common sense self defense laws is calling people out when they fuck up. You can't justify this shooting
+
+
+
+
+=============
+  
+## Reddit comment o1vk01g
+
+    entry 179
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vk01g/  
+Comment ID:      o1vk01g  
+Author:          One_Independence7173  
+Bio:               
+Account Created: 2026-01-18T23:22:33Z  
+Link Karma:      1  
+Comment Karma:   0  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:28:35Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+A significant percentage voted for this. Law and order has casualties they say. If innocents get swept in the net whether thrown in the gulag no habeas corpus or shot like a dog in the street so be it. They would be ok if this happened to their father, brother.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 8 days Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1vkcnv
+
+    entry 180
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vkcnv/  
+Comment ID:      o1vkcnv  
+Author:          Parsimile  
+Bio:               
+Account Created: 2020-09-19T12:31:15Z  
+Link Karma:      3957  
+Comment Karma:   11215  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:30:04Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Wow \- this video really seems to have triggered a bunch of bootlickers! 
+
+Wonder what made the difference in this case? Maybe the sardonic narration that cut through the magical thinking they use to tell themselves they’re the good guys who support good guys?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "magical thinking"
+>
+
+
+=============
+  
+## Reddit comment o1vlkhd
+
+    entry 181
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vlkhd/  
+Comment ID:      o1vlkhd  
+Author:          Useful-Equivalent716  
+Bio:               
+Account Created: 2026-01-19T00:16:11Z  
+Link Karma:      1  
+Comment Karma:   10  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:35:22Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Arrest Noem, impeach Trump. now!!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 7 day Reddit account. Tiny-short Tweet-thinking. No off-Reddit link, no quotes from books, no author names. Anything and everything to avoid Dr. Bandy X Lee's nonfiction teaching and leadership to address national mental health crisis.
+>
+
+
+=============
+  
+## Reddit comment o1vn02w
+
+    entry 182
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vn02w/  
+Comment ID:      o1vn02w  
+Author:          MeAProGamer  
+Bio:             Suckmyfatass :   
+Account Created: 2020-09-29T23:55:43Z  
+Link Karma:      320  
+Comment Karma:   1202  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:41:35Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Holy shit at this point i don’t even know if I saw the same videos as everybody else? It’s insane how we look at the same video but have a different views about it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "insane"
+>
+
+
+=============
+  
+## Reddit comment o1vn8os
+
+    entry 183
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vn8os/  
+Comment ID:      o1vn8os  
+Author:          Iliketosiprain  
+Bio:             Mrowww :   
+Account Created: 2025-01-29T23:10:14Z  
+Link Karma:      5  
+Comment Karma:   2482  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:42:38Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Dear god we are doomed. We are so divided as a society and allow the government to roam free and do as they like. Because one side thinks its ok. Like looks at this, people will defend these actions and call it justice or say the fault lies at the one being shot.
+
+[\<image\>](https://preview.redd.it/7egfq1atyqfg1.jpeg?width=802&format=pjpg&auto=webp&s=ff079de22d149781b55195ecd784e763cafffe49)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "doomed", "divided"
+>
+
+
+=============
+  
+## Reddit comment o1vp5vc
+
+    entry 184
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vp5vc/  
+Comment ID:      o1vp5vc  
+Author:          sitting00duck00  
+Bio:             Sitting Duck : I think it's tacky when people describe themselves as hipsters but, alas, I am also tacky.  
+Account Created: 2013-08-20T21:35:32Z  
+Link Karma:      3683  
+Comment Karma:   3715  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:51:00Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Guess this sub is being brigaded by fascist bots
+
+
+
+
+=============
+  
+## Reddit comment o1vp92m
+
+    entry 185
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vp92m/  
+Comment ID:      o1vp92m  
+Author:          CypressThinking  
+Bio:               
+Account Created: 2024-02-27T14:30:56Z  
+Link Karma:      23517  
+Comment Karma:   31075  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:51:22Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+And now Faux News has changed their story. Despicable people making millions who have done incalculable damage to dumb people's minds. They should be illegal.
+
+[https://www.mediamatters.org/fox\-news/after\-36\-hours\-justifying\-killing\-alex\-pretti\-fox\-news\-suddenly\-changes\-its\-narrative](https://www.mediamatters.org/fox-news/after-36-hours-justifying-killing-alex-pretti-fox-news-suddenly-changes-its-narrative)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Fox News HDTV" network
+>
+
+
+=============
+  
+## Reddit comment o1vq3oq
+
+    entry 186
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vq3oq/  
+Comment ID:      o1vq3oq  
+Author:          mazdasl0w3  
+Bio:               
+Account Created: 2023-02-14T23:40:23Z  
+Link Karma:      1  
+Comment Karma:   -13  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:55:00Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Even as a conservative in America. This is not what I voted for. I voted for a positive change. For things to get easier. Not for the ridiculous killings of american citizens trying to protect others. This 100% didnt need to happen. And I hope to god. That Alex gets the justice he deserves.
+
+
+
+
+=============
+  
+## Reddit comment o1vr3h8
+
+    entry 187
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vr3h8/  
+Comment ID:      o1vr3h8  
+Author:          Feisty_War6251  
+Bio:             Big Boots :   
+Account Created: 2025-09-01T17:47:58Z  
+Link Karma:      2  
+Comment Karma:   -100  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T19:59:18Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+funny how you all only show 30 seconds and not the whole interaction
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1vu648
+
+    entry 188
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vu648/  
+Comment ID:      o1vu648  
+Author:          Dirtyshamus  
+Bio:               
+Account Created: 2020-10-17T02:39:59Z  
+Link Karma:      2  
+Comment Karma:   -56  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-26T20:12:49Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Under Obama 4 people were killed by the same tom homan ice leader. This is cope and trash. The same Tom Homan is leading ice and cages started under Obama. Look it all up. Same style raids just nobody wanted to call a black man a Nazi. So they found his gun and disarmed him. So they must have had xray vision to know that this guy that fought with 6\-7 federal agents didn’t have another gun or two or more even. I guess they are supposed to be clairvoyant and know that when he was reaching back in his waste after they took the first gun that he wasn’t reaching for another. He was not shot until he reached back. Watch your own damn videos that you guys are posting. Go risk your family member in the assumption that this guy didn’t have more weapons or even a knife. He didn’t wear a damn sign saying he was a nurse or anything. He came armed with extra ammo.
+
+
+
+
+=============
+  
+## Reddit comment o1vwuja
+
+    entry 189
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vwuja/  
+Comment ID:      o1vwuja  
+Author:          PrestigiousManner331  
+Bio:               
+Account Created: 2026-01-26T19:50:41Z  
+Link Karma:      1  
+Comment Karma:   1  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T20:24:42Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Anyone who uses the term Good Guys is automatically suspect. Is this a fucking Saturday morning cartoon? Because they sure as hell brought the Saturday morning cartoon villains to the table. Tulsi Gabbard looks just like Dr Blight from Captain Planet and now you have a really short version of that Hoggish Greedly guy with Bovino, a family name thats suggestived of bestiality or turning cow's blood into cheap wine
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> New Reddit account, hours old.
+>
+
+
+=============
+  
+## Reddit comment o1vxknk
+
+    entry 190
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vxknk/  
+Comment ID:      o1vxknk  
+Author:          perotech  
+Bio:               
+Account Created: 2013-10-21T20:37:32Z  
+Link Karma:      11424  
+Comment Karma:   81403  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T20:27:54Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+So...as a Canadian, is there a reason the St Paul subreddit is heavily Pro\-Trump?
+
+The other Twin Cities and MN subreddits seem fairly unified, is this just the space for those who didn't feel welcome on the others?
+
+
+
+
+=============
+  
+## Reddit comment o1vxyby
+
+    entry 191
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vxyby/  
+Comment ID:      o1vxyby  
+Author:          PureLack9306  
+Bio:               
+Account Created: 2026-01-26T14:06:28Z  
+Link Karma:      1  
+Comment Karma:   0  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T20:29:35Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+don’t these people have jobs?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> New Reddit account, hours old.
+>
+
+
+=============
+  
+## Reddit comment o1vyoj0
+
+    entry 192
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vyoj0/  
+Comment ID:      o1vyoj0  
+Author:          LobsterManCommander  
+Bio:             Lobster Man Commander  : In Base 7  
+Account Created: 2025-06-01T05:24:02Z  
+Link Karma:      1  
+Comment Karma:   1157  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T20:32:48Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+The bots are talking to themselves!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 8 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o1vyus2
+
+    entry 193
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vyus2/  
+Comment ID:      o1vyus2  
+Author:          AManGaveMeAMassage07  
+Bio:               
+Account Created: 2023-09-11T23:23:13Z  
+Link Karma:      230  
+Comment Karma:   -100  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T20:33:33Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+These people have no sweat in the game. They are young and uneducated, who can't see the bigger picture.
+
+Their follies are fodder, which have been exploited by media, who takes that opportunity to enflame.
+
+You have been successfully played!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "exploited by media" - Reddit social media. This message makes a lot of claims but no off-Reddit URL, no author names, no book titles, nothing but serious claims of people being manipulated but it is treated in a shallow and superficial "you people" kind of egoism way. Like it is a good thing for We The People, all inclusive USA, to have ragging fiction media addictions to Reddit "the media" social platform junk information.
+>
+
+
+=============
+  
+## Reddit comment o1vyz22
+
+    entry 194
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1vyz22/  
+Comment ID:      o1vyz22  
+Author:          akinglykin  
+Bio:               
+Account Created: 2023-01-12T04:19:53Z  
+Link Karma:      1  
+Comment Karma:   394  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T20:34:06Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+If you wanna see how people really think without censorship, look at the censored comments (downvoted)
+
+
+
+
+=============
+  
+## Reddit comment o1w0qsm
+
+    entry 195
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1w0qsm/  
+Comment ID:      o1w0qsm  
+Author:          Mysterious_Form2768  
+Bio:               
+Account Created: 2021-05-03T19:29:16Z  
+Link Karma:      1  
+Comment Karma:   3  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T20:41:57Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+Banana Republic
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Two-word extreme short-length message. Hyper Banalization addictions abound in Reddit audience. See: https://Old.Reddit.com/r/HyperBanalisation/comments/bjf6ys/under_the_surkov_media_invasion_of_russia_usa/
+>
+
+
+=============
+  
+## Reddit comment o1w5nyy
+
+    entry 196
+
+Comment URL: https://old.reddit.com/r/stpaul/comments/1qnl0sm/dark_times_in_america/o1w5nyy/  
+Comment ID:      o1w5nyy  
+Author:          RandomInternetGuy545  
+Bio:               
+Account Created: 2025-11-29T19:19:35Z  
+Link Karma:      3  
+Comment Karma:   2648  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-26T21:03:53Z  
+Score:           1 point  
+Post Title:      Dark times in America  
+:::::: Reddit User Comment: ======  
+The bot accounts are fucking hilarious. Multiple angles proving without a shadow of a doubt they executed an innocent non violent protestor. 
+
+The republicunts are fighting hard to justify this as it absolutely buttfucks the narrative they have created in their imagination
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. Declaring the situation as entertaining, "hilarious" that the Internet Research Agency and other organizations have wrecked the heats and minds of the USA since March 2013.
+>
