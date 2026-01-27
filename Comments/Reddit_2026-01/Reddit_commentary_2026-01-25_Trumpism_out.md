@@ -6000,3 +6000,32 @@ she has no soul. nobody can do what she does and have any concept of emotion
 > 
 > AND, for the record, the white men at Woodstock in August 1969 had as many problems with 13 year old girl sex as the white men of Fox News, Musk, Trump August 2025. We all need to get behind Malala since October 8, 2013 - as that is a GLOBAL problem with men.
 >
+
+
+=============
+  
+## Reddit comment o1yaqu9
+
+    entry 214
+
+Comment URL: https://old.reddit.com/r/law/comments/1qo1cwl/white_house_backtracks_initial_claims_about_alex/o1yaqu9/  
+Comment ID:      o1yaqu9  
+Author:          GlumpsAlot  
+Bio:             mew  
+Account Created: 2021-01-09T02:37:01Z  
+Link Karma:      7157  
+Comment Karma:   143164  
+Comment Age:     10 hours ago  
+Timestamp:       2026-01-27T03:35:29Z  
+Score:           265 points  
+Post Title:      White House backtracks initial claims about Alex Pretti after intense backlash | Trump administration  
+:::::: Reddit User Comment: ======  
+After years of being lied to and spreading those lies, some Republicans finally woke up a little maybe.
+
+[\<image\>](https://preview.redd.it/ei3dbm86btfg1.png?width=1080&format=png&auto=webp&s=10c6d82cbd11c936b82a91f802418c78c9339763)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fiction outsells nonfiction. "lies" are entirely acceptable within fiction storytelling. You don't consider Star Wars 1977 a "lie" because there is no factual evidence of a Death Star / space station planet killer. We need to wake up that Fox News HDTV, since year 1996, is a fiction storytelling network. Fiction outsells nonfiction. We either stand up for science nonfiction or we drown in the leadership of the most entertaining mockery like Mecca / Quran / Mohammad storytelling leads far more people than USA 0.34 billion nonfiction science foundations of the Free Masons year 1776.
+>
