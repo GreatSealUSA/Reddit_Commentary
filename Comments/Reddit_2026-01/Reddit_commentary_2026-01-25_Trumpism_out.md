@@ -7449,3 +7449,1009 @@ Yeah this is the most fucking moronic part about all of this. Republicans gloate
 > 
 > * May 7, 2017  https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
 >
+
+
+=============
+  
+## Reddit comment o212ybl
+
+    entry 267
+
+Comment URL: https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o212ybl/  
+Comment ID:      o212ybl  
+Author:          Nixio_Kocuro  
+Bio:               
+Account Created: 2015-09-20T17:05:57Z  
+Link Karma:      161  
+Comment Karma:   878  
+Comment Age:     7 hours ago  
+Timestamp:       2026-01-27T15:23:31Z  
+Score:           273 points  
+Post Title:      The 2nd amendment fetishists who brought you Kyle Rittenhouse and January 6th think Alex Pretti's legal gun was the problem? Are you fucking kidding?  
+:::::: Reddit User Comment: ======  
+Every single one of these people need to be held accountable for the destruction they have done to this country.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The ENTIRE POPULATION of social media users
+> 
+> 1. Ignoring the Ukraine war warnings about Internet invasion 
+> 
+> 2. Ignoring pandemic warnings about Russia's Internet Research Agency. https://www.bbc.com/news/world-us-canada-45294192
+> 
+> 3. Ignoring Dr. Bandy X Lee's leadership on **mental health** and dangerous behaviors of Donald Trump and shared MAGA mindsets. https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+> 
+> 4. Ignoring Jen Senko's film about brainwashing and right-wing media. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+> 
+> 5. Repeating "Epstein" on social media over and over but NOT repeating Jen Senko, Dr. Bandy X Lee!!
+> 
+> 6. Commenting over and over on different pages and not **connecting the dots** about anti-NATO behaviors of Russia since February 20, 2014. Russian Internet memes and messages are to wreck NATO. WAKE UP, look at the Greenland and Canada bullshit! Exactly what Putin wanted! Social media is the very problem to address!! People avoiding NONFICTION serious book reading. https://www.youtube.com/watch?v=5Au332OG-M4
+> 
+> Constantly LOL, constant memes, constant downplaying, joking, joke-cracking, making fun, humor about the most unimportant and superficial topics. Day in and day out, orange skin, golf outings, ANYTHING but SERIOUS NONFICTION from Dr. Bandy X Lee every god damn day on the front page /r/All of Reddit!
+>
+
+
+=============
+  
+## Reddit comment o214oeu
+
+    entry 268
+
+Comment URL: https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o214oeu/  
+Comment ID:      o214oeu  
+Author:          Mr_Meng  
+Bio:               
+Account Created: 2021-04-11T15:20:01Z  
+Link Karma:      97  
+Comment Karma:   43032  
+Comment Age:     7 hours ago  
+Timestamp:       2026-01-27T15:31:28Z  
+Score:           180 points  
+Post Title:      The 2nd amendment fetishists who brought you Kyle Rittenhouse and January 6th think Alex Pretti's legal gun was the problem? Are you fucking kidding?  
+:::::: Reddit User Comment: ======  
+It's really simple: MAGA hates 'the left' more than they love guns.
+
+
+
+
+=============
+  
+## Reddit comment o216s6h
+
+    entry 269
+
+Comment URL: https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o216s6h/  
+Comment ID:      o216s6h  
+Author:          Parking-Sundae-6097  
+Bio:             Ole Tough Titty :   
+Account Created: 2026-01-04T02:06:10Z  
+Link Karma:      1  
+Comment Karma:   2391  
+Comment Age:     7 hours ago  
+Timestamp:       2026-01-27T15:40:55Z  
+Score:           30 points  
+Post Title:      The 2nd amendment fetishists who brought you Kyle Rittenhouse and January 6th think Alex Pretti's legal gun was the problem? Are you fucking kidding?  
+:::::: Reddit User Comment: ======  
+CRAZY how quickly the entire admin tucked its tail when the NRA got involved. Think about that. 
+
+And this is why we have children getting gunned down in our schools constantly.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 23 day Reddit account. "CRAZY"
+>
+
+
+=============
+  
+## Reddit comment o216nzx
+
+    entry 270
+
+Comment URL: https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o216nzx/  
+Comment ID:      o216nzx  
+Author:          TheModWhoShaggedMe  
+Bio:             I will block psychos.  
+Account Created: 2025-04-10T22:06:13Z  
+Link Karma:      5517  
+Comment Karma:   175568  
+Comment Age:     7 hours ago  
+Timestamp:       2026-01-27T15:40:24Z  
+Score:           8 points  
+Post Title:      The 2nd amendment fetishists who brought you Kyle Rittenhouse and January 6th think Alex Pretti's legal gun was the problem? Are you fucking kidding?  
+:::::: Reddit User Comment: ======  
+America's blatant double standard that's applied to religious conservatives vs. *everyone else* is on full display here.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o21bobl
+
+    entry 271
+
+Comment URL: https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o21bobl/  
+Comment ID:      o21bobl  
+Author:          ninjacat249  
+Bio:             Alcoholic_squirrel :   
+Account Created: 2018-01-11T03:49:16Z  
+Link Karma:      6740  
+Comment Karma:   56028  
+Comment Age:     7 hours ago  
+Timestamp:       2026-01-27T16:02:20Z  
+Score:           4 points  
+Post Title:      The 2nd amendment fetishists who brought you Kyle Rittenhouse and January 6th think Alex Pretti's legal gun was the problem? Are you fucking kidding?  
+:::::: Reddit User Comment: ======  
+As a Canadian a vividly remember all my American friends running their mouths about how’s the firearms are the part of their national identity, how they eat with firearms, shit with firearms and fuck with firearms, 24/7/365\. “And if you want to take my firearm away you can do it from my cold dead hands”. This is fucking beyond anything pathetic all of the sudden. Which is not surprising.
+
+
+
+
+=============
+  
+## Reddit comment o21o227
+
+    entry 272
+
+Comment URL: https://old.reddit.com/r/DailyShow/comments/1qog8ac/the_2nd_amendment_fetishists_who_brought_you_kyle/o21o227/  
+Comment ID:      o21o227  
+Author:          Lazy__Astronaut  
+Bio:             
+  
+Account Created: 2020-10-08T10:28:03Z  
+Link Karma:      53044  
+Comment Karma:   199274  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-27T16:55:56Z  
+Score:           2 points  
+Post Title:      The 2nd amendment fetishists who brought you Kyle Rittenhouse and January 6th think Alex Pretti's legal gun was the problem? Are you fucking kidding?  
+:::::: Reddit User Comment: ======  
+Why are the audience laughing so hard?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="942" height="288" alt="image" src="https://github.com/user-attachments/assets/8e575ec1-04e7-4666-9e6b-ba3500b59ee1" />
+> 
+> ANSWER: USA is a joke. Joking wins all debate. Putin won. Because everyone finds Trump / ICE / MAGA to be constantly funny and amusing content to stimulate their touch screen. Donald Trump is a comedian, an actor who is acting. Surkovian information warfare blows minds into LOL stupors. We The People have amused ourselves on absurd surreal information warfare.
+> 
+> * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s **weaponization of absurdity and unreality**.” - year 2014 ... September 9, 2014 https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+>
+
+
+=============
+  
+## Reddit comment o22k6xn
+
+    entry 273
+
+Comment URL: https://old.reddit.com/r/WitchesVsPatriarchy/comments/1qoneje/i_dont_want_to_hear_a_human_being_called_legal_or/o22k6xn/  
+Comment ID:      o22k6xn  
+Author:          sailorjupiter28titan  
+Bio:             SJ28T  : She/They 💖 🏳️‍🌈 decolonial intersectional feminist 
+
+created r/witchesvspatriarchy  
+Account Created: 2016-06-06T01:19:30Z  
+Link Karma:      2615424  
+Comment Karma:   250478  
+Comment Age:     5 hours ago  
+Timestamp:       2026-01-27T19:13:34Z  
+Score:           453 points  
+Post Title:      I don’t want to hear a human being called “legal” or “illegal” ever again.  
+:::::: Reddit User Comment: ======  
+In case you missed the caption in the post: 
+
+> If you want to refer to someone’s immigration status say “documented” or “undocumented” bc that’s all it is: paperwork. Talking about a person in terms of subjective “legality” is offensive, dehumanizing, and downright repugnant.
+
+This goes for allies too. The language you use matters.
+
+
+
+
+=============
+  
+## Reddit comment o22wy14
+
+    entry 274
+
+Comment URL: https://old.reddit.com/r/WitchesVsPatriarchy/comments/1qoneje/i_dont_want_to_hear_a_human_being_called_legal_or/o22wy14/  
+Comment ID:      o22wy14  
+Author:          cwningen95  
+Bio:             Scottish living in Wales. I don't respond to sea lions.   
+Account Created: 2023-09-21T16:22:38Z  
+Link Karma:      36230  
+Comment Karma:   70824  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-27T20:10:11Z  
+Score:           68 points  
+Post Title:      I don’t want to hear a human being called “legal” or “illegal” ever again.  
+:::::: Reddit User Comment: ======  
+Yeah, I mostly liked Jimmy Kimmel's speech about ICE, but he said "they've k*lled two people this year"...no, buddy, they've k*lled two WHITE people. Leaving the POC who've also been murdered out of the conversation plays right into their hands. 
+
+Just as an example, though she's thankfully alive and well (other than a head injury and, obviously, significant trauma), I've been troubled not only by what happened to [Nasra Ahmed](https://www.complex.com/life/a/backwoodsaltar/us-citizen-st-paul-woman-nasra-ahmed-detained-by-ice). She was kidnapped by ICE for the crime of (checks notes) being Somali in their vicinity, during which they physically assaulted her and called her a racial slur, keeping her chained by her wrists and ankles even when they had to take her to the hospital after she experienced seizures. American taxpayer dollars are going towards a *dozen* men dogpiling on a 5'4'', 112lb woman who was, again, just *in the area*. Ahmed was a US citizen with no criminal record and showed ID before she was arrested, targeting her in the first place was obviously an instance of racial profiling, but no one deserves to be treated like this regardless. 
+
+And her story has been met...mostly with silence. I even searched her name on Reddit and could only find a few posts. Among the common reactions is a lie that she spat on officers (just...even solely using commonsense, *why* would a lone woman, well aware she's part of the targeted demographic, attempt to assault a crowd of male officers each twice her size), or picking at irrelavent parts of her statement to mock relentlessly (because god forbid a random civilian isn't a very good public speaker) rather than acknowledging her actual experience. The public reaction has been so scant ICE haven't even seen it fit to make a statement to smear her, because there's so little backlash to try and counteract. I know her story is one of many, but when Operation Metro Surge was explicitly targeting the Somali community (not that other POC communities have been spared), with Tr\*mp quite literally referring to them as garbage, I wish there were more voices backing the Somali community. I've even seen people supposedly on our side buying into the fraud bullshit (but they think the federal reaction is disproportionate and/or they shouldn't be targeting non\-Somalis) because even though it's been pretty much debunked, people don't really care to learn or spread this information.
+
+
+
+
+=============
+  
+## Reddit comment o23oqha
+
+    entry 275
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23oqha/  
+Comment ID:      o23oqha  
+Author:          Foe117  
+Bio:               
+Account Created: 2012-12-04T23:29:43Z  
+Link Karma:      1207  
+Comment Karma:   188559  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T22:15:13Z  
+Score:           2831 points  
+Post Title:      President Trump on Alex Pretti: "Well, I haven't heard but certainly he shouldn't have been carrying a gun. We view that as very unfortunate incident, unless you're a stupid person. I don't like that he had a gun. I don't like that he had two fully loaded magazines, that's a lot of bad stuff."  
+:::::: Reddit User Comment: ======  
+The quote reads like a 5 year old trying to make a book report.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="945" height="331" alt="image" src="https://github.com/user-attachments/assets/43181eb8-6d66-43ea-94f2-63130c5aaafa" />
+> 
+> Top-voted highly popular Twitter-length Tweet-thinking short message.
+> 
+> * "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be **no one who wanted to read one**. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that **we would be reduced to passivity and egoism**. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a **sea of irrelevance**. Orwell feared we would become a captive culture. Huxley feared we would become a **trivial culture**" ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+> 
+> Reddit audience falls for the NYC acting / actor doing the NYC SNL Tony Clifton POTUS performance year after year. Short-messaging commenting about Trump. There is an egoism of measuring against the unique language of Trump. People spend spare time and free time making these low-effort comments about Donald Trump, doing EVERYTHING THEY CAN to avoid REMOVING TRUMP from the center of all media systems focus. Endlessly chanting variations of { dumb, stupid, child, idiot, moron } over and over on meme systems.
+> 
+> The Reddit commenting audience has no concept of this being "engaged" to the media signal. That HATE WATCHING is the attraction. https://en.wikipedia.org/wiki/Hate-watching Trump leads with "Low I.Q." mocking of women, and people flock to media systems to mock back. Day and night, mocking Donald Trump. ANYTHING TO NOT REMOVE THE SOURCE OF ENTERTAINMENT AND TCP/IP NETWORK STIMULATION! Trump is an ATTRACTION, Fandom on Reddit can not stop putting spare time, free time, extra time into the video game of feeding Trump the world topic attraction!
+> 
+> People on Reddit, We The People, of social media - can not turn to Dr. Bandy X Lee's book from October 3, 2017 and make it the center of learning and self-awareness. Instead, mocking Trump all day and night, flocking to Trump content has sickened and wrecked the USA.
+> 
+> * "Social media have changed the way Americans are exposed to news. Internet news sites (CNN, Huffington Post, etc.) and social media such as Facebook and Twitter provide immediate access to news as well as to comments from other readers with differing viewpoints. Many Americans impacted by Trump anxiety disorder have admitted to an **unhealthy obsession with checking news websites much more often** than they previously did, and the amount of **news involving Trump and his new administration has been constant, chaotic, confusing, and often overwhelming**. When struggling with anxiety, many individuals, in an attempt to maintain control, will falsely assume that the more they know, the more they can be prepared. However, this tends to give them **a false sense of control** and, paradoxically, may increase anxiety symptoms once they realize their grip on control is not solid." - Dr. Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. Chapter "Trump Anxiety Disorder: The Trump Effect on the Mental Health of the Public Half the Nation and Special Populations"; by Jennifer Contarino Panning
+>
+
+
+=============
+  
+## Reddit comment o23nzr2
+
+    entry 276
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23nzr2/  
+Comment ID:      o23nzr2  
+Author:          Irish_Whiskey  
+Bio:               
+Account Created: 2011-10-22T23:06:04Z  
+Link Karma:      12  
+Comment Karma:   776280  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T22:11:42Z  
+Score:           2287 points  
+Post Title:      President Trump on Alex Pretti: "Well, I haven't heard but certainly he shouldn't have been carrying a gun. We view that as very unfortunate incident, unless you're a stupid person. I don't like that he had a gun. I don't like that he had two fully loaded magazines, that's a lot of bad stuff."  
+:::::: Reddit User Comment: ======  
+
+> "Well I haven't heard that."
+
+Over and over Republicans keep getting asked about the most famous and obvious political events of the country, including statements from the President and his senior staff on national television, and they claim "I haven't heard about that, I can't comment without seeing it, I don't know the context" etc.
+
+They're always just lying. Trump knows full well his administration was calling the guy a terrorist over and over again. Because they're cowards who lie about a reality they can't defend, and know there's no consequences for lying.
+
+> "It's a very unfortunate incident"
+
+Yeah, it's murder. It was straight\-forward and unambiguous murder. By government agents. On your orders to terrorize people, with legal instructions from you that they could kill anyone they didn't like and had "full unqualified federal immunity" from prosecution.
+
+It wasn't "unfortunate" for the last few days when you thought you'd get away with calling him a terrorist. It's only "unfortunate" now, because you realized it's dragging down your support with your own base.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TCP/IP high peed networking has created information glut. There is so much personalized information, so many social commenting platforms, so many variations of third-hand storytelling. People are attracted to the most creative mythology, not solid hard facts. Fiction outsells nonfiction. The USA population is flooded with glut of garbage competing information. Profit made by selling quantity of content, low-effort junk commenting all over every media system. Year 2013 was the real turning point for USA society. The Apple iPhone 1 came out in year 2007... and 3G networks to 4G and 5G mobile, etc.
+> 
+> * “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which **the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress**. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. **We proceed under the assumption that information is our friend, believing that cultures may suffer grievously** from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from **information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+>
+
+
+=============
+  
+## Reddit comment o23nuvv
+
+    entry 277
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23nuvv/  
+Comment ID:      o23nuvv  
+Author:          Jyosea  
+Bio:               
+Account Created: 2016-09-19T15:46:44Z  
+Link Karma:      1  
+Comment Karma:   12983  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T22:11:04Z  
+Score:           4387 points  
+Post Title:      President Trump on Alex Pretti: "Well, I haven't heard but certainly he shouldn't have been carrying a gun. We view that as very unfortunate incident, unless you're a stupid person. I don't like that he had a gun. I don't like that he had two fully loaded magazines, that's a lot of bad stuff."  
+:::::: Reddit User Comment: ======  
+The day his voice can’t be heard anymore. Oh the joy.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People spending free time and spare time commenting on Reddit about Trump. Instead of using social information systems to promote Dr. Bandy X. Lee's nonfiction book from October 3, 2017 and declaring Trump an danger to all humanity / life on Earth. So many people commenting day after day, all avoiding the nonfiction section of the public library about Trump's mental health.
+>
+
+
+=============
+  
+## Reddit comment o23ofpf
+
+    entry 278
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qos4n8/president_trump_on_alex_pretti_well_i_havent/o23ofpf/  
+Comment ID:      o23ofpf  
+Author:          WoozyMaple  
+Bio:               
+Account Created: 2020-01-23T12:44:47Z  
+Link Karma:      371  
+Comment Karma:   110247  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T22:13:48Z  
+Score:           188 points  
+Post Title:      President Trump on Alex Pretti: "Well, I haven't heard but certainly he shouldn't have been carrying a gun. We view that as very unfortunate incident, unless you're a stupid person. I don't like that he had a gun. I don't like that he had two fully loaded magazines, that's a lot of bad stuff."  
+:::::: Reddit User Comment: ======  
+Looking forward to cracking open that bottle.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Tiny-short messaging. Looking forward, to the future seasons of the Donald Trump story. ANYTHING but promoting and asserting Dr. Bandy X Lee's nonfiction book and writing about the urgent importance of removing Trump from office.
+>
+
+
+=============
+  
+## Reddit comment o23afpp
+
+    entry 279
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o23afpp/  
+Comment ID:      o23afpp  
+Author:          ChefMoney89  
+Bio:             Chef, gamer, sports fan. Enjoyer of craft beers and nat 20’s.  
+Account Created: 2022-09-28T23:08:28Z  
+Link Karma:      37  
+Comment Karma:   55775  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T21:11:09Z  
+Score:           834 points  
+Post Title:      Ice agent telling unarmed observer “if you raise your voice, I’ll erase your voice”  
+:::::: Reddit User Comment: ======  
+“Don’t yell at me or I’ll kill you” sounds like a line South Park would make make famous and would get quoted by middle schoolers for years
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Entertaining "South Park" life that Trump creates for the fandom. Addiction to Trump the actor who provides stimulating leadership entertainment. Killing people to silence the, language Tower of Babel egoism battles.
+>
+
+
+=============
+  
+## Reddit comment o2398j4
+
+    entry 280
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o2398j4/  
+Comment ID:      o2398j4  
+Author:          Severus-Snape-DaGod  
+Bio:             Snape  : The man of my dreams is a woman 💅🏼  
+Account Created: 2025-10-15T14:57:12Z  
+Link Karma:      57348  
+Comment Karma:   202671  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T21:05:47Z  
+Score:           832 points  
+Post Title:      Ice agent telling unarmed observer “if you raise your voice, I’ll erase your voice”  
+:::::: Reddit User Comment: ======  
+They're not even hiding that they're the Gestapo and we no longer have rights.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o238tye
+
+    entry 281
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o238tye/  
+Comment ID:      o238tye  
+Author:          Icy_Tangerine9391  
+Bio:               
+Account Created: 2025-05-07T21:23:14Z  
+Link Karma:      155  
+Comment Karma:   2817  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T21:03:57Z  
+Score:           178 points  
+Post Title:      Ice agent telling unarmed observer “if you raise your voice, I’ll erase your voice”  
+:::::: Reddit User Comment: ======  
+What a small, pathetic subhuman.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 8 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o23ogjr
+
+    entry 282
+
+Comment URL: https://old.reddit.com/r/minnesota/comments/1qoq8sn/ice_agent_telling_unarmed_observer_if_you_raise/o23ogjr/  
+Comment ID:      o23ogjr  
+Author:          mama_tom  
+Bio:               
+Account Created: 2012-12-01T13:51:13Z  
+Link Karma:      9912  
+Comment Karma:   129241  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T22:13:55Z  
+Score:           22 points  
+Post Title:      Ice agent telling unarmed observer “if you raise your voice, I’ll erase your voice”  
+:::::: Reddit User Comment: ======  
+The fact this dude is hispanic is just so insane.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "insane"
+>
+
+
+=============
+  
+## Reddit comment o23n0dm
+
+    entry 283
+
+Comment URL: https://old.reddit.com/r/stateofMN/comments/1qorjx1/ice_agent_telling_unarmed_observer_if_you_raise/o23n0dm/  
+Comment ID:      o23n0dm  
+Author:          Amphibiambien  
+Bio:               
+Account Created: 2023-10-07T09:47:34Z  
+Link Karma:      11  
+Comment Karma:   12439  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T22:07:08Z  
+Score:           8 points  
+Post Title:      Ice agent telling unarmed observer “if you raise your voice, I’ll erase your voice”  
+:::::: Reddit User Comment: ======  
+What does that even mean? Erase your voice? What is that?
+
+If you start to shout, I’ll drop your clout
+
+If get too loud, you won’t be proud
+
+Fucking hilarious, what does it mean
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ICE fandom. Comes to Reddit for the hilarious entertaining Trump leadership outcomes.
+>
+
+
+=============
+  
+## Reddit comment o23r25r
+
+    entry 284
+
+Comment URL: https://old.reddit.com/r/stateofMN/comments/1qorjx1/ice_agent_telling_unarmed_observer_if_you_raise/o23r25r/  
+Comment ID:      o23r25r  
+Author:          ike301  
+Bio:               
+Account Created: 2019-02-19T18:25:24Z  
+Link Karma:      1  
+Comment Karma:   54027  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T22:26:10Z  
+Score:           11 points  
+Post Title:      Ice agent telling unarmed observer “if you raise your voice, I’ll erase your voice”  
+:::::: Reddit User Comment: ======  
+There's actually nothing hilarious about it at all. He's threatening to kill him or do bodily harm.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It is sickening to see Reddit users and social media users across all platforms spreading so much junk information, glut of poor information. Networking addiction itself, all putting Trump leadership as the signals to follow. Reaction audience. ANYTHING to avoid having an Internet uprising to promote Dr. Bandy X Lee or Jen Senko and address the brainwashing and mental health issues of MAGA. Everyone is sickened by the glut of Trumpism / Trump outcomes and Trump mindsets.
+> 
+> * “It is only now beginning to be understood that cultures may also suffer grievously from **information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+>
+
+
+=============
+  
+## Reddit comment o23zds4
+
+    entry 285
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qotlua/border_patrol_agents_started_the_scuffle_that_led/o23zds4/  
+Comment ID:      o23zds4  
+Author:          zoidberg-phd  
+Bio:               
+Account Created: 2018-06-06T00:46:38Z  
+Link Karma:      31875  
+Comment Karma:   23302  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T23:06:45Z  
+Score:           None  
+Post Title:      Border Patrol agents started the scuffle that led to Alex Pretti's death  
+:::::: Reddit User Comment: ======  
+I was always curious how Super Villains were able to find so many henchmen. After seeing how many people signed up for ICE over the last few months, I'm no longer curious.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The fandom of Newsmax, Fox News, etc has been large.
+>
+
+
+=============
+  
+## Reddit comment o245nmx
+
+    entry 286
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qotlua/border_patrol_agents_started_the_scuffle_that_led/o245nmx/  
+Comment ID:      o245nmx  
+Author:          sumoraiden  
+Bio:               
+Account Created: 2017-02-08T20:25:30Z  
+Link Karma:      1909  
+Comment Karma:   165332  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-27T23:38:37Z  
+Score:           None  
+Post Title:      Border Patrol agents started the scuffle that led to Alex Pretti's death  
+:::::: Reddit User Comment: ======  
+Well there’s literally 0 consequences for them lying so why wouldn’t they
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> There is *profit* made selling fiction stories. People think there is zero consequences, can't see how much money and power is made by providing fiction to meme audiences.
+>
+
+
+=============
+  
+## Reddit comment o240mae
+
+    entry 287
+
+Comment URL: https://old.reddit.com/r/inflation/comments/1qotnj7/the_us_dollar_tumbles_to_a_fresh_4_year_low_after/o240mae/  
+Comment ID:      o240mae  
+Author:          TheMatrixRedPill  
+Bio:               
+Account Created: 2025-06-19T01:22:08Z  
+Link Karma:      1  
+Comment Karma:   37885  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T23:12:54Z  
+Score:           521 points  
+Post Title:      The US Dollar tumbles to a fresh 4 year low after president Trump says the US Dollar is doing great and is "Not concerned" about it's decline  
+:::::: Reddit User Comment: ======  
+How long are Republicans going to be delusional about Trump’s handling of the economy?? It is clear by now that there is no plan, and his lack of knowledge about even basic economics is going to send the U.S. off a cliff at some point.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 7 month Reddit account. Top upvoted popular comment.
+>
+
+
+=============
+  
+## Reddit comment o243qrc
+
+    entry 288
+
+Comment URL: https://old.reddit.com/r/inflation/comments/1qotnj7/the_us_dollar_tumbles_to_a_fresh_4_year_low_after/o243qrc/  
+Comment ID:      o243qrc  
+Author:          BoogerFeast69  
+Bio:               
+Account Created: 2015-06-27T18:08:06Z  
+Link Karma:      2661  
+Comment Karma:   33431  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T23:28:44Z  
+Score:           171 points  
+Post Title:      The US Dollar tumbles to a fresh 4 year low after president Trump says the US Dollar is doing great and is "Not concerned" about it's decline  
+:::::: Reddit User Comment: ======  
+Right? A 4 year low literally just means he is picking back up where he left off digging.
+
+
+
+
+=============
+  
+## Reddit comment o23zqou
+
+    entry 289
+
+Comment URL: https://old.reddit.com/r/inflation/comments/1qotnj7/the_us_dollar_tumbles_to_a_fresh_4_year_low_after/o23zqou/  
+Comment ID:      o23zqou  
+Author:          JollyResolution2184  
+Bio:               
+Account Created: 2024-10-10T18:13:19Z  
+Link Karma:      16540  
+Comment Karma:   8962  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T23:08:33Z  
+Score:           76 points  
+Post Title:      The US Dollar tumbles to a fresh 4 year low after president Trump says the US Dollar is doing great and is "Not concerned" about it's decline  
+:::::: Reddit User Comment: ======  
+His lies won’t protect us; the lies only weaken America.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump's fiction storytelling is his entire basis of popularity. Many many cults of fiction fandoms. Grading what parts they like and do not like. But all agreeing that fiction provides so much more excitement and thrills with wild ever-thrilling destructive and harmful outcomes. All popular media systems flock to Trump. All conversations, all communications network: Trump, ICE, MAGA, anti-NATO, Trumpism. Surkov pioneered modern monomyth fiction storytelling techniques. The reprieve we had with the Joyce, Marshall McLuhan, Neil Postman educated society came to a confirmed end in year 2013. People to this day do not recognize the depth of the threat Fox News fiction represents, let alone Russia's Internet Research Agency fiction such as: https://www.BBC.com/news/world-us-canada-45294192
+>
+
+
+=============
+  
+## Reddit comment o24taia
+
+    entry 290
+
+Comment URL: https://old.reddit.com/r/news/comments/1qoxhft/rep_ilhan_omar_assaulted_by_protester_at_town/o24taia/  
+Comment ID:      o24taia  
+Author:          ShakeyLegsMcGee  
+Bio:               
+Account Created: 2025-04-16T22:19:12Z  
+Link Karma:      10679  
+Comment Karma:   34123  
+Comment Age:     59 minutes ago  
+Timestamp:       2026-01-28T01:40:36Z  
+Score:           None  
+Post Title:      Rep. Ilhan Omar Assaulted by Protester at Town Hall Meeting  
+:::::: Reddit User Comment: ======  
+Nothing about this is normal.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account. High upvoted. Tiny-short Twitter-length thinking patterns for Reddit audiences. "Normal" topic. Active normalization of tiny-short thinking / reactionary commenting. Anything but engage serious nonfiction books on paper... such as Dr. Bandy X Lee's October 3, 2017 book about mental health of the nation leaderships (and voters).
+> 
+> No, this isn't normal, it is following the rules of mythology. Like Islamic societies / Muslim societies, people who make Mohammad's science fiction stories core part of their behavior and thinking. The "New Normal" of USA society is the complete abandonment of science thinking, abandonment of serious nonfiction learning for adults. Twitter-thinking, meme-think has taken over, Trumpism MAGA mindsets. Surkov won since march 2013.
+> 
+> * “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+> 
+> For year 2025, that was "South Park" instead of "Beavis and Butthead". South Park turns White House 2025 into bright colored fiction Satan character jokes and memes.
+>
+
+
+=============
+  
+## Reddit comment o24rmi6
+
+    entry 291
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qox0sz/rep_ilhan_omar_assaulted_by_protester_at_town/o24rmi6/  
+Comment ID:      o24rmi6  
+Author:          CrimsonHeretic  
+Bio:               
+Account Created: 2013-07-15T20:36:25Z  
+Link Karma:      167  
+Comment Karma:   57617  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-28T01:31:43Z  
+Score:           None  
+Post Title:      Rep. Ilhan Omar Assaulted by Protester at Town Hall Meeting  
+:::::: Reddit User Comment: ======  
+"protestor"
+
+You cannot be fucking serious.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1131" height="1007" alt="image" src="https://github.com/user-attachments/assets/b8f4c927-0680-4a25-ac4a-ee6a065dda76" />
+> 
+> Information warfare. John 1:1 warfare. Monomyth warfare. Surkov won since March 2013.  
+> Alternate Reality Game based on interactive choice of which media venue, commenting thread, filter-bubble people follow. Like every sentence of tiny-short Reddit commenting making a story, word choice after word choice, everybody on different pages. Right now like 8 stories out of 25 on /r/All are about this breaking news, all rephrased by the Reuters media distribution clones and commenting section of each different subreddit hive mind. ICE is providing constant heavy stimulation all month, the audience is glued to the media. It's sickening to see the forest of it.
+> 
+> As I emphasize: People are NOT addressing the Fox News HDTV cult problem with nonfiction learning. Dr. bandy X Lee is not being asserted as a leader for mental health topics. Instead, people are waiting for ICE and Trump / MAGA stimulation and reacting to every breaking news event / rumor / Trump move and shake.
+>
+
+
+=============
+  
+## Reddit comment o23yx0t
+
+    entry 292
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23yx0t/  
+Comment ID:      o23yx0t  
+Author:          Ponchorello7  
+Bio:             Poncho : "Your boos mean nothing, I've seen what makes you cheer." — The one good Rick and Morty quote.   
+Account Created: 2013-09-09T19:42:37Z  
+Link Karma:      29129  
+Comment Karma:   661334  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T23:04:26Z  
+Score:           2225 points  
+Post Title:      Trump began his speech in Iowa by asking his supporters whether he should run for another presidential term.  
+:::::: Reddit User Comment: ======  
+People have been noting homies poor health since his first term. I, unfortunately, don't think he's clocking out anytime soon.
+
+
+
+
+=============
+  
+## Reddit comment o23z29g
+
+    entry 293
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23z29g/  
+Comment ID:      o23z29g  
+Author:          Guilty_Dream8050  
+Bio:             Nope  
+Account Created: 2023-03-05T16:04:28Z  
+Link Karma:      16  
+Comment Karma:   177859  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T23:05:10Z  
+Score:           591 points  
+Post Title:      Trump began his speech in Iowa by asking his supporters whether he should run for another presidential term.  
+:::::: Reddit User Comment: ======  
+I can't even listen to his voice anymore. It makes me feel like an octopus is trying to get in through my ears, if that makes sense.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump video and Twitter messages get deep inside people's minds. Audiences flock when a new image or video of Trump is posted. This Reddit user came for the sensation of being manipulated. FOR OVER TEN YEARS AND SEVEN MONTHS, people on Reddit come as a fandom of Trump content.
+>
+
+
+=============
+  
+## Reddit comment o23ynys
+
+    entry 294
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o23ynys/  
+Comment ID:      o23ynys  
+Author:          sealonbrad  
+Bio:             ChillPNWguy : Hot take slinger  
+Account Created: 2019-04-25T13:04:42Z  
+Link Karma:      856  
+Comment Karma:   25017  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T23:03:11Z  
+Score:           167 points  
+Post Title:      Trump began his speech in Iowa by asking his supporters whether he should run for another presidential term.  
+:::::: Reddit User Comment: ======  
+They are all morons.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump audience, in person and on Reddit, are addicted to the mockery and mocking leadership that Trump provides. Leadership of hate, people follow. Leadership of insulting and  mocking, people follow. Compulsive addiction to Trump communications.
+>
+
+
+=============
+  
+## Reddit comment o243scw
+
+    entry 295
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qot7gn/trump_began_his_speech_in_iowa_by_asking_his/o243scw/  
+Comment ID:      o243scw  
+Author:          BasilisksRPretty  
+Bio:               
+Account Created: 2025-12-26T02:07:11Z  
+Link Karma:      1  
+Comment Karma:   5926  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-27T23:28:57Z  
+Score:           94 points  
+Post Title:      Trump began his speech in Iowa by asking his supporters whether he should run for another presidential term.  
+:::::: Reddit User Comment: ======  
+Hun, I hate to tell you, but if he stays for another term we are in uncharted territory beyond what any of us can do to stop it. 
+
+Half of his campaign contributions came from citizens of countries other than the USA.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. New on Christmas day. Invasion of USA political systems topic.
+>
+
+
+=============
+  
+## Reddit comment o25076p
+
+    entry 296
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qowsr0/germany_issues_formal_travel_advisory_for_us/o25076p/  
+Comment ID:      o25076p  
+Author:          VirtualMatter2  
+Bio:               
+Account Created: 2020-04-18T06:49:52Z  
+Link Karma:      5  
+Comment Karma:   152242  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-28T02:17:00Z  
+Score:           842 points  
+Post Title:      Germany issues formal travel advisory for US  
+:::::: Reddit User Comment: ======  
+German here. Many people here already predicted this during his first term. We have the Weimar Republic and Hitler's rise to power drilled into us during many many hours of history lessons. And the signs were already obvious.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And people who have studied Malala's highlights of anti-women Taliban in Afghanistan and Pakistan can see the mass dehumanization going on.
+>
+
+
+=============
+  
+## Reddit comment o259k8v
+
+    entry 297
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoz97n/macro_rubio_behind_trump/o259k8v/  
+Comment ID:      o259k8v  
+Author:          wabashcanonball  
+Bio:               
+Account Created: 2019-12-14T05:40:24Z  
+Link Karma:      652  
+Comment Karma:   351242  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T03:06:21Z  
+Score:           None  
+Post Title:      Macro Rubio, behind Trump.  
+:::::: Reddit User Comment: ======  
+Can you imagine the wild shit he’s smelled standing behind Trump?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit front page /r/All top. Most upvoted comment thread. Talking about shit, prizing shit-commenting, shit-posting, shit photograph of Trump. The fandom never gets enough oft his man. Free time and spare time that could be used to assert, quote, teach, cult deprogram with Dr. Bandy X Lee's nonfiction book from October 3, 2017 goes into addition to shit-talking shit-commenting about Trump.
+>
+
+
+=============
+  
+## Reddit comment o25a89e
+
+    entry 298
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qoz97n/macro_rubio_behind_trump/o25a89e/  
+Comment ID:      o25a89e  
+Author:          scruffles360  
+Bio:               
+Account Created: 2016-11-10T03:20:39Z  
+Link Karma:      451  
+Comment Karma:   72463  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T03:10:04Z  
+Score:           None  
+Post Title:      Macro Rubio, behind Trump.  
+:::::: Reddit User Comment: ======  
+we're all making fun, but behind closed doors, I wonder how many times people like him saved us from serious shit by changing the subject to McDonalds fries or titties.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "all making fin". The fandom of Trump images / photographs. Reddit is the center of a fandom of intelligent people who are so compulsively attracted to Trump's mockery and hate signaling.... they will not utilize social media to stand up and call for his removal in a serious sustained... life-saving turn the USA around tone. The only sustained signal from the Reddit audience is "making fun", enjoyment and stimulation of consuming Trump culture.
+> 
+> * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? **Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles?** What is the antidote to a culture's being drained by laughter?”
+> ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. New York University. Media studies / media ecology professor. This 6-minute video is highly recommended: https://www.youtube.com/watch?v=ETUGwC9jXCM 10,389 views January 21, 2021
+>
+
+
+=============
+  
+## Reddit comment o24zdpb
+
+    entry 299
+
+Comment URL: https://old.reddit.com/r/NoStupidQuestions/comments/1qoxa0d/in_the_2020s_conservative_women_are_having_kids/o24zdpb/  
+Comment ID:      o24zdpb  
+Author:          VoteCatforPresident  
+Bio:               
+Account Created: 2025-08-31T23:53:56Z  
+Link Karma:      3736  
+Comment Karma:   16706  
+Comment Age:     10 hours ago  
+Timestamp:       2026-01-28T02:12:44Z  
+Score:           5083 points  
+Post Title:      In the 2020s, conservative women are having kids at a nearly 2-to-1 ratio compared to liberal women. Is this going to cause a political demographic bias in 20-30 years?  
+:::::: Reddit User Comment: ======  
+Maybe. Just because two parents are religious doesn’t means kids will be. There was exactly data that shows that kids raised in religious households may end up religious or end up an atheist. However, in atheist households their kids rarely adopt Christianity. Most stay atheist.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Instead of calling for the removal of Trump via Dr. Bandy X Lee's nonfiction book from October 3, 2017 - and using social media to educate people on the book, over and over, this is the kind of political topic people with free time and spare time and engaging. There has been no uprising from We The People to REMOVE Trump. Social media and media systems are what Trump lives for, and people can not conceive of speaking out personally against Trump (for his removal, and specific education on why) in a sustained, organized, mas uprising on the Internet.
+>
+
+
+=============
+  
+## Reddit comment o25365k
+
+    entry 300
+
+Comment URL: https://old.reddit.com/r/NoStupidQuestions/comments/1qoxa0d/in_the_2020s_conservative_women_are_having_kids/o25365k/  
+Comment ID:      o25365k  
+Author:          scoopny  
+Bio:               
+Account Created: 2011-08-29T01:19:57Z  
+Link Karma:      1752  
+Comment Karma:   10515  
+Comment Age:     10 hours ago  
+Timestamp:       2026-01-28T02:32:34Z  
+Score:           1534 points  
+Post Title:      In the 2020s, conservative women are having kids at a nearly 2-to-1 ratio compared to liberal women. Is this going to cause a political demographic bias in 20-30 years?  
+:::::: Reddit User Comment: ======  
+Quite a few liberal parents have found out their boys have been red\-pilled by Andrew Tate and Joe Rogan and whatnot, so it happens on the left too.
+
+[https://nymag.com/intelligencer/article/andrew\-tate\-jail\-investigation.html](https://nymag.com/intelligencer/article/andrew-tate-jail-investigation.html)
+
+
+
+
+=============
+  
+## Reddit comment o2550ox
+
+    entry 301
+
+Comment URL: https://old.reddit.com/r/NoStupidQuestions/comments/1qoxa0d/in_the_2020s_conservative_women_are_having_kids/o2550ox/  
+Comment ID:      o2550ox  
+Author:          asperatedUnnaturally  
+Bio:               
+Account Created: 2014-11-06T19:58:24Z  
+Link Karma:      10  
+Comment Karma:   28551  
+Comment Age:     10 hours ago  
+Timestamp:       2026-01-28T02:42:10Z  
+Score:           687 points  
+Post Title:      In the 2020s, conservative women are having kids at a nearly 2-to-1 ratio compared to liberal women. Is this going to cause a political demographic bias in 20-30 years?  
+:::::: Reddit User Comment: ======  
+The article is numerically illiterate, possibly on purpose.
+
+[https://news.gallup.com/poll/609914/women\-become\-liberal\-men\-mostly\-stable.aspx](https://news.gallup.com/poll/609914/women-become-liberal-men-mostly-stable.aspx)
+
+40% of young women id as liberal. 20% as conservative.
+
+40% of 40% is 16% of young women are liberal mothers.
+
+70% of 20% means 14% of young women are conservative mothers.
+
+Liberal mothers outnumber conservative ones.
+
