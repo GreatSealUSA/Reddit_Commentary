@@ -944,3 +944,142 @@ Candace was like the only conservative actually emotionally upset by Kirk's deat
 > 
 > * "The **pain caused by new media** and new technologies tends very much to fall into the category of 'referred pain,' such as skin trouble caused by the appendix or the heart." - Page 16; "***War and Peace in the Global Village*** is a **1968 book** by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates the effects of electronic media and new technology on man. Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how war may be conducted in the future." - https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village#Pain_Caused_by_New_Media_(Page_16)
 >
+
+
+=============
+  
+## Reddit comment o29joly
+
+    entry 32
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpjwho/leaked_audio_from_tpusa_with_erika_kirk/o29joly/  
+Comment ID:      o29joly  
+Author:          Minute_Conflict_2037  
+Bio:               
+Account Created: 2026-01-08T12:24:49Z  
+Link Karma:      197  
+Comment Karma:   7139  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-28T18:49:26Z  
+Score:           1527 points  
+Post Title:      Leaked audio from TPUSA with Erika Kirk cheerfully discussing attendance figures, merchandise sales, and performance metrics from Charlie Kirk’s memorial event just 11 days after his death  
+:::::: Reddit User Comment: ======  
+I mean…. Not surprised lol? This woman acted like she is in The Greatest Showman from day 1?lol
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 20 day Reddit account. Banal agent. Providing "LOL" laugh-track for meme addled Reddit junkies to Charlie Kirk hate-watching. https://en.Wikipedia.org/wiki/Hate-watching
+>
+
+
+=============
+  
+## Reddit comment o297a3y
+
+    entry 33
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o297a3y/  
+Comment ID:      o297a3y  
+Author:          Sekret_One  
+Bio:               
+Account Created: 2011-12-06T21:21:32Z  
+Link Karma:      147  
+Comment Karma:   89830  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T17:56:33Z  
+Score:           1333 points  
+Post Title:      I hope Costco sues this weird mouth  
+:::::: Reddit User Comment: ======  
+White monsters ... for white monsters? And this isn't satire?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit fandom vs. TikTok fandom. Surkov won since March 2013. Satire vs. satire. Mockery vs. mockery. Total mockery nation lead by Trump and Putin.
+>
+
+
+=============
+  
+## Reddit comment o295nl6
+
+    entry 34
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o295nl6/  
+Comment ID:      o295nl6  
+Author:          PanzerottiNinja  
+Bio:               
+Account Created: 2025-09-22T04:00:57Z  
+Link Karma:      2  
+Comment Karma:   22984  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T17:49:41Z  
+Score:           2176 points  
+Post Title:      I hope Costco sues this weird mouth  
+:::::: Reddit User Comment: ======  
+"Powered by Jesus Christ" 🙄
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 4 month Reddit account. Trump Jesus fandom abounds in Texas.
+>
+
+
+=============
+  
+## Reddit comment o297p2k
+
+    entry 35
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o297p2k/  
+Comment ID:      o297p2k  
+Author:          Right_Roof3118  
+Bio:             PainTheGoon :   
+Account Created: 2024-03-06T01:11:37Z  
+Link Karma:      5  
+Comment Karma:   1850  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T17:58:20Z  
+Score:           1342 points  
+Post Title:      I hope Costco sues this weird mouth  
+:::::: Reddit User Comment: ======  
+Im from mexico and i speak better english than her
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Language bigotry abounds in USA society. Surkov won. Tower of Babel conflicts are core exploits of the Surkov monomyth executive function manipulations. 
+> 
+> * "Russia only towards the end of the 1990s, at exactly the time **Surkov** joined the government. The author of Almost Zero loves to invoke such Lyotardian concepts as the **breakdown of grand cultural narratives** and the fragmentation of truth: ideas that still sound quite fresh in Russia." - October 20, 2011 - https://www.LRB.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+> 
+> * "It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable. This fusion of despotism and postmodernism, in which **no truth is certain**, is reflected in the craze among the Russian elite for **neuro-linguistic** programming" - October 20, 2011 - a long fucking time ago in Reddit social years. https://www.LRB.co.UK/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Year 2011
+>
+
+
+=============
+  
+## Reddit comment o294tyg
+
+    entry 36
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qpi9t2/i_hope_costco_sues_this_weird_mouth/o294tyg/  
+Comment ID:      o294tyg  
+Author:          Different_Key_9914  
+Bio:               
+Account Created: 2024-09-09T23:02:11Z  
+Link Karma:      1  
+Comment Karma:   23294  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-28T17:46:10Z  
+Score:           1310 points  
+Post Title:      I hope Costco sues this weird mouth  
+:::::: Reddit User Comment: ======  
+She looks a little Latina for these words. Ah. I see her name now. Epic.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Tech loving fandom of Trump shallowness and superficial video content. Following Trump leadership. ANYTHING but calling for the removal of Trump, asserting the dangers of mental health. ANYTHING BUT quoting Dr. Bandy X Lee's October 3, 2017 book about MAGA cult mental health crisis.
+>
