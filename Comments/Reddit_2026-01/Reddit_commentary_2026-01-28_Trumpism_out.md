@@ -879,3 +879,68 @@ She's got money problems, and this is the big ticket grift right now
 > 
 > This message is to assure the cult Reddit audience to celebrity content... that money is the ONLY motivation. The one and only one motivation, Ignoring brainwashing, ignoring Fox News HDTV cult that does not *give money* to cultists to tune into addictive content. Short Twitter-length Tweet-thinking messaging to manipulate Reddit audience into avoiding the Trump cult stardom-cult "Fauxmoi" behavior of Reddit community. Trump is first and foremost an actor, acting the Tony Clifton SNL NYC performance of Trump family home town. Reddit fandom eats up the show and does not desire to remove Trump from the constant center of all media systems focus.
 >
+
+
+=============
+  
+## Reddit comment o28yt98
+
+    entry 30
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28yt98/  
+Comment ID:      o28yt98  
+Author:          tooheavybroo  
+Bio:             Are you capable to think about anyone other than yourself?   
+Account Created: 2013-02-22T14:11:46Z  
+Link Karma:      10295  
+Comment Karma:   42818  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T17:20:06Z  
+Score:           12 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+Parading her like he paraded Latinos to vote for him 😂😂😂😂
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1419" height="311" alt="image" src="https://github.com/user-attachments/assets/093f1ea7-37cb-4343-bbb2-d3102c34778b" />
+> 
+> Loyal Trump content fanatics. Cheering on the parading of media stars and entertainers that Trump leads the nation with. Media cults abound. This Reddit meme aficionado gives this particular **POTUS Tony Clifton** absurd surreal comedy skit a 4 out of 4 star rating, "😂😂😂😂" from the Reddit shit-commenting fandom.
+> 
+> * "what Putin will do next — that he’s unpredictable and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014    
+> https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+>
+
+
+=============
+  
+## Reddit comment o29klq7
+
+    entry 31
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpjwho/leaked_audio_from_tpusa_with_erika_kirk/o29klq7/  
+Comment ID:      o29klq7  
+Author:          addressunknown  
+Bio:               
+Account Created: 2009-11-17T02:16:14Z  
+Link Karma:      115937  
+Comment Karma:   53022  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-28T18:53:18Z  
+Score:           3773 points  
+Post Title:      Leaked audio from TPUSA with Erika Kirk cheerfully discussing attendance figures, merchandise sales, and performance metrics from Charlie Kirk’s memorial event just 11 days after his death  
+:::::: Reddit User Comment: ======  
+Candace was like the only conservative actually emotionally upset by Kirk's death, everyone else just jumped on the opportunity to grift more lol
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1858" height="362" alt="image" src="https://github.com/user-attachments/assets/5c188691-1876-400d-803b-4f139ec5bec6" />
+> 
+> Low-thought low-effort short-message Reddit thinking patterns. Entirely unaware that Charlie Kirk has a media cult following, podcast medium cult, and the severe emotional impact of fellow Reddit cultists / media cultists. I call this the Bible verse "1 John 4:20" media crisis; Charlie Kirk in year 2021 created https://PoliticalResearch.org/about/in-the-news/charlie-kirks-turning-point-usa-increasingly-leaning-right-wing-christian the Turning Point USA Faith ("TPUSA Faith") Christian media cult, and Reddit audience member has no education (or perhaps does and has either forgotten or lost comprehension) on comparative mythology. This is why so many Reddit hive-minded individuals can't grasp why Trump has such extreme power over the society using Surkov monomyth screenplay patterns.
+> 
+> So many fanatics of Charlie Kirk's monomyth science fiction storytelling **experience intense anguish and pain at the loss of the prized content** drops. Surkov students are running circle around the Reddit audience. "emotionally upset" - Reddit comment, emotional disturbed, Kirk impacted people extremely deep with the White House and Kremlin TCP/IP amplifications and HDTV amplifications. The video of Charlie Kirk's assassination was extremely thrilling to action violence monomyth fandoms.
+> 
+> * "The **pain caused by new media** and new technologies tends very much to fall into the category of 'referred pain,' such as skin trouble caused by the appendix or the heart." - Page 16; "***War and Peace in the Global Village*** is a **1968 book** by Marshall McLuhan and Quentin Fiore. It contains a collage of images and text that illustrates the effects of electronic media and new technology on man. Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how war may be conducted in the future." - https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village#Pain_Caused_by_New_Media_(Page_16)
+>
