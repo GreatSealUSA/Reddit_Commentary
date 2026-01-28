@@ -544,3 +544,168 @@ THAT is the question!
 > :::::: Analysis_Thoughts Commentary: ======  
 > 6 month Reddit account. Elon Musk's Twitter-think message. 4 words, tiny extreme short-length reaction commenting to Reality White House TV show. Most upvoted / popular comment.
 >
+
+
+=============
+  
+## Reddit comment o28qrmp
+
+    entry 18
+
+Comment URL: https://old.reddit.com/r/law/comments/1qpg9mm/sen_rand_paul_what_if_a_foreign_country_indicts/o28qrmp/  
+Comment ID:      o28qrmp  
+Author:          JustAMan1234567  
+Bio:               
+Account Created: 2020-11-10T19:04:38Z  
+Link Karma:      335210  
+Comment Karma:   421072  
+Comment Age:     54 minutes ago  
+Timestamp:       2026-01-28T16:44:49Z  
+Score:           639 points  
+Post Title:      Sen Rand Paul: What if a foreign country indicts our president for violating a foreign law? Should we extradite our president? Or should we be okay if they come in and get him by force?  
+:::::: Reddit User Comment: ======  
+Translation \- "We do what we do because we can, and nobody can really stop us"
+
+
+
+
+=============
+  
+## Reddit comment o28tw4z
+
+    entry 19
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28tw4z/  
+Comment ID:      o28tw4z  
+Author:          qualmful  
+Bio:               
+Account Created: 2025-02-24T16:07:26Z  
+Link Karma:      378  
+Comment Karma:   12625  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-28T16:58:23Z  
+Score:           6289 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+'The hate motivates me more' is the most pathetic personality trait and all his supporters have it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account. Top-upvoted comment. "Fandom" of Trump message payload. Hate motivates topic.
+>
+
+
+=============
+  
+## Reddit comment o28ve40
+
+    entry 20
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28ve40/  
+Comment ID:      o28ve40  
+Author:          JoeBethersontonFargo  
+Bio:             I have absolutely no idea what we're doing here. Or what I'm doing here, or what this place is about, but I am determined to enjoy myself. And I'm very intrigued, and, oh my, this soup's delicious.  
+Account Created: 2025-01-13T16:14:01Z  
+Link Karma:      1503  
+Comment Karma:   27891  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-28T17:05:04Z  
+Score:           617 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+She also supported her brother, when he was convicted of repeatedly raping his 11 year old stepdaughter. Can't stand her.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Rape content for commentary audiences. Rape topics of { Epstein, Trump, MAGA rape, male domination } skyrocket to the top of /r/All daily on Reddit. Trump leads with male domination and Reddit fandom of Reality White House hate-watching prizes every posting. https://en.wikipedia.org/wiki/Hate-watching Hate of women singers, hate of women via powerful dehumanizing cloud computing media machines. NOTICE: the absence of condemning ALL hate, instead there are people in Reddit fandom proudly declaring they hate the woman singer (Nicki Minaj). Trump leads with hate leadership mindsets. Surkovian MonoMyth techniques of population manipulation.
+> 
+> * AVOIDED on Reddit social in hate-fandom information topic context, deep Atlanta USA American assertions. February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+>     * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+>
+
+
+=============
+  
+## Reddit comment o28xo51
+
+    entry 21
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28xo51/  
+Comment ID:      o28xo51  
+Author:          Zezespeakz_  
+Bio:               
+Account Created: 2021-07-13T18:27:48Z  
+Link Karma:      1125  
+Comment Karma:   40918  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-28T17:15:06Z  
+Score:           113 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+Yes this. I fucking hate him.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Hate is the Reddit posting title, and fanatics of hate crowd around the Reddit posting to promote hate. Media cultists.
+> 
+> * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+>
+
+
+=============
+  
+## Reddit comment o28wvi8
+
+    entry 22
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28wvi8/  
+Comment ID:      o28wvi8  
+Author:          Dano_Milkshake  
+Bio:               
+Account Created: 2025-05-24T04:03:19Z  
+Link Karma:      11  
+Comment Karma:   2373  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-28T17:11:37Z  
+Score:           83 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+She must really have a family member who needs a pardon because this is insane
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 8 month Reddit account. "insane"
+>
+
+
+=============
+  
+## Reddit comment o28vtyn
+
+    entry 23
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vtyn/  
+Comment ID:      o28vtyn  
+Author:          lilactea22  
+Bio:               
+Account Created: 2024-05-20T20:45:36Z  
+Link Karma:      1  
+Comment Karma:   1323  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-28T17:07:01Z  
+Score:           51 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+People who claim to love being hated are the worst humans on the planet. Desperate for love but forever undeserving of it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Messaging that human persons do not deserve love. Reddit mind-fuck to promote out-group mass dehumanization, entire categories of persons on Earth that do not deserve love. Reddit cultists of out-group hate, Levant monomyth indoctrinated values in Reddit sociologically oriented MAGA / Trumpism USA thinking. Complete tech-loving (machines) Reddit social attitudes, total rejection of USA Atlanta Dr. Martin Luther King's goodness and reformations.
+> 
+> * "this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and **aggression and abuse are projected outward on others**. Compassion is to be reserved for members of your own group." - Year 1988 book, "The Power Of Myth". SEE_ALSO [See Also: "the Angolan Experience" - Page 89](https://www.google.com/books/edition/Cuban_Identity_and_the_Angolan_Experienc/nJe59BNpCUkC?hl=en&gbpv=1&dq=%22sociologically+oriented+mythologies.+That+is+to+say,+love+and+compassion%22&pg=PA89&printsec=frontcover)
+>
