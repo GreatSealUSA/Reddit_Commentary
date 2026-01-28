@@ -709,3 +709,173 @@ People who claim to love being hated are the worst humans on the planet. Despera
 > 
 > * "this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and **aggression and abuse are projected outward on others**. Compassion is to be reserved for members of your own group." - Year 1988 book, "The Power Of Myth". SEE_ALSO [See Also: "the Angolan Experience" - Page 89](https://www.google.com/books/edition/Cuban_Identity_and_the_Angolan_Experienc/nJe59BNpCUkC?hl=en&gbpv=1&dq=%22sociologically+oriented+mythologies.+That+is+to+say,+love+and+compassion%22&pg=PA89&printsec=frontcover)
 >
+
+
+=============
+  
+## Reddit comment o28vlt6
+
+    entry 24
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vlt6/  
+Comment ID:      o28vlt6  
+Author:          Wide-Fix-4082  
+Bio:               
+Account Created: 2025-12-06T09:25:19Z  
+Link Karma:      1  
+Comment Karma:   11634  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T17:06:01Z  
+Score:           25 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+Sorry, but not even hate is worth directing against you and the president.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. Implying that hate has value and does anything good.
+>
+
+
+=============
+  
+## Reddit comment o28xrs5
+
+    entry 25
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28xrs5/  
+Comment ID:      o28xrs5  
+Author:          Past-Chart9935  
+Bio:               
+Account Created: 2025-07-10T22:14:44Z  
+Link Karma:      868  
+Comment Karma:   15874  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-28T17:15:32Z  
+Score:           34 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+Hitching your career to a dying pedophile is an interesting choice. Can't wait until hes gone and she has to scramble to pivot again
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account.
+> 
+> Manipulation messaging to Reddit [hearts and minds](https://en.wikipedia.org/wiki/Winning_hearts_and_minds) that this content is a thrilling Reality White House shows with performers / actors / lead by Trump content producer. Media cultists, famous celebrity Trump and supporting cast hired by Kremlin and White House for Reddit fandom. Redditors are glued to their touch devices waiting for every new content drop to comment and muse over. Framing it like latest season of Television "The Apprentice" scripted Reality HDTV... anticipating the next story plot twists and turns. Feeding the fiction addictions of the media cults.
+>
+
+
+=============
+  
+## Reddit comment o28vu9q
+
+    entry 26
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28vu9q/  
+Comment ID:      o28vu9q  
+Author:          Calhalen  
+Bio:               
+Account Created: 2013-07-23T06:15:26Z  
+Link Karma:      4550  
+Comment Karma:   340182  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T17:07:04Z  
+Score:           19 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+Surprise appearance by Kevin o Leary fuck my life. What a shit group of people
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Shit-prizing Reddit community. Shit-commenting, shit-posting, shit-voting on meme sites. Shit-organizing information system fandom. Following Trump's lead actor role with the current on-stage supporting actresses and actors. Reddit audience entirely engaged with the Surkov student screenplays and professional actors and performers playing Reality White House / Kremlin show. Surkov won since March 2013, [the WWW trolling operation](https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md) has Reddit audience eating right out of the hands of Kremlin screenplays.
+>
+
+
+=============
+  
+## Reddit comment o28x8sa
+
+    entry 27
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28x8sa/  
+Comment ID:      o28x8sa  
+Author:          even_less_resistance  
+Bio:             ……. : Purify yourself in the waters of Lake Swepco  
+Account Created: 2014-02-27T22:47:52Z  
+Link Karma:      11478  
+Comment Karma:   274508  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T17:13:14Z  
+Score:           21 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+if there ever was a humiliation ritual… i’m just sayin\- lmao
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Low-effort Reddit commenting, Tweet-length thinking patterns, Twitter-thinking as conditioned by Musk. Recognition of cult ritual, but does not assert any nonfiction authors, book titles, quotes about cult deprogramming. Audience hive mind (Reddit hive mind) attitude of commenting about cult events and not concerned to raise alarms and call for nonfiction teachings and mental health workers to unite in serious education and cult awareness campaigns. Fiction, anti-reality, hive-minded audience reaction,
+>
+
+
+=============
+  
+## Reddit comment o28x4mt
+
+    entry 28
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28x4mt/  
+Comment ID:      o28x4mt  
+Author:          UnintentionalWipe  
+Bio:               
+Account Created: 2024-01-29T18:42:57Z  
+Link Karma:      30086  
+Comment Karma:   262638  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T17:12:44Z  
+Score:           18 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+I think it's fascinating that Nicki was so big and seemed to be everywhere, but once other female artists came up (many due to her influence) she fell from grace by not supporting them. Similar to Trump, if you're not praising her then you're her enemy. But unlike Trump, she goes harder on women than men since she centers her life around them.
+
+We know her brother was convicted of horrific crimes, those she aligned herself with were charged with horrific crimes. She married a man who was also convicted and has made her public life worse. But because she centers men over herself, she doesn't care. Which is crazy to me, because the entertainment business is filled with horrible people, but they're horrible people who put themselves and their career first. The fact that she put her husband's crimes over her career when she's the breadwinner is just wild. 
+
+Now she has no choice but to beg Trump so her husband can get his record clean. It's sad. She's always been a bad person, but throwing away everything for a man who can't even go to the park is insane.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Compulsive attraction to Donald Trump. Hundreds of millions of media consumers, famous and non-famous, can not resist the media presence and camera staging that Donald Trump commands.
+>
+
+
+=============
+  
+## Reddit comment o28y48q
+
+    entry 29
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qpgvse/nicki_minaj_whos_married_to_a_rapist_walks_out/o28y48q/  
+Comment ID:      o28y48q  
+Author:          gutterfreaklabs  
+Bio:               
+Account Created: 2025-12-06T19:36:03Z  
+Link Karma:      1  
+Comment Karma:   2118  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T17:17:03Z  
+Score:           15 points  
+Post Title:      Nicki Minaj, who’s married to a rapist, walks out with rapist Donald Trump at the Trump Accounts Summit: “I am probably the President’s #1 fan & that’s not going to change. And the hate or what people have to say, it does not affect me at all. It actually motivates me to support him more.”  
+:::::: Reddit User Comment: ======  
+She's got money problems, and this is the big ticket grift right now
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account.
+> 
+> This message is to assure the cult Reddit audience to celebrity content... that money is the ONLY motivation. The one and only one motivation, Ignoring brainwashing, ignoring Fox News HDTV cult that does not *give money* to cultists to tune into addictive content. Short Twitter-length Tweet-thinking messaging to manipulate Reddit audience into avoiding the Trump cult stardom-cult "Fauxmoi" behavior of Reddit community. Trump is first and foremost an actor, acting the Tony Clifton SNL NYC performance of Trump family home town. Reddit fandom eats up the show and does not desire to remove Trump from the constant center of all media systems focus.
+>
