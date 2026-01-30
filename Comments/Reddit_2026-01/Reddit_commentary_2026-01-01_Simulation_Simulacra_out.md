@@ -2790,3 +2790,228 @@ Wow, what a throwback from Maddox himself. Youngsters don't know this legend.
 > 
 > * “When a population becomes **distracted by trivia, when cultural life is redefined as a perpetual round** of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
 >
+
+
+=============
+  
+## Reddit comment o2banab
+
+    entry 92
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qprema/erika_kirk_under_fire_as_husbands_pal_leaks_audio/o2banab/  
+Comment ID:      o2banab  
+Author:          jazzant85  
+Bio:               
+Account Created: 2016-04-29T10:18:49Z  
+Link Karma:      23177  
+Comment Karma:   41359  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-28T23:35:32Z  
+Score:           1561 points  
+Post Title:      Erika Kirk Under Fire As Husband's Pal Leaks Audio Of Her 'Giggling' About 'Event Of The Century' After His Death  
+:::::: Reddit User Comment: ======  
+These people are so fucking gross. JFC.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This topic has very little to do with the White House. Front page of Reddit /r/All - this is simulation of resistance. Instead of spending free time and spare time commenting on this posting, people should be taking the cult behavior n directly by promoting / asserting / quoting Dr. Bandy X. Lee.
+>
+
+
+=============
+  
+## Reddit comment o2adx7j
+
+    entry 93
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qpnktj/candace_owens_released_leaked_audio_from_turning/o2adx7j/  
+Comment ID:      o2adx7j  
+Author:          Melodic_Mulberry  
+Bio:               
+Account Created: 2019-09-19T22:37:49Z  
+Link Karma:      3239  
+Comment Karma:   764641  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-28T21:03:20Z  
+Score:           4915 points  
+Post Title:      Candace Owens released leaked audio from Turning Point USA in which Erika Kirk is heard celebrating attendance figures, merchandise sales, and performance metrics from Charlie Kirk’s memorial event just 11 days after his death  
+:::::: Reddit User Comment: ======  
+What, you think she married him for his winning personality?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Same story, multiple times on /r/All front page. Shit-posting society, shit-commenting - following the shit leadership of a Trump social values.
+>
+
+
+=============
+  
+## Reddit comment o29tnnm
+
+    entry 94
+
+Comment URL: https://old.reddit.com/r/therewasanattempt/comments/1qpkk7x/to_be_perceived_as_a_grieving_widow/o29tnnm/  
+Comment ID:      o29tnnm  
+Author:          HDThoreauaway  
+Bio:             Henry David Thoreauaway : Throwaway account I forgot to log out of a very long time ago.  
+Account Created: 2011-11-16T14:29:17Z  
+Link Karma:      10472  
+Comment Karma:   335807  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-28T19:33:23Z  
+Score:           5137 points  
+Post Title:      to be perceived as a "grieving widow"  
+:::::: Reddit User Comment: ======  
+
+> More recently, Erika announced a new tour she would be embarking on the Make Heaven Crowded Tour 2026
+
+... the fuck? Is she planning a massacre?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Same story, lingering on front page /r/All all day. Media cults. Heaven is science fiction planet, like Eden is a science fiction planet.
+>
+
+
+=============
+  
+## Reddit comment o2en43r
+
+    entry 95
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qq86e8/full_leaked_tpusa_zoom_call_erika_kirk_speaks/o2en43r/  
+Comment ID:      o2en43r  
+Author:          Vibrantmender20  
+Bio:               
+Account Created: 2016-01-27T01:09:23Z  
+Link Karma:      7826  
+Comment Karma:   228939  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-29T13:24:49Z  
+Score:           1679 points  
+Post Title:      Full Leaked TPUSA Zoom Call": Erika Kirk speaks with staff regarding attendance and sales following Charlie Kirk's death.  
+:::::: Reddit User Comment: ======  
+Wait wait wait, you’re telling me that the woman who’s been on a nonstop press tour since her husband’s death *isn’t* the grieving widow we were led to believe she was???
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Same story, next day. What exactly is Reddit resisting. "S piling the tea" on a woman?  Rumors? This isn't about REMOVING Donald Trump from office and taking on Putin's information warfare. This is entertainment like Reality TV "leaks" of a plot line.
+> 
+> Reddit audience upvotes Charlie Kirk content over and over since his death. The attraction to the nonsense is keeping people from facing the mental health problems of MAGA and Donald Trump. Dr. Bandy X Lee being on the front page is far more important and urgent than Erika Kirk and Charlie Kirk. Reddit is the AUDIENCE to this garbage. Mocking it is not resisting it. This is a Celebration of Ignorance as defined by Carl Sagan in 1995. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md
+>
+
+
+=============
+  
+## Reddit comment o2e3dmp
+
+    entry 96
+
+Comment URL: https://old.reddit.com/r/Snorkblot/comments/1qq5n2x/knowledge_is_power_data_is_currency/o2e3dmp/  
+Comment ID:      o2e3dmp  
+Author:          Sjovhedsnyt  
+Bio:               
+Account Created: 2024-06-28T13:47:03Z  
+Link Karma:      1742  
+Comment Karma:   12145  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-29T11:09:43Z  
+Score:           148 points  
+Post Title:      Knowledge is power, data is currency.  
+:::::: Reddit User Comment: ======  
+Don't forget finding new and innovative ways to not pay taxes and lobby against unionising.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The Reddit posting, the image / screenshot. This is not NEW. Billionaires have adopted what the Catholic Church did. 1. Church did not pay Taxes, it COLLECTED them as fees for Bible science fiction. Just like HBO Max, Disney+, Amazon, Apple TV+, Sports Teams owner billionaires, Taylor Swift video charges FEES to see science fiction stories. The Church. 2) Secrets to sell ads, that's what CONFESSION is - secret peer to peer intelligence gathering about "sin" so the Clergy can use that to sell and collect money on Sunday topic.
+> 
+> What we have is a failure to study Marshall McLuhan, media ecology, the ecological behavior of media systems - social media users on January 2026 do not recognize that The Church in year 1750 was doing the SAME THING, "Old World Order". Mecca does the same thing in Saudi Arabia leadership, "Old World Order" that year 1776 is trying to address. The Founding Fathers Free Masons understood this, but today in year 2026 after 250 years, we have failed to keep up with this comprehension of how the Clergy uses science fiction storytelling to rule a population. Marshall McLuhan and Neil Postman's teachings are essential reformation in year 2026!
+>
+
+
+=============
+  
+## Reddit comment o2eq40m
+
+    entry 97
+
+Comment URL: https://old.reddit.com/r/wisconsin/comments/1qq8m7u/liberal_wisconsin_brewing_company_promises_free/o2eq40m/  
+Comment ID:      o2eq40m  
+Author:          christmastree47  
+Bio:               
+Account Created: 2012-12-26T01:40:01Z  
+Link Karma:      1417  
+Comment Karma:   80385  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-29T13:41:09Z  
+Score:           508 points  
+Post Title:      Liberal Wisconsin brewing company promises 'free beer, all day long' after Trump dies  
+:::::: Reddit User Comment: ======  
+The Minocqua Brewing guy is the embodiment of that Onion article: "Heartbreaking: The Worst Person You Know Just Made A Great Point"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This entire Reddit front-page posting is simulation of resistance. Reddit audience is being programmed by this content to be passive and not have a social media uprising RIGHT NOW. AVOIDING: Promoting Jen Senko's nonfiction film about brainwashing. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Dr. Bandy X Lee's October 3, 2017 book about Trump / MAGA mental health issues. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+> 
+> Instead of using social media ACTIVELY to address the cult issues of Fox News HDTV media, cult issues of Trump hate-watching fandoms... wait around and be entertained until one person dies. That doesn't address the hundreds of millions of cult members to Charlie Kirk science fiction podcasts, Rupert Murdoch fiction media, Putin's information warfare cultists, etc.
+>
+
+
+=============
+  
+## Reddit comment o2fyken
+
+    entry 98
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qqdhw4/the_grieving_widow_enjoying_the_best_thing_that/o2fyken/  
+Comment ID:      o2fyken  
+Author:          papasan_mamasan  
+Bio:             Patty don’t start  
+Account Created: 2017-05-31T23:46:21Z  
+Link Karma:      6664  
+Comment Karma:   402588  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-29T17:10:28Z  
+Score:           1013 points  
+Post Title:      The grieving widow enjoying the best thing that ever happened to her  
+:::::: Reddit User Comment: ======  
+Charlie’s whole existence was a grift. Like a more fucked up Truman Show.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And again, Charlie Kirk content to front page of /r/All - fandom on Reddit can't resist Kirk. Yes, a "Truman Show" that Reddit audiences hang on every breaking news. This Reddit commenting section isn't resisting.
+>
+
+
+=============
+  
+## Reddit comment o2ff46m
+
+    entry 99
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1qqbh9x/widow_of_the_year/o2ff46m/  
+Comment ID:      o2ff46m  
+Author:          Puzzled_Ad7955  
+Bio:               
+Account Created: 2020-08-24T00:25:52Z  
+Link Karma:      134  
+Comment Karma:   76717  
+Comment Age:     9 hours ago  
+Timestamp:       2026-01-29T15:43:51Z  
+Score:           1016 points  
+Post Title:      Widow of the year  
+:::::: Reddit User Comment: ======  
+I’m more concerned with the people who bought the merchandise……. they walk among us. Yikes 😳
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And ANOTHER time Charlie Kirk / Erica Kirk fandom on Reddit puts it on front page /r/All - the fandom can never get enough of Kirk content. Fiction attraction, attractive nuisance like Trump family. https://en.wikipedia.org/wiki/Attractive_nuisance_doctrine
+>
