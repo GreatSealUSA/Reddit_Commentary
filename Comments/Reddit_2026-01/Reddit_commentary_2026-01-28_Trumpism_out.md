@@ -5580,3 +5580,60 @@ My dad took us to the camps, we saw the shoes. He still fell for it
 > 
 > * From September 9, 2014 - 11 years 4 months and some weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be [repeating it every 47 hours over and over](https://github.com/GreatSealUSA/Brainrot_Society_47), keep repeating, again and again!
 >
+
+
+=============
+  
+## Reddit comment o2mehp9
+
+    entry 195
+
+Comment URL: https://old.reddit.com/r/WorkReform/comments/1qr8iou/weve_been_warned_why_cant_people_see_the_obvious/o2mehp9/  
+Comment ID:      o2mehp9  
+Author:          xile  
+Bio:               
+Account Created: 2010-09-17T23:20:03Z  
+Link Karma:      977  
+Comment Karma:   18106  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-30T15:53:32Z  
+Score:           8 points  
+Post Title:      We've been warned. Why can't people see the obvious?  
+:::::: Reddit User Comment: ======  
+The right have been screaming and projecting fraud as a tenant of the left. It's a hard uphill battle to show them the mirror and have them actually believe what they see.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Left vs. right brain rot. Fiction vs. nonfiction is the more critical measure. What most describe as "right" is fiction addiction. Abandonment of science nonfiction thinking.
+>
+
+
+=============
+  
+## Reddit comment o2l7qp6
+
+    entry 196
+
+Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qr35wi/that_is_soooooo_sad_so_so_so_so_sooooooo_sad/o2l7qp6/  
+Comment ID:      o2l7qp6  
+Author:          LilSebastian_482  
+Bio:               
+Account Created: 2018-01-13T13:33:19Z  
+Link Karma:      2437  
+Comment Karma:   23916  
+Comment Age:     6 hours ago  
+Timestamp:       2026-01-30T12:05:59Z  
+Score:           1130 points  
+Post Title:      That is soooooo sad. So so so so sooooooo sad.  
+:::::: Reddit User Comment: ======  
+“Paid actors”
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> How can you know that the Craigslist advert is real, or that the no-evidence Twitter screenshot is real? People are not standing up to the abandonment of nonfiction. Surkov won.
+> 
+> * "But the key thing was, that Surkov then let it be known that this was what he was doing, **which meant that no one was sure what was real or fake**. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - [BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html), December 31, 2014 (NYE year 2014)         
+> https://youtu.be/yqpo9GqTaV8?t=1857
+>
