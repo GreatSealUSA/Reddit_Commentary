@@ -176,3 +176,88 @@ Why don't people sue trump. Like every day, for the sh\*t he says about them tha
 > 
 > SEE_ALSO Reddit fell for the ["Big Lie" / "große Lüge"](https://en.wikipedia.org/wiki/Big_lie) technique, Biblical "Big Troll", I've named: Operation Matthew 4:19 https://GitHub.com/RocketDerp/April14_2025/blob/working/Operation_Matthew_4_19_on_monday_2024-03-31.md
 >
+
+
+=============
+  
+## Reddit comment o2qj5co
+
+    entry 6
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qrs44h/trump_accuses_newly_elected_va_gov_abigail/o2qj5co/  
+Comment ID:      o2qj5co  
+Author:          n4spd2  
+Bio:               
+Account Created: 2018-02-15T18:48:42Z  
+Link Karma:      51  
+Comment Karma:   2483  
+Comment Age:     10 hours ago  
+Timestamp:       2026-01-31T04:30:04Z  
+Score:           269 points  
+Post Title:      Trump accuses newly elected VA Gov Abigail Spanberger of “cheating” to win the Virginia governor’s race. Spanberger won by 15 points. Her MAGA opponent conceded and didn’t accuse her of fraud.  
+:::::: Reddit User Comment: ======  
+he is so used to cheating that he thinks others must be too.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Faith system.
+>
+
+
+=============
+  
+## Reddit comment o2qk48e
+
+    entry 7
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qrs44h/trump_accuses_newly_elected_va_gov_abigail/o2qk48e/  
+Comment ID:      o2qk48e  
+Author:          According-Lead-8477  
+Bio:               
+Account Created: 2025-11-15T14:24:08Z  
+Link Karma:      1  
+Comment Karma:   4002  
+Comment Age:     10 hours ago  
+Timestamp:       2026-01-31T04:36:49Z  
+Score:           21 points  
+Post Title:      Trump accuses newly elected VA Gov Abigail Spanberger of “cheating” to win the Virginia governor’s race. Spanberger won by 15 points. Her MAGA opponent conceded and didn’t accuse her of fraud.  
+:::::: Reddit User Comment: ======  
+Well…there was his confession that he cheated in the 2024 election!!! The things he accuses others of is ALWAYS a confession. Just like him saying that dems abort babies AFTER 9 MONTHS. His mouth is an open book.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o2qpi0e
+
+    entry 8
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qrs44h/trump_accuses_newly_elected_va_gov_abigail/o2qpi0e/  
+Comment ID:      o2qpi0e  
+Author:          Naps_And_Crimes  
+Bio:               
+Account Created: 2023-06-23T07:01:17Z  
+Link Karma:      33916  
+Comment Karma:   134695  
+Comment Age:     9 hours ago  
+Timestamp:       2026-01-31T05:15:41Z  
+Score:           13 points  
+Post Title:      Trump accuses newly elected VA Gov Abigail Spanberger of “cheating” to win the Virginia governor’s race. Spanberger won by 15 points. Her MAGA opponent conceded and didn’t accuse her of fraud.  
+:::::: Reddit User Comment: ======  
+Transgender for everyone?
+
+Like everyone gets one?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Tweet-thinking Twitter-style commenting, highly upvoted on Reddit. 
+> 
+> That's one of the huge problem I see with society in the face of serious danger. People *bitching* about Trump talking points and language, but not reaching for articles / citations / references with real author names. For example, I have kept a close eye on one article on The Atlantic since September 16, 2020 ["Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) - as the whole Tower of Babel, media ecology front and center. Alternate reality via language and meaning - that's hard-core Marshall McLuhan (University of Toronto) topic of media ecology. Finnegans Wake... as [in **year 1924 onward publication Woke... Wake** to media, media woke](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village).
+>
