@@ -4,4 +4,10 @@
 
 2. [January 2026 2026-01-25 Trumpism MAGA USA cult behavior concerns](Reddit_2026-01/Reddit_commentary_2026-01-25_Trumpism_out.md)
 
-3. [January 2026 2026-**01-28** Trumpism MAGA USA cult behavior concerns](Reddit_2026-01/Reddit_commentary_2026-01-28_Trumpism_out.md)
+&nbsp;
+
+# Simulation echo-chamber [filter-bubble](https://en.wikipedia.org/wiki/Filter_bubble)
+
+* "we are now on one side of the pyramid. We've moved from one to two. We are politically, historically, now a member of **one side of an argument**. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason." - https://www.GreatSealUSA.com Published Year 1988.
+
+1. [January 2026 2026-**01-28** Trumpism MAGA USA cult behavior concerns](Reddit_2026-01/Reddit_commentary_2026-01-28_Trumpism_out.md)
