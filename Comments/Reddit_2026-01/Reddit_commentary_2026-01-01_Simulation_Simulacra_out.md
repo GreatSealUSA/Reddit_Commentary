@@ -2957,7 +2957,7 @@ The Minocqua Brewing guy is the embodiment of that Onion article: "Heartbreaking
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-> This entire Reddit front-page posting is simulation of resistance. Reddit audience is being programmed by this content to be passive and not have a social media uprising RIGHT NOW. AVOIDING: Promoting Jen Senko's nonfiction film about brainwashing. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Dr. Bandy X Lee's October 3, 2017 book about Trump / MAGA mental health issues. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+> This entire Reddit front-page posting is simulation of resistance. Reddit audience is being programmed by this content to be passive and not have a social media uprising RIGHT NOW. AVOIDING: Promoting Jen Senko's nonfiction film about brainwashing. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Dr. Bandy X Lee's October 3, 2017 book about Trump / MAGA mental health issues. https://www.ScientificAmerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 > 
 > Instead of using social media ACTIVELY to address the cult issues of Fox News HDTV media, cult issues of Trump hate-watching fandoms... wait around and be entertained until one person dies. That doesn't address the hundreds of millions of cult members to Charlie Kirk science fiction podcasts, Rupert Murdoch fiction media, Putin's information warfare cultists, etc.
 >
@@ -3014,4 +3014,72 @@ I’m more concerned with the people who bought the merchandise……. they walk
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
 > And ANOTHER time Charlie Kirk / Erica Kirk fandom on Reddit puts it on front page /r/All - the fandom can never get enough of Kirk content. Fiction attraction, attractive nuisance like Trump family. https://en.wikipedia.org/wiki/Attractive_nuisance_doctrine
+>
+
+
+=============
+  
+## Reddit comment o2mnq23
+
+    entry 100
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qra9oi/final_jeffrey_epstein_files_cache_released_by_doj/o2mnq23/  
+Comment ID:      o2mnq23  
+Author:          drtolmn69  
+Bio:               
+Account Created: 2023-12-04T16:23:11Z  
+Link Karma:      237117  
+Comment Karma:   156582  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T16:34:44Z  
+Score:           None  
+Post Title:      Final Jeffrey Epstein Files cache released by DOJ: read in full  
+:::::: Reddit User Comment: ======  
+I kind of doubt that many will consider any 'final' release to be truly *complete*.
+
+Months and months of redacting, obfuscating, and outright hiding or reworking by trump loyalists will mean next to zero trust, and that's right.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> *slight* doubt. "kind of doubt". Low-effort most upvoted popular comment. Twitter-length. Instead of posting an off-Reddit link to a FAQ or Wii about the Epstein situation and timeline: low-effort committing is what the Reddit fandom has been conditioned to upvote. Anti-serious, anti-education, anti-adult learning of details.
+>
+
+
+=============
+  
+## Reddit comment o2s8lz3
+
+    entry 101
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qs1vkz/end_of_the_debate/o2s8lz3/  
+Comment ID:      o2s8lz3  
+Author:          skintastegood  
+Bio:               
+Account Created: 2025-07-02T21:30:23Z  
+Link Karma:      1  
+Comment Karma:   8920  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-31T13:14:46Z  
+Score:           1236 points  
+Post Title:      END OF THE DEBATE!!  
+:::::: Reddit User Comment: ======  
+It's so much more than just raping pedophiles 
+
+This is one of the most successful "spy" operations. 
+
+The entire oligarchy of the USA is compromised with photo video evidence of rape and pedophile. 
+
+There is no voting our way out of this.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The Twitter image is a BLATANT example of simulation of resistance. Back and forth Tweet-thinking tiny-short patterns. Over and over and over in gaming loops. Game loop machine media Tweeting. An alternate reality gaming media enviornment (ARG media politics, Surkovian / Surkov). "END OF THE DEBATE" nonsense, the issue is MEDIA ECOLOGY EDUCATION. **This REDDIT-TWITTER INTERACTION is NOT A DEBATE**!!!
+> 
+> * "I mean, these are papers that you could legitimately expect people to write if they still read or wrote. Not many people still do either – read or write, much – but in any case; reduction of complexity. **Let’s look at political parties** for a moment. The Republicans with their great traditions have come up with a slogan of incredible sophistication: “No more tax and spend”. Now **any you who can quack that one out could be a Republican. And I am using that in the Orwellian sense of “quack”; you don’t need to engage higher brain functions**. All you have to do is say “Don’t take my money, and don’t spend it… well, except on me and my friends, but don’t tax and spend”. Now it’s not that the Democrats are doing any better, I don’t guess that’s news." ... "But the Democrat’s response to this “tax and spend” is “No we don’t, nah nah na-nah nah: invest” **This is political debate in a democracy. No it’s not. It’s the simulation of politics. Ross Perot is not leading a movement. It is a simulation** of a movement, follow me?" - Texan Rick Roderick, Duke University. https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+> 
+> Every media site commenting section is now interactive fiction (IF), touch screen filter-bubble games. An alternate reality gaming environment where people crave fiction and mythology (monomyth chunks and patterns) and have abandoned sustained focus "we all need to get on the *same page together*" nonfiction serious important topics.
+> 
+> * “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
 >
