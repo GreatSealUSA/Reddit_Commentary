@@ -5637,3 +5637,1111 @@ Post Title:      That is soooooo sad. So so so so sooooooo sad.
 > * "But the key thing was, that Surkov then let it be known that this was what he was doing, **which meant that no one was sure what was real or fake**. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - [BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html), December 31, 2014 (NYE year 2014)         
 > https://youtu.be/yqpo9GqTaV8?t=1857
 >
+
+
+=============
+  
+## Reddit comment o2mvfht
+
+    entry 197
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qra9oi/final_jeffrey_epstein_files_cache_released_by_doj/o2mvfht/  
+Comment ID:      o2mvfht  
+Author:          green49285  
+Bio:             1 post away from being your new step-dad.  
+Account Created: 2014-12-21T03:46:23Z  
+Link Karma:      179  
+Comment Karma:   251500  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-30T17:09:02Z  
+Score:           None  
+Post Title:      Final Jeffrey Epstein Files cache released by DOJ: read in full  
+:::::: Reddit User Comment: ======  
+Haha after saying they didn't exist.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "ha ha", social media laugh track. Tiny popular Tweet-length message patterns. Epstein entertainment fandom. Find it amusing that Trump and Putin use Surkov information society techniques. Behavior of Reddit audience bombed into comedy mentality by Kremlin information warfare since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o2ntide
+
+    entry 198
+
+Comment URL: https://old.reddit.com/r/law/comments/1qrf7xc/doj_just_deleted_this_document_from_the_epstein/o2ntide/  
+Comment ID:      o2ntide  
+Author:          skate1243  
+Bio:             …  
+Account Created: 2014-04-14T19:56:49Z  
+Link Karma:      11447  
+Comment Karma:   29089  
+Comment Age:     57 minutes ago  
+Timestamp:       2026-01-30T19:40:04Z  
+Score:           219 points  
+Post Title:      DOJ Just DELETED This Document from the Epstein Files. We Saved It.  
+:::::: Reddit User Comment: ======  
+They don’t care. Their supporters saw a video of ICE executing a man in the street, saw DHS lie about what happened, and still parrot whatever propaganda they’re told to think without a second of critical thought
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People are motivated to *hate harder*. To avoid at all cost: MLK Jr's teachings about hate.
+>
+
+
+=============
+  
+## Reddit comment o2ntnqd
+
+    entry 199
+
+Comment URL: https://old.reddit.com/r/law/comments/1qrf7xc/doj_just_deleted_this_document_from_the_epstein/o2ntnqd/  
+Comment ID:      o2ntnqd  
+Author:          copperblood  
+Bio:             a relic.  
+Account Created: 2011-12-13T18:17:04Z  
+Link Karma:      9788  
+Comment Karma:   414293  
+Comment Age:     57 minutes ago  
+Timestamp:       2026-01-30T19:40:46Z  
+Score:           128 points  
+Post Title:      DOJ Just DELETED This Document from the Epstein Files. We Saved It.  
+:::::: Reddit User Comment: ======  
+MAGA will see no problem with this because MAGA is so far gone they’d let Trump rape their daughters for a chance to meet him.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit community is a media **cult** *so far gone* in reaction-commenting to **Trump content** and sex action details that people on Reddit will not stop reacting to every Trump information drop / Trump photograph... and face up to media addition to a celebrity is what MAGA is driven by. Dr. Bandy X Lee ignored!
+>
+
+
+=============
+  
+## Reddit comment o2o46ho
+
+    entry 200
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o46ho/  
+Comment ID:      o2o46ho  
+Author:          Zolomun  
+Bio:               
+Account Created: 2013-01-14T03:30:30Z  
+Link Karma:      430  
+Comment Karma:   49265  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-30T20:30:00Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+When what they released is going to haunt me the rest of my life, I can’t imagine how bad the truth really is.
+
+
+
+
+=============
+  
+## Reddit comment o2oog4z
+
+    entry 201
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oog4z/  
+Comment ID:      o2oog4z  
+Author:          specialkk77  
+Bio:               
+Account Created: 2012-02-07T19:41:32Z  
+Link Karma:      623  
+Comment Karma:   325201  
+Comment Age:     25 minutes ago  
+Timestamp:       2026-01-30T22:06:23Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+Trump is good for clicks. Look how much engagement news sites get these days. They don’t care if the downfall of America happens as long as they get more views.
+
+
+
+
+=============
+  
+## Reddit comment o2o50ta
+
+    entry 202
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o50ta/  
+Comment ID:      o2o50ta  
+Author:          reddittorbrigade  
+Bio:             reddit :   
+Account Created: 2024-07-19T19:19:51Z  
+Link Karma:      124  
+Comment Karma:   557928  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T20:34:02Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+Trump must be impeached and removed ASAP.
+
+If we allow a child rapist to be our president, then what will happen to our children and their future?
+
+
+
+
+=============
+  
+## Reddit comment o2o780n
+
+    entry 203
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o780n/  
+Comment ID:      o2o780n  
+Author:          TintedApostle  
+Bio:               
+Account Created: 2022-01-15T13:41:41Z  
+Link Karma:      27104  
+Comment Karma:   3846457  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T20:44:39Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+Anyone want to bet Trump bombs Iran tonight?
+
+
+
+
+=============
+  
+## Reddit comment o2o5u6t
+
+    entry 204
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o5u6t/  
+Comment ID:      o2o5u6t  
+Author:          HereToWriteSmut  
+Bio:               
+Account Created: 2025-10-01T00:07:42Z  
+Link Karma:      559  
+Comment Karma:   673  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T20:37:59Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+These redactions are ridiculous. Look at the difference between these two files, both from DoJ, one with major redactions and one with less. 
+
+[https://www.justice.gov/epstein/files/DataSet%2010/EFTA01735431\.pdf](https://www.justice.gov/epstein/files/DataSet%2010/EFTA01735431.pdf)
+
+vs 
+
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA01116345\.pdf](https://www.justice.gov/epstein/files/DataSet%209/EFTA01116345.pdf)
+
+The files aren't released. They're censored garbage meant to deflect and distract and give the MAGAts a talking point to try and shield their favorite pedophile; "They already released the files!" when this is ust a small fragment of what Trump and Epstein and others really did.
+
+
+
+
+=============
+  
+## Reddit comment o2o76qn
+
+    entry 205
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o76qn/  
+Comment ID:      o2o76qn  
+Author:          GoldenHourLXXII  
+Bio:               
+Account Created: 2022-10-15T18:37:51Z  
+Link Karma:      6  
+Comment Karma:   1749  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T20:44:30Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+The absolute worst part is that no actual mainstream news will report on it, everyone will pretend it isn't real, WH will deny it's real, and in less than a week tariffs will mysteriously go up on some country to shift the news.
+
+It is crazy, we have a literal rapist pedophile running secret police and ruining our country and millions are OPENLY cheering him on.
+
+
+
+
+=============
+  
+## Reddit comment o2o82uo
+
+    entry 206
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o82uo/  
+Comment ID:      o2o82uo  
+Author:          nonubiz  
+Bio:               
+Account Created: 2019-03-12T03:20:31Z  
+Link Karma:      5  
+Comment Karma:   7277  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T20:48:43Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+I can’t believe there’s not thousands of people in the streets marching against this guy he needs to go to jail
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> I, Stephen Alfred Gutknecht, consider Trump to be a massive mistake for USA society. I think it is an error in judgement. I think NOBODY benefits from Trumpism. I think it represents the forces of media systems cramming minds into predictable patterns. Marketing and advertising were able to resonate with minds wrecked by high-speed information networks. It is sickening and sad that people do not study Marshall McLuhan, Neil Postman and grasp what has happened. Technology advancement has created disturbed fixations on television icons Trump. Russia was able to take Neil Postman's 1985 media theories and weaponize them.
+> 
+> Creative fiction of Trump eclipsed minds of nonfiction. Russia saw the weak spots in the mind to insert self-harm attractions.
+> 
+> * From September 9, 2014 - 11 years 4 months and some weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
+>
+
+
+=============
+  
+## Reddit comment o2oatl8
+
+    entry 207
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oatl8/  
+Comment ID:      o2oatl8  
+Author:          Atopos2025  
+Bio:               
+Account Created: 2025-02-05T16:56:59Z  
+Link Karma:      1  
+Comment Karma:   28184  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T21:01:45Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+I don't care what his or any of his supporters say to defend this.
+
+There are *way too many* of these stories and accusations for all of these to be fake. 
+
+It'd be one thing for his name to be found once or a handful of times in these 3m pages of evidence, BUT HE IS ALL OVER THEM.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o2oegqp
+
+    entry 208
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oegqp/  
+Comment ID:      o2oegqp  
+Author:          tituspeetus  
+Bio:               
+Account Created: 2018-07-08T15:10:19Z  
+Link Karma:      30762  
+Comment Karma:   8193  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T21:18:55Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+Child rape is becoming normalized bc of this shit. I have seen multiple videos of debate lives where young ppl join and debate others. I have seen multiple times young people saying it’s not that bad what he did, and that they weren’t infants so it’s not that serious. We are heading down a very dark path that will take generations to steer back from
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Male aggression normalized. Male bullying normalized. ICE men invading homes, invading cars, attacking anyone they perceive to be weak or needy now normalized. Junk information to LOL at power over women, normalized. Truth Social as an anti-truth anti-sincerity platform all normalized.
+>
+
+
+=============
+  
+## Reddit comment o2o8xxb
+
+    entry 209
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o8xxb/  
+Comment ID:      o2o8xxb  
+Author:          dchap1  
+Bio:             Family man, average DIYer, former motorcyclist, avid flight simmer, and lover of a good drink.   
+Account Created: 2011-06-27T23:23:48Z  
+Link Karma:      10787  
+Comment Karma:   82843  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T20:52:50Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+It doesn’t matter. MAGA won’t believe a lick of any of it. The GOP won’t act on it. Trump will again get away with it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It matters as entertainment for Reddit audiences. People have been screaming for dirty details of rich white men sex lives. People on Reddit constantly talk about their Trump diaper fetish and there is nothing illegal about a man pooping. But it sure draws a Reddit fandom to Trump shit. Shit-commenting audiences love rich white men "Daddy" age 79 sex shit. https://en.wikipedia.org/wiki/Diaper_fetishism - ANYTHING to avoid serious nonfiction learning about Kremlin information warfare. ANYTHING to avoid learning nonfiction serious learning of mental health issues from leader Dr. Bandy X Lee.
+>
+
+
+=============
+  
+## Reddit comment o2oasbd
+
+    entry 210
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oasbd/  
+Comment ID:      o2oasbd  
+Author:          NoseyBeeeee13  
+Bio:               
+Account Created: 2024-07-14T07:11:27Z  
+Link Karma:      1  
+Comment Karma:   643  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T21:01:34Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+We've known he was guilty as fuck for years. Nothing changed. I guess Q was actually searching for pedos so they could join the party? I don't know anymore
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People on Reddit are unable to discuss factual evidence of QAnon "Q" being supported by Russia to harm USA society (Reddit audience). SEE_ALSO https://old.Reddit.com/r/QAnonRussia
+>
+
+
+=============
+  
+## Reddit comment o2o5ctu
+
+    entry 211
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o5ctu/  
+Comment ID:      o2o5ctu  
+Author:          stickscall  
+Bio:               
+Account Created: 2019-04-09T19:45:32Z  
+Link Karma:      415  
+Comment Karma:   9894  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-30T20:35:39Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+Sad thing is that nobody cares. 
+
+They fought for this just so that the truth of MAGA's rapist pathology could be confirmed once for the rare undecided, curious person, and then nakedly denied for all time.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People care, they are thrilled to get dirty details of rich and famous private jets, rich and famous private islands for the wealthy celebrities. **It matters as entertainment** for WWW meme audiences / Reddit audiences. People have been screaming for dirty details of rich white men sex lives. People on Reddit constantly talk about their Trump diaper fetish and there is nothing illegal about a man pooping. But it sure draws a Reddit fandom to Trump shit. Shit-commenting audiences love rich white men "Daddy" age 79 sex shit. https://en.wikipedia.org/wiki/Diaper_fetishism - ANYTHING to avoid serious nonfiction learning about Kremlin information warfare. ANYTHING to avoid learning nonfiction serious learning of mental health issues from leader Dr. Bandy X Lee.
+>
+
+
+=============
+  
+## Reddit comment o2ojhy1
+
+    entry 212
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2ojhy1/  
+Comment ID:      o2ojhy1  
+Author:          TheGravespawn  
+Bio:             Meme'n Russ : I sometimes paint minis.  
+Account Created: 2016-09-08T02:57:07Z  
+Link Karma:      35577  
+Comment Karma:   130164  
+Comment Age:     59 minutes ago  
+Timestamp:       2026-01-30T21:42:36Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+Blame the media for ever sane\-washing him enough to get us this far.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit media, Reddit comment community, has been the core sane-washing of Trump. "LOL cow milking" of Trump as a prized source of entertainment. Constantly LOL joking and creating memes and sharing images of Trump to laugh at as thrilling comedy. https://old.Reddit.com/r/evilautism/comments/1gryoas/i_hate_the_term_lolcow/
+>
+
+
+=============
+  
+## Reddit comment o2ojzvi
+
+    entry 213
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2ojzvi/  
+Comment ID:      o2ojzvi  
+Author:          professorxc  
+Bio:             Houston and Vancouver based Sugar Daddy  
+Account Created: 2019-02-18T14:23:46Z  
+Link Karma:      160  
+Comment Karma:   7783  
+Comment Age:     59 minutes ago  
+Timestamp:       2026-01-30T21:44:57Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+Iran is getting attacked this weekend. Or some of the democrats including Obama are getting arrested
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Entertainment-oriented Reddit audience is calling out what to expect next in the Kremlin and White House Reality variety show. No desire to promote Dr. Bandy X Lee and remove Trump through education and cult-deprogramming. Because the Reddit audience itself is a cult of mockery.
+>
+
+
+=============
+  
+## Reddit comment o2o9gm6
+
+    entry 214
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2o9gm6/  
+Comment ID:      o2o9gm6  
+Author:          beenyweenies  
+Bio:               
+Account Created: 2015-01-07T23:27:38Z  
+Link Karma:      917  
+Comment Karma:   155479  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T20:55:19Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+People here keep saying "It's a shame no one will care" or "why aren't people marching in the streets over this?"
+
+The question is what are YOU doing to spread the word and ensure it captures the national attention, and when are YOU going to take to the streets over this?
+
+Quit waiting for someone else to do the work. WE ALL need to be involved in this, together.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Addressing the cults is likely the best first step. People who want to have Trump on stage as a source of content and entertainment are holding back any serious reform. What people need to be doing is following the leadership of Dr. Bandy X Lee and quoting and teaching from her articles and books.
+>
+
+
+=============
+  
+## Reddit comment o2oaiac
+
+    entry 215
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qrgz1b/epstein_files_released_trump_mentioned_hundreds/o2oaiac/  
+Comment ID:      o2oaiac  
+Author:          Grand_Sprinkles6131  
+Bio:               
+Account Created: 2021-06-15T02:54:21Z  
+Link Karma:      3592  
+Comment Karma:   7608  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T21:00:16Z  
+Score:           None  
+Post Title:      Epstein files released: Trump mentioned ‘hundreds of times’ in DoJ documents  
+:::::: Reddit User Comment: ======  
+And yet, no traditional news is covering it. Nobody’s talking about it. Twitter algorithm was warped far right by another guy in the files. Tik tok algorithm got changed to hide anti Trump stuff. It’s absurd. He raped young girls and cowards are refusing to report on it. Darkest time of my entire life as an American and it’s not even close. It’s the most breaking news of the year by far and these morons keep falling for Trump’s trap of reporting on all the nonsense he’s pulling to distract from the fact that he’s a child rapist and one of the worst human beings that have ever lived.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "The media".
+>
+
+
+=============
+  
+## Reddit comment o2ov7w8
+
+    entry 216
+
+Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ov7w8/  
+Comment ID:      o2ov7w8  
+Author:          reddittorbrigade  
+Bio:             reddit :   
+Account Created: 2024-07-19T19:19:51Z  
+Link Karma:      124  
+Comment Karma:   557928  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T22:40:15Z  
+Score:           138 points  
+Post Title:      The conservative sub deleting all the comments discussing trumps accusations  
+:::::: Reddit User Comment: ======  
+They are indirectly guilty of molesting those helpless kids by supporting the pedophiles like Trump.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Social media uprising... to promote Dr. Bandy X Lee's educational leadership for adults... keeps not happening. People are not asserting cult deprogramming, teaching.
+>
+
+
+=============
+  
+## Reddit comment o2ovdrq
+
+    entry 217
+
+Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ovdrq/  
+Comment ID:      o2ovdrq  
+Author:          alexsummers  
+Bio:               
+Account Created: 2009-10-13T21:20:27Z  
+Link Karma:      1494  
+Comment Karma:   24862  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T22:41:04Z  
+Score:           64 points  
+Post Title:      The conservative sub deleting all the comments discussing trumps accusations  
+:::::: Reddit User Comment: ======  
+It’s wild. Every post about the latest Epstein drop in every sub seems to be disappearing
+
+
+
+
+=============
+  
+## Reddit comment o2ovz08
+
+    entry 218
+
+Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2ovz08/  
+Comment ID:      o2ovz08  
+Author:          carrtmannn  
+Bio:               
+Account Created: 2024-02-13T02:50:56Z  
+Link Karma:      6223  
+Comment Karma:   66814  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T22:44:06Z  
+Score:           38 points  
+Post Title:      The conservative sub deleting all the comments discussing trumps accusations  
+:::::: Reddit User Comment: ======  
+Those conservative mods are rock stars at protecting pedos
+
+
+
+
+=============
+  
+## Reddit comment o2p3gbl
+
+    entry 219
+
+Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2p3gbl/  
+Comment ID:      o2p3gbl  
+Author:          Kind-Block-9027  
+Bio:             Justa Skinquestchins : I study communication in all its forms. I publish on Substack a few times a month.  
+Account Created: 2021-10-17T08:23:53Z  
+Link Karma:      13785  
+Comment Karma:   42263  
+Comment Age:     56 minutes ago  
+Timestamp:       2026-01-30T23:23:50Z  
+Score:           3 points  
+Post Title:      The conservative sub deleting all the comments discussing trumps accusations  
+:::::: Reddit User Comment: ======  
+[Like this one talking about how Trump is owned by Mossad?](https://www.justice.gov/epstein/files/DataSet%209/EFTA00090314.pdf) 
+
+[Or how Trump is an accomplice in the murder of an abused child by “Lifestyles of the rich and famous” Robin Leach, who is buried behind the 19th hole on Trumps Golf Course?](https://www.justice.gov/epstein/files/DataSet%209/EFTA01249507.pdf)
+
+We can’t talk about that AT ALL?
+
+
+
+
+=============
+  
+## Reddit comment o2p9gwu
+
+    entry 220
+
+Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qrkb4f/the_conservative_sub_deleting_all_the_comments/o2p9gwu/  
+Comment ID:      o2p9gwu  
+Author:          crizzjcky95  
+Bio:               
+Account Created: 2020-09-18T01:01:48Z  
+Link Karma:      305  
+Comment Karma:   2361  
+Comment Age:     23 minutes ago  
+Timestamp:       2026-01-30T23:57:06Z  
+Score:           3 points  
+Post Title:      The conservative sub deleting all the comments discussing trumps accusations  
+:::::: Reddit User Comment: ======  
+I just read a comment on how this is just to distract you from Trump's success... they're delusional.
+
+
+
+
+=============
+  
+## Reddit comment o2o302j
+
+    entry 221
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o302j/  
+Comment ID:      o2o302j  
+Author:          IfICouldStay  
+Bio:               
+Account Created: 2022-04-04T14:26:46Z  
+Link Karma:      243  
+Comment Karma:   160546  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:24:27Z  
+Score:           7232 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+I think someone in DOJ with an actual soul “accidentally” leaked the files.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Information strip tease has been the game all along. Surkovian. [Maximum Putinization](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/). Chaos is the intended outcome. 
+> 
+> “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+> ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+>
+
+
+=============
+  
+## Reddit comment o2o5exf
+
+    entry 222
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o5exf/  
+Comment ID:      o2o5exf  
+Author:          __M-E-O-W__  
+Bio:             meow : Meow!  
+Account Created: 2018-11-10T13:47:39Z  
+Link Karma:      1292  
+Comment Karma:   561393  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:35:56Z  
+Score:           1206 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+The youth that I know have changed their tune because they have the internet and can read this stuff. The older generations have... Fox.
+
+
+
+
+=============
+  
+## Reddit comment o2o6e0y
+
+    entry 223
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o6e0y/  
+Comment ID:      o2o6e0y  
+Author:          Bobsmith38594  
+Bio:             Mostly here for the AITA and similar reddits. Feel free to say hi!  
+Account Created: 2022-04-05T10:38:55Z  
+Link Karma:      29  
+Comment Karma:   14258  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:40:39Z  
+Score:           209 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+MAGAts have no line that is too far. They don’t care. They never will care. They’re categorically morally bankrupt.
+
+
+
+
+=============
+  
+## Reddit comment o2o6vtq
+
+    entry 224
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o6vtq/  
+Comment ID:      o2o6vtq  
+Author:          ThatOneTimeItWorked  
+Bio:               
+Account Created: 2015-07-09T23:11:54Z  
+Link Karma:      11454  
+Comment Karma:   31823  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:43:02Z  
+Score:           388 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+But I was told by my MAGA FIL that trump DEFINITELY isn’t in the Epstein files … so who gonna believe 🤷‍♂️
+
+
+
+
+=============
+  
+## Reddit comment o2o42j7
+
+    entry 225
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o42j7/  
+Comment ID:      o2o42j7  
+Author:          burritodominator  
+Bio:               
+Account Created: 2011-11-25T20:56:28Z  
+Link Karma:      566  
+Comment Karma:   24018  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:29:30Z  
+Score:           417 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+flooding the field. Distraction to fleece American citizens. The files were supposed to be released 42 days ago and this isn't even close to all of them. gutting US healthcare for gestapo, Venezuela, Greenland, Cuba, Renee Good, Alex Pretti, the arrest of Don Lemon and Georgia Fort, new Fed Chair, Melania Movie... delay delay delay all to protect white rich pedophiles....all the while cultists eat it up.
+
+
+
+
+=============
+  
+## Reddit comment o2o4sia
+
+    entry 226
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o4sia/  
+Comment ID:      o2o4sia  
+Author:          Nythern  
+Bio:               
+Account Created: 2015-07-15T09:20:53Z  
+Link Karma:      72831  
+Comment Karma:   66738  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:32:54Z  
+Score:           149 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+They are SOOOOOOOOO about to attack Iran right now.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit commenting community will do anything with free time and spare time but promote nonfiction from Dr. Bandy X Lee.
+>
+
+
+=============
+  
+## Reddit comment o2o4842
+
+    entry 227
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o4842/  
+Comment ID:      o2o4842  
+Author:          Prestigious-Ear-8877  
+Bio:               
+Account Created: 2020-10-04T22:18:29Z  
+Link Karma:      1  
+Comment Karma:   12950  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:30:14Z  
+Score:           140 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+Anyone who DIDN'T know Trump was a con artist, russian asset, malevolent pedo and murderer simply chooses to be blind. 
+
+
+
+
+=============
+  
+## Reddit comment o2os8xa
+
+    entry 228
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2os8xa/  
+Comment ID:      o2os8xa  
+Author:          ph33randloathing  
+Bio:               
+Account Created: 2011-06-01T19:21:05Z  
+Link Karma:      34072  
+Comment Karma:   387084  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-30T22:25:15Z  
+Score:           11 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+The problem is that standard remedies no longer apply. He'll appoint Don Jr. or some shit. Rules are only rules if everyone plays by them. America is finally learning that.
+
+
+
+
+=============
+  
+## Reddit comment o2o47lc
+
+    entry 229
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o47lc/  
+Comment ID:      o2o47lc  
+Author:          Distryer  
+Bio:               
+Account Created: 2018-09-15T02:59:15Z  
+Link Karma:      72  
+Comment Karma:   7866  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:30:10Z  
+Score:           76 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+That nothing will come of them being released. He could rape and kill a kid in times square with it broadcasted live to every screen in the country and get away with it at this point.
+
+
+
+
+=============
+  
+## Reddit comment o2o94ku
+
+    entry 230
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o94ku/  
+Comment ID:      o2o94ku  
+Author:          AMetalWolfHowls  
+Bio:               
+Account Created: 2016-11-11T04:05:14Z  
+Link Karma:      1925  
+Comment Karma:   22877  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:53:43Z  
+Score:           39 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+We have plenty of evidence that 47 got up to truly awful things while palling around with Epstein. I’m also not sure that people phoning in messages to the FBI about a public figure should be taken at face value. 
+
+I’m more concerned about the stuff that hasn’t been released. The photos and videos that reportedly made the FBI agents reviewing the materials to vomit or break down in tears. 
+
+That any of those materials even exist regarding a sitting president is terrifying. It’s worse that they exist and the republican congress just shrugged it off instead of acting like it’s the biggest scandal in their lifetime. It makes watergate look like a joke.
+
+
+
+
+=============
+  
+## Reddit comment o2o3ful
+
+    entry 231
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2o3ful/  
+Comment ID:      o2o3ful  
+Author:          sarahmayim  
+Bio:             Mayim :   
+Account Created: 2020-07-18T15:33:35Z  
+Link Karma:      797  
+Comment Karma:   2727  
+Comment Age:     4 hours ago  
+Timestamp:       2026-01-30T20:26:32Z  
+Score:           30 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+It's hard to believe that they are this dumb, but that is the only explanation that I can think of.
+
+
+
+
+=============
+  
+## Reddit comment o2odq6u
+
+    entry 232
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2odq6u/  
+Comment ID:      o2odq6u  
+Author:          skatingpenguin  
+Bio:               
+Account Created: 2015-10-04T22:34:15Z  
+Link Karma:      1  
+Comment Karma:   459  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-30T21:15:30Z  
+Score:           22 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+Honestly, don't think that document contained anything particularly interesting. It looked like mostly reports of unsubstantiated tips they'd received. Removing it was an unforced error on their part instead of just saying basically what I said above.
+
+The bigger problems are how they're not releasing any actual documents around additional investigation into other parties. Either the FBI (under both Trump and Biden) didn't conduct those investigations (which is bad) or they're purposely concealing those documents (also bad).
+
+
+
+
+=============
+  
+## Reddit comment o2oga58
+
+    entry 233
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrgndr/what_do_you_think_of_the_doj_recently_releasing/o2oga58/  
+Comment ID:      o2oga58  
+Author:          Zanna-K  
+Bio:               
+Account Created: 2014-10-04T00:10:21Z  
+Link Karma:      1590  
+Comment Karma:   68157  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-30T21:27:23Z  
+Score:           10 points  
+Post Title:      What do you think of the DOJ recently releasing and then deleting unredacted files describing Donald Trump raping children?  
+:::::: Reddit User Comment: ======  
+Sadly, infuriatingly, I think the more insidious reason may be that they are trying to normalize it.
+
+Not pedophilia and the sexual abuse \- they know they can't do that \- but have people latch onto one or two specific pages and then just claim later that it's fake/edited. 
+
+So they purposefully have a few pages out of many "accidentally" unredacted. A bunch of people instantly save it down and repost it everywhere. DOJ takes it down. Right\-wing talking heads start talking about how Democrats, Socialists, and others with "Trump Derangement Syndrome" are so desparate to see something from the Epstein files that they are editing and changing released documents. It's the "fake news" strategy taken to the extreme. You create enough noise that the hardcore MAGA can latch onto it and enough conservatives feel uncertain after state captured news and social media campaigns scream "FAKE! DOCTORED!" non\-stop.
+
+
+
+
+=============
+  
+## Reddit comment o2p7n0x
+
+    entry 234
+
+Comment URL: https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p7n0x/  
+Comment ID:      o2p7n0x  
+Author:          akr069a  
+Bio:               
+Account Created: 2017-06-07T20:23:00Z  
+Link Karma:      1  
+Comment Karma:   366  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T23:47:03Z  
+Score:           5 points  
+Post Title:      Epstein files: Trump threw calendar girls Parties in which he auctioned off girls based on their privates.  
+:::::: Reddit User Comment: ======  
+That crazy dude Alex Jones has been talking about the pedophile ring all these powerful people from around the world are part of. He's been talking about it for years.
+
+
+
+
+=============
+  
+## Reddit comment o2p19xv
+
+    entry 235
+
+Comment URL: https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p19xv/  
+Comment ID:      o2p19xv  
+Author:          CheeseWeasler  
+Bio:               
+Account Created: 2017-09-13T06:12:19Z  
+Link Karma:      356  
+Comment Karma:   46423  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-30T23:12:05Z  
+Score:           43 points  
+Post Title:      Epstein files: Trump threw calendar girls Parties in which he auctioned off girls based on their privates.  
+:::::: Reddit User Comment: ======  
+What the fuck does America even stand for anymore
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1346" height="264" alt="image" src="https://github.com/user-attachments/assets/c5716551-c43f-4994-86ba-bdf804f5467d" />
+> 
+> ANSWER: 1. Mocking. 2. Entertainment. 3. Insulting. 4. One-upmanship. 5. Toxic masculinity. 6. Technology addictions. 7. fiction storytelling. 8. Sports gaming. 9. Video gaming. 10. Clickbait gaming. 11. Bamboozle gaming. 12. Celebrity worship.
+>
+
+
+=============
+  
+## Reddit comment o2p0ive
+
+    entry 236
+
+Comment URL: https://old.reddit.com/r/DiscussionZone/comments/1qrkx3e/epstein_files_trump_threw_calendar_girls_parties/o2p0ive/  
+Comment ID:      o2p0ive  
+Author:          Street-Raccoon3146  
+Bio:               
+Account Created: 2021-07-06T04:15:59Z  
+Link Karma:      24  
+Comment Karma:   2729  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-30T23:08:03Z  
+Score:           1 point  
+Post Title:      Epstein files: Trump threw calendar girls Parties in which he auctioned off girls based on their privates.  
+:::::: Reddit User Comment: ======  
+I despise Trump but if this is legit why isn’t being reported more widely, sounds like something that could end this madness.
+
+
+
+
+=============
+  
+## Reddit comment o2p10fz
+
+    entry 237
+
+Comment URL: https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p10fz/  
+Comment ID:      o2p10fz  
+Author:          darkhorse85  
+Bio:               
+Account Created: 2009-07-21T18:12:52Z  
+Link Karma:      659  
+Comment Karma:   17968  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-30T23:10:39Z  
+Score:           578 points  
+Post Title:      Americans threatened by Trump administration policies appear to be experiencing urges to acquire firearms, carry them, and store them readily accessible. Identifying as Black and liberal beliefs were associated with greater increases in urges to carry firearms because of the 2024 election results.  
+:::::: Reddit User Comment: ======  
+A breakdown of public faith in law and order will do that. What checks and balances?
+
+
+
+
+=============
+  
+## Reddit comment o2p0tfs
+
+    entry 238
+
+Comment URL: https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p0tfs/  
+Comment ID:      o2p0tfs  
+Author:          NotAnAIOrAmI  
+Bio:               
+Account Created: 2023-06-03T13:58:15Z  
+Link Karma:      34  
+Comment Karma:   123670  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-30T23:09:38Z  
+Score:           30 points  
+Post Title:      Americans threatened by Trump administration policies appear to be experiencing urges to acquire firearms, carry them, and store them readily accessible. Identifying as Black and liberal beliefs were associated with greater increases in urges to carry firearms because of the 2024 election results.  
+:::::: Reddit User Comment: ======  
+You betcha. I gave up weed, turned in my medical card, and have been taking drug tests to document that I don't use it any more, to prove to the feds I have sufficient moral character to use and purchase firearms.
+
+I won't give them the chance to prosecute me like they did Hunter.
+
+
+
+
+=============
+  
+## Reddit comment o2p3j7u
+
+    entry 239
+
+Comment URL: https://old.reddit.com/r/science/comments/1qrl2wh/americans_threatened_by_trump_administration/o2p3j7u/  
+Comment ID:      o2p3j7u  
+Author:          KeyLimePie-555  
+Bio:               
+Account Created: 2025-06-04T21:53:16Z  
+Link Karma:      232  
+Comment Karma:   3867  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-30T23:24:16Z  
+Score:           12 points  
+Post Title:      Americans threatened by Trump administration policies appear to be experiencing urges to acquire firearms, carry them, and store them readily accessible. Identifying as Black and liberal beliefs were associated with greater increases in urges to carry firearms because of the 2024 election results.  
+:::::: Reddit User Comment: ======  
+I'm an 82 yr old woman who has never even seen a real handgun. But if ICE continues murdering innocent citizens, I'm going to buy a handgun for person protection. I'm determined to live long enough to see my country taken out of the hands of cowardly, greedy Repubs.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 8 month Reddit account. "my country" = USA context of posting. Never laid eyes on a police or security guard carrying a gun in 82 years in USA.
+>
