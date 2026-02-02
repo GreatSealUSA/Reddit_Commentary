@@ -26,3 +26,10 @@ Reddit comments:
 
 1. [January 2026 2026-01-24 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-01-24_World_Hate_Affairs_out.md)
 
+&nbsp;
+
+# General Reddit
+
+1. [February 2026 2026-02-01 General Reddit society / media enviornment](Reddit_2026-01/Reddit_commentary_2026-02-01_General_out.md)
+
+Yes, we are putting February into the pile so far.
