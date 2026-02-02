@@ -6,7 +6,7 @@
 
     entry 1
 
-Comment URL: chttps://old.reddit.com/r/AskReddit/comments/1qrvz3u/if_the_epstein_files_arent_enough_for_a_global/o2rbvss/  
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1qrvz3u/if_the_epstein_files_arent_enough_for_a_global/o2rbvss/  
 Comment ID:      o2rbvss  
 Author:          not4humanconsumption  
 Bio:               
