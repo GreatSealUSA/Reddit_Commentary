@@ -3075,6 +3075,8 @@ There is no voting our way out of this.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
+> 8 month Reddit account. Top-voted, upvoted to the top, extremely popular.
+> 
 > The Twitter image is a BLATANT example of simulation of resistance. Back and forth Tweet-thinking tiny-short patterns. Over and over and over in gaming loops. Game loop machine media Tweeting. An alternate reality gaming media enviornment (ARG media politics, Surkovian / Surkov). "END OF THE DEBATE" nonsense, the issue is MEDIA ECOLOGY EDUCATION. **This REDDIT-TWITTER INTERACTION is NOT A DEBATE**!!!
 > 
 > * "I mean, these are papers that you could legitimately expect people to write if they still read or wrote. Not many people still do either – read or write, much – but in any case; reduction of complexity. **Let’s look at political parties** for a moment. The Republicans with their great traditions have come up with a slogan of incredible sophistication: “No more tax and spend”. Now **any you who can quack that one out could be a Republican. And I am using that in the Orwellian sense of “quack”; you don’t need to engage higher brain functions**. All you have to do is say “Don’t take my money, and don’t spend it… well, except on me and my friends, but don’t tax and spend”. Now it’s not that the Democrats are doing any better, I don’t guess that’s news." ... "But the Democrat’s response to this “tax and spend” is “No we don’t, nah nah na-nah nah: invest” **This is political debate in a democracy. No it’s not. It’s the simulation of politics. Ross Perot is not leading a movement. It is a simulation** of a movement, follow me?" - Texan Rick Roderick, Duke University. https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
@@ -3082,4 +3084,148 @@ There is no voting our way out of this.
 > Every media site commenting section is now interactive fiction (IF), touch screen filter-bubble games. An alternate reality gaming environment where people crave fiction and mythology (monomyth chunks and patterns) and have abandoned sustained focus "we all need to get on the *same page together*" nonfiction serious important topics.
 > 
 > * “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
+>
+
+
+=============
+  
+## Reddit comment o2sbl30
+
+    entry 102
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qs1vkz/end_of_the_debate/o2sbl30/  
+Comment ID:      o2sbl30  
+Author:          sandsonic  
+Bio:               
+Account Created: 2013-05-21T14:28:35Z  
+Link Karma:      362  
+Comment Karma:   33374  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-31T13:33:33Z  
+Score:           244 points  
+Post Title:      END OF THE DEBATE!!  
+:::::: Reddit User Comment: ======  
+What was it they said? Dems should run that now lol
+Drain the swamp!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "LOL" laugh track for television audiences. Twitter-length Musk (richest man on Earth) Twitter-mindset ["mind virus" thinking](https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html) patterns on Reddit. Constantly promotion that Republicans are a source of comedy. "LOL COW MILKING" media cult behavior of the Reddit audience to put Trump at the center of all media systems for the sake of LOL. https://Old.Reddit.com/r/Advice/comments/9hn5l9/how_do_i_stop_being_a_lolcow/
+> 
+> MAGA is not a source of humor, mocking hard-working farmers because Rupert Murdoch in New York, New York has mind-fucked them all since October 7, 1996 (Vlad Putin's 44th birthday) is anti-intelligence. Milking MAGA and Republicans for their lack of education from Neil Postman is a "Celebration of Ignorance" behavior on Reddit, as defined by Carl Sagan in his year 1995 book on paper. https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md
+>
+
+
+=============
+  
+## Reddit comment o2t1nhb
+
+    entry 103
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qs5s4g/historical_sore_losers/o2t1nhb/  
+Comment ID:      o2t1nhb  
+Author:          WoodenSwan6591  
+Bio:               
+Account Created: 2025-10-18T12:22:15Z  
+Link Karma:      836  
+Comment Karma:   7644  
+Comment Age:     2 hours ago  
+Timestamp:       2026-01-31T15:55:10Z  
+Score:           541 points  
+Post Title:      Historical sore losers  
+:::::: Reddit User Comment: ======  
+The usual troll with a militaristic handle. CSA army would have been decimated by the Prussian and British armies in a second. The confederacy was a collection of traitors that got off easy. That is why we have the current problems. Grant should have sent them all to the gallows without any hesitation but here we are and their stupid attempts to justify their sedition. States rights, War of Northern Aggression and so on. My 🍑
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account. top-upvoted, most liked, most popular comment. Imagination wars, simulation of wars, screen games for Reddit audience. ANYTHING but face real reality non-fiction JANUARY 2026 Reality, what is happening the last day of the month, and assert **REAL NONFICTION BOOKS from Dr. Bandy X Lee** in an Internet social uprising... instead, spending spare time and free time putting this screen gaming imaginary battle on the front page of Reddit.
+>
+
+
+=============
+  
+## Reddit comment o2vbdex
+
+    entry 104
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qsgblb/091124_trump_makes_bizarre_claims_during_abc/o2vbdex/  
+Comment ID:      o2vbdex  
+Author:          kittymaridameowcy  
+Bio:             Kitty Mar E Da Meow C : saddie baddie 👸🏽  
+Account Created: 2012-06-25T12:46:08Z  
+Link Karma:      6651  
+Comment Karma:   129116  
+Comment Age:     1 hour ago  
+Timestamp:       2026-01-31T22:30:42Z  
+Score:           None  
+Post Title:      09/11/24 - Trump makes bizarre claims during ABC debate about 'post-birth abortions' (infanticide). Recently released Epstein Files contain an Epstein trafficking victim, stating Trump was present when she gave birth, aged 13, and witnessed her trafficker throw her newborn baby into Lake Michigan  
+:::::: Reddit User Comment: ======  
+Every accusation is an admission with this clown.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Most popular upvoted comment. For more than a decade, since June 16, 2015 - day after day, clowning Reddit users comment about Donald Trump. Every hour of every day, clowning on President Tony Clifton and his wild statements. Little Twitter-length shit-commenting all over Reddit about their favorite LOL Cow to milk. Mocking away our nation, entire unable to learn about nonfiction information warfare that Russia has used to wreck NATO, make a joke of USA. Trump shit-posting after Trump shit-posting to shit-comment about. SEE_ALSO December 5, 2014 reading of a published book on paper at a book store. The opposite of shit-commenting clowning. https://old.Reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ SEE_ALSO December 5, 2014 opposite of clown-commenting about the Putin clowning show. https://old.Reddit.com/r/TrumpOnionFans/comments/1mtn1ai/people_keep_saying_over_and_over_donald_trump_has/
+> 
+> Calling a NYC man, born in New York, fan of SNL NYC, "a clown" is not resisting. Trump is playing Tony Clifton comedy acts and stunts for the camera, all the time, for the Reddit fandom. Mocking Trump as "a clown" is not resisting a Tony Clifton act. You resist a Tony Clifton actor, Trump, but asserting nonfiction education by Dr. Bandy X Lee. A non-clown serious mental health expert who has been leading since year 2017 - but Reddit commenting community won't stop mocking and insulting Donald Trump's on-camera performance.
+> 
+> And **MAGA is not one single 79 year-old clown**. It is hundreds of millions of people. Fox News HDTV audience cult has the same media addition issues as Reddit shit-commenting media cultists. Anti-intellectual mocking of serious people like Dr. Bandy X Lee's book.
+>
+
+
+=============
+  
+## Reddit comment o3464jq
+
+    entry 105
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o3464jq/  
+Comment ID:      o3464jq  
+Author:          heff17  
+Bio:               
+Account Created: 2011-09-14T02:18:46Z  
+Link Karma:      28155  
+Comment Karma:   418684  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-02T06:50:39Z  
+Score:           233 points  
+Post Title:      Donald Trump goes on Grammy's rant threatening to sue Trevor Noah  
+:::::: Reddit User Comment: ======  
+One day I will never have to read his insane ramblings or listen to his dogshit voice ever again. 
+
+One day.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Anything but use Reddit social systems to promote Dr. Bandy X Lee's nonfiction teachings to the general public.
+>
+
+
+=============
+  
+## Reddit comment o342gpx
+
+    entry 106
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qtn7x8/donald_trump_goes_on_grammys_rant_threatening_to/o342gpx/  
+Comment ID:      o342gpx  
+Author:          sarcasticseductress  
+Bio:             Here for the lols  
+Account Created: 2024-03-06T00:46:22Z  
+Link Karma:      406  
+Comment Karma:   100631  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-02T06:19:14Z  
+Score:           221 points  
+Post Title:      Donald Trump goes on Grammy's rant threatening to sue Trevor Noah  
+:::::: Reddit User Comment: ======  
+Like clockwork. Fucking loser.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Commenting day in day out about Trump. Anything but use Reddit social systems to promote Dr. Bandy X Lee's nonfiction teachings to the general public.
 >
