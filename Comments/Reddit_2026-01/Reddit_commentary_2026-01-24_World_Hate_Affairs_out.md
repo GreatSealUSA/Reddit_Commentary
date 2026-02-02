@@ -2482,3 +2482,1105 @@ and we are to do what? wave a sign ? vote for the controlled opposition?
 > 
 > TEACH and EDUCATE. Stop turning everything on Reddit into low-effort meme-slop, joke-land, mockery Internet. Teach NONFICTION real understanding of the world. Stop letting fiction trash run the world, fiction storytelling that Rupert Murdoch pushes globally!
 >
+
+
+=============
+  
+## Reddit comment o2tk93b
+
+    entry 90
+
+Comment URL: https://old.reddit.com/r/news/comments/1qs84x2/bovino_is_said_to_have_mocked_prosecutors_jewish/o2tk93b/  
+Comment ID:      o2tk93b  
+Author:          smez86  
+Bio:               
+Account Created: 2011-05-03T22:42:35Z  
+Link Karma:      417  
+Comment Karma:   159108  
+Comment Age:     3 hours ago  
+Timestamp:       2026-01-31T17:24:31Z  
+Score:           594 points  
+Post Title:      Bovino Is Said to Have Mocked Prosecutor’s Jewish Faith on Call With Lawyers (Gift Article)  
+:::::: Reddit User Comment: ======  
+The neo\-nazis hating jews but supporting israel. Imagine being this confused in life.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Out-group mocking and out-group hate are foundations of Levant clergy leadership and popularity. 
+> 
+> Democracy does not work without "love thy neighbor", "love thy enemy". Published year 1988:
+> 
+> CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In biblical thinking, we live in exile.
+> 
+> BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut — by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+> 
+> CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and **to human beings rather than just to their own community**. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. **They have disqualified themselves for the future.**
+> 
+> MOYERS: What kind of new myth do we need?
+> 
+> CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+> 
+> MOYERS: There is something about that on the Great Seal of the United States.
+> 
+> CAMPBELL: That’s what the **Great Seal** is all about.
+>
+
+
+=============
+  
+## Reddit comment o2z5wja
+
+    entry 91
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z5wja/  
+Comment ID:      o2z5wja  
+Author:          ZapathyX  
+Bio:               
+Account Created: 2026-01-29T00:23:21Z  
+Link Karma:      4  
+Comment Karma:   208  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-01T14:42:07Z  
+Score:           174 points  
+Post Title:      It turns out that Epstein’s list isn’t limited to any specific religion.  
+:::::: Reddit User Comment: ======  
+Also, what a weird statement. Fundamentalist Islam normalizes underage girls being gifted to older men. You really think the rich ones aren't doing it?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 day Reddit account. Top-upvoted popular comment.
+>
+
+
+=============
+  
+## Reddit comment o2z987e
+
+    entry 92
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z987e/  
+Comment ID:      o2z987e  
+Author:          Warrenore38  
+Bio:               
+Account Created: 2020-03-26T18:40:04Z  
+Link Karma:      2643  
+Comment Karma:   5696  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-01T14:59:33Z  
+Score:           50 points  
+Post Title:      It turns out that Epstein’s list isn’t limited to any specific religion.  
+:::::: Reddit User Comment: ======  
+Is this rage bait? Cus there there was definitely Saudi princes who visited and own slaves in their country
+
+
+
+
+=============
+  
+## Reddit comment o2z6a7z
+
+    entry 93
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z6a7z/  
+Comment ID:      o2z6a7z  
+Author:          AvocadoGlittering274  
+Bio:               
+Account Created: 2023-12-02T00:36:04Z  
+Link Karma:      4333  
+Comment Karma:   40603  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-01T14:44:08Z  
+Score:           40 points  
+Post Title:      It turns out that Epstein’s list isn’t limited to any specific religion.  
+:::::: Reddit User Comment: ======  
+Rich Middle Eastern men have their own Epsteins
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Hence why I constantly emphasize the social media comment creators avoidance of giving girls and women voice, promoting Malala as fundamental education and teaching change. Instead, wealthy men are again the center of attention as they are all day every day. The Reddit fandom of Elon Musk Twitter screen shots, Elon Musk rich man content.
+> 
+> * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+> ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
+>
+
+
+=============
+  
+## Reddit comment o2z5piz
+
+    entry 94
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1qszrki/it_turns_out_that_epsteins_list_isnt_limited_to/o2z5piz/  
+Comment ID:      o2z5piz  
+Author:          Consistent-Deer-6565  
+Bio:               
+Account Created: 2022-05-01T08:51:58Z  
+Link Karma:      1  
+Comment Karma:   10453  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-01T14:41:05Z  
+Score:           37 points  
+Post Title:      It turns out that Epstein’s list isn’t limited to any specific religion.  
+:::::: Reddit User Comment: ======  
+Countries where men can legally marry children are by vast majority Muslim. So even if true this wouldnt be the flex these people think it is.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> the "flex" is twitter-think. Shallow superficial commenting. Epstein topic fandom. People who are not serious about turning the topic to young girls and Malala's reformations... but just want to promote simple-thinking ideas and avoidance of Malala's nonfiction education, teaching, learning, comprehension, understanding focus. Twitter-thinking is about avoidance of deeper understanding and attraction to high-speed "rush" of notification delivery.
+>
+
+
+=============
+  
+## Reddit comment o32a0sw
+
+    entry 95
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32a0sw/  
+Comment ID:      o32a0sw  
+Author:          Mystical_Cat  
+Bio:             Mystical Cat : You should never smoke in pajamas,
+you might start a fire and burn your face.  
+Account Created: 2016-08-22T17:08:32Z  
+Link Karma:      190638  
+Comment Karma:   205809  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-01T23:41:45Z  
+Score:           971 points  
+Post Title:      Gaines: I believe that words like compassion, empathy, inclusion, and love have been weaponized against us.  
+:::::: Reddit User Comment: ======  
+Ummm...the only reason compassion, empathy, inclusion, and love are "being used against you" is because you have no fucking idea what any of those words mean.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> One of the core themes of this GitHub project.
+>
+
+
+=============
+  
+## Reddit comment o32a37w
+
+    entry 96
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32a37w/  
+Comment ID:      o32a37w  
+Author:          HLOFRND  
+Bio:               
+Account Created: 2023-09-17T20:17:31Z  
+Link Karma:      5375  
+Comment Karma:   172117  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-01T23:42:08Z  
+Score:           64 points  
+Post Title:      Gaines: I believe that words like compassion, empathy, inclusion, and love have been weaponized against us.  
+:::::: Reddit User Comment: ======  
+Like that hateful “christian” Allie Beth Stuckey who wrote a whole book called Toxic Empathy about how Jesus actually would have hated the same people she hates or whatever. 
+
+She’s the worst. She and Matt Walsh can kiss my ass.
+
+
+
+
+=============
+  
+## Reddit comment o329f7b
+
+    entry 97
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o329f7b/  
+Comment ID:      o329f7b  
+Author:          LowIQ45  
+Bio:               
+Account Created: 2017-10-18T19:00:57Z  
+Link Karma:      11488  
+Comment Karma:   29162  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-01T23:38:24Z  
+Score:           114 points  
+Post Title:      Gaines: I believe that words like compassion, empathy, inclusion, and love have been weaponized against us.  
+:::::: Reddit User Comment: ======  
+Translated: Compassion, empathy, inclusion and love are a direct threat to my hatemonger grift
+
+
+
+
+=============
+  
+## Reddit comment o32alyq
+
+    entry 98
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32alyq/  
+Comment ID:      o32alyq  
+Author:          JackHughman69  
+Bio:             Small fish in a big pond   
+Account Created: 2023-02-06T19:34:57Z  
+Link Karma:      617  
+Comment Karma:   78215  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-01T23:45:01Z  
+Score:           17 points  
+Post Title:      Gaines: I believe that words like compassion, empathy, inclusion, and love have been weaponized against us.  
+:::::: Reddit User Comment: ======  
+Jesus said to love but not too much love because the radical leftists will weaponize it against you, therefore it’s better to hate instead.
+
+
+
+
+=============
+  
+## Reddit comment o32b3ak
+
+    entry 99
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32b3ak/  
+Comment ID:      o32b3ak  
+Author:          restrusher  
+Bio:               
+Account Created: 2023-08-09T11:27:31Z  
+Link Karma:      154  
+Comment Karma:   2668  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-01T23:47:42Z  
+Score:           6 points  
+Post Title:      Gaines: I believe that words like compassion, empathy, inclusion, and love have been weaponized against us.  
+:::::: Reddit User Comment: ======  
+These people are so steeped in war that they think that compassion is scary, hurtful, and unfair.
+
+
+
+
+=============
+  
+## Reddit comment o32bql7
+
+    entry 100
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32bql7/  
+Comment ID:      o32bql7  
+Author:          granmiata  
+Bio:               
+Account Created: 2013-05-31T23:24:35Z  
+Link Karma:      203  
+Comment Karma:   400  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-01T23:51:20Z  
+Score:           9 points  
+Post Title:      Gaines: I believe that words like compassion, empathy, inclusion, and love have been weaponized against us.  
+:::::: Reddit User Comment: ======  
+"WOKE 2" lol
+
+
+
+
+=============
+  
+## Reddit comment o32b46r
+
+    entry 101
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32b46r/  
+Comment ID:      o32b46r  
+Author:          SoftwarePrudent2609  
+Bio:               
+Account Created: 2025-11-23T18:16:59Z  
+Link Karma:      1  
+Comment Karma:   954  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-01T23:47:51Z  
+Score:           6 points  
+Post Title:      Gaines: I believe that words like compassion, empathy, inclusion, and love have been weaponized against us.  
+:::::: Reddit User Comment: ======  
+This is a right wing propagandist talking point. They want to normalize violence and hatred so maga will cheer while America is literally destroyed
+
+
+
+
+=============
+  
+## Reddit comment o32d8he
+
+    entry 102
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qtej1k/gaines_i_believe_that_words_like_compassion/o32d8he/  
+Comment ID:      o32d8he  
+Author:          shuuellyd  
+Bio:               
+Account Created: 2019-01-31T22:01:22Z  
+Link Karma:      3193  
+Comment Karma:   15109  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-01T23:59:37Z  
+Score:           5 points  
+Post Title:      Gaines: I believe that words like compassion, empathy, inclusion, and love have been weaponized against us.  
+:::::: Reddit User Comment: ======  
+Wait, is this, directed at, democrats? A distinct and shameless lack of empathy has literally been the primary underlying characteristic of the GOP for a decade now. In fact, it’s the GOP has pretty transparently weaponized those words against democrats. There was literally an aggressive anti\-DEI campaign carried out on the orders of Trump, and such consistent anti\-woke and anti\-DEI rhetoric that many MAGA republicans genuinely think most black \& brown professionals are underqualified compared to their white counterparts. This makes me wanna horse laugh
+
+
+
+
+=============
+  
+## Reddit comment o325exv
+
+    entry 103
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o325exv/  
+Comment ID:      o325exv  
+Author:          Harbinger2001  
+Bio:               
+Account Created: 2014-08-22T01:12:26Z  
+Link Karma:      835  
+Comment Karma:   249982  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-01T23:16:18Z  
+Score:           1515 points  
+Post Title:      Trump moves to raise tariffs on Korea despite government's all-out-efforts to clear misunderstandings  
+:::::: Reddit User Comment: ======  
+He’s trying to sabotage the recently announced Korea\-Canada auto deal. It diminishes the US leverage in the upcoming review of the US\-Mexico\-Canada trade deal.
+
+
+
+
+=============
+  
+## Reddit comment o32dvq2
+
+    entry 104
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o32dvq2/  
+Comment ID:      o32dvq2  
+Author:          Thilina_B  
+Bio:             smokebomb!!! :   
+Account Created: 2019-04-11T01:31:06Z  
+Link Karma:      1  
+Comment Karma:   5005  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-02T00:03:12Z  
+Score:           29 points  
+Post Title:      Trump moves to raise tariffs on Korea despite government's all-out-efforts to clear misunderstandings  
+:::::: Reddit User Comment: ======  
+I get why some people want to think it's all one idiots doing, but no one can single\-handedly control an entire country. Trump has only been able to do any damage because a huge chunk of the population was willing to give him that power, an entire political party is willing to support and defend everything he does, the majority of the media are willing to give up journalistic integrity for access, the majority of the Supreme Court are willing to publicly be hypocrites to rubber stamp anything he wants and so many more things.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People really are ignoring the Ukraine war and Putin leading Trump... and the IRA media warfare.
+>
+
+
+=============
+  
+## Reddit comment o3247dn
+
+    entry 105
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qtdn36/trump_moves_to_raise_tariffs_on_korea_despite/o3247dn/  
+Comment ID:      o3247dn  
+Author:          snowfordessert  
+Bio:               
+Account Created: 2023-10-31T00:52:30Z  
+Link Karma:      42207  
+Comment Karma:   9448  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-01T23:09:37Z  
+Score:           1247 points  
+Post Title:      Trump moves to raise tariffs on Korea despite government's all-out-efforts to clear misunderstandings  
+:::::: Reddit User Comment: ======  
+As a Korean, I'm losing faith in the US, ngl. I had a huge admiration for the country and its great artists and innovators despite all its shortcomings, but... all of it is falling apart.
+
+We had an FTA agreement that was nullified by a tweet. How can we possibly move forward?
+
+
+
+
+=============
+  
+## Reddit comment o33tt83
+
+    entry 106
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33tt83/  
+Comment ID:      o33tt83  
+Author:          robotic_dreams  
+Bio:               
+Account Created: 2013-09-08T07:47:23Z  
+Link Karma:      46  
+Comment Karma:   53792  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-02T05:11:05Z  
+Score:           6691 points  
+Post Title:      Who is it? Who was Epstein’s boss?  
+:::::: Reddit User Comment: ======  
+I still can't believe this worldwide billionaire sex trafficking ring was all coordinated over a free Gmail account.
+
+
+
+
+=============
+  
+## Reddit comment o3462pg
+
+    entry 107
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o3462pg/  
+Comment ID:      o3462pg  
+Author:          BroBroMate  
+Bio:               
+Account Created: 2017-10-27T21:24:46Z  
+Link Karma:      13425  
+Comment Karma:   231091  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-02T06:50:12Z  
+Score:           386 points  
+Post Title:      Who is it? Who was Epstein’s boss?  
+:::::: Reddit User Comment: ======  
+What's really interesting is that a) she had the resources to take on The Sun and win, even Prince Harry is struggling to do that and b) aside from her win over The Sun, and recent speculation about her after this release, she's fucking memory holed on search engines.
+
+Which means she had the money to pay search deoptimization experts, as well as the money to, once again, smash the goddamned *Sun* newspaper.
+
+So, we can assume she's British, so she's either...
+
+1\) Old aristocratic money
+2\) Married into money, old or new
+3\) Entirely self\-made.
+
+But given she is described as an "interior designer" in the court documents from the Sun case, we can probably assume \#3 isn't a candidate.
+
+
+
+
+=============
+  
+## Reddit comment o33xizy
+
+    entry 108
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33xizy/  
+Comment ID:      o33xizy  
+Author:          NewLibraryGuy  
+Bio:             he/him  
+Account Created: 2023-11-17T22:14:07Z  
+Link Karma:      2473  
+Comment Karma:   211137  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T05:39:13Z  
+Score:           645 points  
+Post Title:      Who is it? Who was Epstein’s boss?  
+:::::: Reddit User Comment: ======  
+"sent from my iPhone" is such an incredible accidental punchline on so many very serious emails
+
+
+
+
+=============
+  
+## Reddit comment o33wzvl
+
+    entry 109
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33wzvl/  
+Comment ID:      o33wzvl  
+Author:          Hvad_Fanden  
+Bio:               
+Account Created: 2018-01-28T00:52:13Z  
+Link Karma:      119  
+Comment Karma:   56173  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T05:35:06Z  
+Score:           281 points  
+Post Title:      Who is it? Who was Epstein’s boss?  
+:::::: Reddit User Comment: ======  
+Of course they are shielding them, they are a part of it, their friends, families, acquaintances, golf buddies, government contact.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People see their friends at work get charmed by Donald Trump. And people still do not get that being charming is hat most people consider important. You can be terrible and evil but if you are charming like Trump, nothing can stop you year after year. Reddit social community is so charmed by Epstein and Trump.
+> 
+> Not taking on Rupert Murdoch's factory of charming methods and charming techniques with Neil Postman's books is how Putin defeated NATO and USA.
+>
+
+
+=============
+  
+## Reddit comment o33qaou
+
+    entry 110
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o33qaou/  
+Comment ID:      o33qaou  
+Author:          ItsJustForMyOwnKicks  
+Bio:               
+Account Created: 2023-09-10T18:08:23Z  
+Link Karma:      89  
+Comment Karma:   148356  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-02T04:46:30Z  
+Score:           544 points  
+Post Title:      Who is it? Who was Epstein’s boss?  
+:::::: Reddit User Comment: ======  
+With a castrated media and dimwitted populace, this won’t go anywhere.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Dimwitted populace is afraid to create messages past TLDR. The dim lighting of the content people consume is more the concern. The dim meme thinking. Because the rapid delivery of the notification is more important to people than anything. Having to re-read the message 3 day later to better understand and ponder it rarely matters to people. Just the rush of the highway speed.
+> 
+> This GitHub project is to draw circles around all the avoided: Dr. Bandy X Lee. Jen Senko. that's enough for me. Why are a Baby Boomer woman and a Gen X woman not "good enough" as leaders? Both are out there enough. Malala is out there. But the charm older men hold over people is unbreakable when it comes to thinking. Allah in the sky is unbreakable thinking pattern. Jesus male in the sky on judgement day is unbreakable programming. Yahweh in the sky. The "Mary Sue" avoidance of Dr. Bandy X Lee and Jen Senko and Malala Y.
+> 
+> It never ever could have been more obvious than Putin and trump's relationship. Putin fucking kidnaps children from Ukraine.
+>
+
+
+=============
+  
+## Reddit comment o341k2c
+
+    entry 111
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o341k2c/  
+Comment ID:      o341k2c  
+Author:          gargamel314  
+Bio:               
+Account Created: 2014-12-27T02:35:22Z  
+Link Karma:      8856  
+Comment Karma:   30690  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T06:11:42Z  
+Score:           57 points  
+Post Title:      Who is it? Who was Epstein’s boss?  
+:::::: Reddit User Comment: ======  
+Turns out the illuminati are all just pedophiles...
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1113" height="326" alt="image" src="https://github.com/user-attachments/assets/11bbb1f3-fdf8-462f-8a39-acf594ba717a" />
+> 
+> Nobody learned a god damn fucking thing about The Light of The Catholic Church and the sex life of the priesthood with children.
+> 
+> OPERA_A https://www.youtube.com/watch?v=ft3b1-Cm-0M A god fucking Jesus small affair. Who is the baby daddy of Jesus? "Now she walks through her sunken dream
+> To the seats with the clearest view
+> And she's hooked to the silver screen,
+> But the film is sadd'ning bore
+> For she's lived it ten times or more.
+> She could spit in the eyes of fools" - John 1:1 Opera, the Clergy fucking show. I've seen page 581 of Finnegans Wake before! Putin and Surkov and Trump, "Wonder if he'll ever know
+> He's in the best selling show?" John 1:1 Tower of Babel fucking show! 7,110,477 views June 22, 2023 ["It's about to be writ again..."](https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/)
+> 
+> Nobody on Reddit can make an association with organized religion.
+> 
+> The fucking BABY DADDY of Jesus! Fucking Christmas, who is the daddy? Gullible fandom of Santa does not ask exactly how a magical outer-pace Eden daddy gets to be the father of Jesus. "The Illuminate Child". It is as if nobody on Reddit can imagine the LITERAL LITERACY meaning of Bible verse John 1:1 
+> 
+> Putin has used John 1:1 meme patterns to mind-fuck the USA into trusting Donald Trump. Donald Trump trusts Putin as his "buddy". Go ask the Russian people what kind of Buddy Putin is. Go ask Ukraine what kind of loving neighbor Putin is.
+> 
+> Go ask about the young girls in Iran, Iraq, Afghanistan, Pakistan.  Those are the places I have personally researched. 
+> 
+> Fuck, girls would brag about their older boyfriends in college when I was in high school! If a girl was sexy and pretty in high school, puberty raging and everyone wanting to not be a virgin at age 17... do people not get the pressure on attractive girls? My high school was competitive a fuck.
+> 
+> Again, who is the baby daddy of Jesus? The ultimate pregnancy from another school. My lover is king of kings, Heaven above, Eden daddy for Jesus. Wake the fuck up, people, John 1:1 is LITERACY itself. Tower of babel. We are the snakes and John 1:1 is the snake harming in Eden. The Tree of bamboozle knowledge of John 1:1 story patterns. 
+> 
+> * https://www.FinnegansWeb.com/wiki/index.php/Page_581 Page 581 of Finnegans Wake. I'm sorry to say I fucking saw the whole Tower o Babel industrial charming complex. Mecca, Jesus daddy from outer space John 1:1 - it's all fucking seeable through the boys and girls in your own high school. Molly Hatched song "Fall of the Peacemakers" told me to look into the souls of men. Their charms and how they chase after popularity itself to charm others. Page 581, "I saw", sorry to fucking say, I saw!!! The Clergy performances without being honest of John 1:1 meaning. The rock music on the F.M. radio. Malala saw too, Radio F.M. Mullah.
+> * * "And then and too the trivials! And their bivouac!
+> And his monomyth! Ah ho! Say no more about it! I'm sorry!
+> I saw. I'm sorry! I'm sorry to say I saw!
+>     Gives there not too amongst us after all events (or so grunts 
+> a leading hebdromadary) some togethergush of stillandbutall-
+> youknow that, insofarforth as, all up and down the whole con-
+> creation"
+> 
+> What I saw in The Church as a boy scout in a Catholic troop, where I was the only protestant Lutheran, I saw in fucking F.M. Radio in high school. Girls and boys mind-fucking each other over the most shallow and superficial brand-name cosmetics and fashion. And head-banging NFL ambition of brain damage.
+> 
+> OPERA_A The girls don't seem to care what's on... As long as they play 'til dawn. Nothin' but blues and Elvis... And somebody else's favorite song. "FM (No Static at All)" by Steely Dan was written and recorded in 1977 and released on May 19, 1978. Donald Trump is a gifted charmer and knows how to put his charming media moves over the medium. This song came out when I was 10 years old. https://www.youtube.com/watch?v=UtFEJOL8kWU 16,630 views December 19, 2023
+>
+
+
+=============
+  
+## Reddit comment o340twv
+
+    entry 112
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qtl6dd/who_is_it_who_was_epsteins_boss/o340twv/  
+Comment ID:      o340twv  
+Author:          Harambesic  
+Bio:               
+Account Created: 2023-05-21T10:57:20Z  
+Link Karma:      11673  
+Comment Karma:   78684  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-02T06:05:40Z  
+Score:           19 points  
+Post Title:      Who is it? Who was Epstein’s boss?  
+:::::: Reddit User Comment: ======  
+what. the fuck. is happening right now.
+
+
+
+
+=============
+  
+## Reddit comment o34bjfl
+
+    entry 113
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34bjfl/  
+Comment ID:      o34bjfl  
+Author:          EvieStarbrite  
+Bio:             Card-carrying catgirl and also I write stories about zombies and smut  
+Account Created: 2025-01-16T22:27:40Z  
+Link Karma:      5246  
+Comment Karma:   45735  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T07:39:07Z  
+Score:           621 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+Putin absolutely has video of Trump raping children. That’s why Trump grovels for him so pathetically.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Then what is Putin's motivation? Is there some even bigger man above Putin who has sex tapes of Putin? This simple-think Tweet-length mindsets. Fiction addiction drives Trump and Reddit both. Fiction storytelling. FACTS of VIDEO of sex acts and photographs do not convince people. What convinces people is Star Wars science fiction. Mecca theme park of Quran science fiction! The White House is a Rupert Murdoch theme park of Fox News science fiction storytelling! WOKE TO WHAT? 1923 Finn's Hotel WAKE UP MORNING CHECKOUT TIME!
+>
+
+
+=============
+  
+## Reddit comment o349i36
+
+    entry 114
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o349i36/  
+Comment ID:      o349i36  
+Author:          pizza-chit  
+Bio:             Fun on a bun  
+Account Created: 2021-04-01T03:04:18Z  
+Link Karma:      14038  
+Comment Karma:   229811  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T07:20:17Z  
+Score:           359 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+Considering what we see in the Epstein files, Putin may have purchased a Trump tape from Epstein showing something truly heinous. 
+
+Remember when Trump rolled out a red carpet to kiss Putins ass?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1261" height="1373" alt="image" src="https://github.com/user-attachments/assets/57f1aaa9-7a11-4bf8-b030-3653fe1dac54" />
+> 
+> Read the replies: people wonder why Trump kisses Putin's ass so much.
+> 
+> THE REAL **WE THE PEOPLE CONCERN** IS WHY REDDIT AUDIENCE MEMBERS KISS TRUMP's SHIT ASS OUTPUT "CONTENT" SO MUCH! Why hundreds of millions of people can never ever get enough Trump shit on Reddit /r/All Shit-Posting Shit-Commenting training media camp!
+> 
+> Social post { https://autistics.life/@RoundSparrow/116000911473366346 https://bsky.app/profile/roundsparrow.bsky.social/post/3mdus53jdik2q }
+>
+
+
+=============
+  
+## Reddit comment o34th50
+
+    entry 115
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34th50/  
+Comment ID:      o34th50  
+Author:          fanetoooo  
+Bio:             Offdagoop :   
+Account Created: 2020-11-18T18:33:49Z  
+Link Karma:      530  
+Comment Karma:   17080  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-02T10:30:57Z  
+Score:           3 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+Russia is the stand\-in for Israel in western media 😭
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> On a superficial note. October 7, 2023 terrorist attack is Putin's birthday. Russia's leader birthday.
+>
+
+
+=============
+  
+## Reddit comment o34f2i2
+
+    entry 116
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34f2i2/  
+Comment ID:      o34f2i2  
+Author:          FarFromHomey  
+Bio:             DoggiesAreAngels57 : Just another Brick in the Wall. I can see through Fake People Quickly. Trump Is A Cancer on Humanity. Republicans are His FLYING MONKEYS. MUSK bought a President. Putin Knows Things. I HATE them   
+Account Created: 2025-02-11T17:24:31Z  
+Link Karma:      1  
+Comment Karma:   7031  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-02T08:12:10Z  
+Score:           49 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+Helsinki was a pivotal moment. Something was told to Trump that made him reject US Intelligence and Stick up for PUTIN. He can't hide his emotions and was obviously WHIPPED. No US provided translator?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 year Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o34bsi2
+
+    entry 117
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34bsi2/  
+Comment ID:      o34bsi2  
+Author:          MotherFuckerJones88  
+Bio:             it said "optional", so I'm skipping this.   
+Account Created: 2021-02-15T02:13:43Z  
+Link Karma:      36013  
+Comment Karma:   84633  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T07:41:29Z  
+Score:           -19 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+He most likely worked with the CIA in some form either knowingly or unknowingly, as well.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> down votes for voicing an idea that is on-topic.
+>
+
+
+=============
+  
+## Reddit comment o34ao1x
+
+    entry 118
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34ao1x/  
+Comment ID:      o34ao1x  
+Author:          Pale-Evening-5808  
+Bio:               
+Account Created: 2025-12-16T17:49:25Z  
+Link Karma:      2070  
+Comment Karma:   1521  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T07:30:54Z  
+Score:           37 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+So when Epstein said (there was a video in the sun) that he was the lowest tier in the "group", Putin is the top?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o34bl35
+
+    entry 119
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34bl35/  
+Comment ID:      o34bl35  
+Author:          OmeuPai  
+Bio:               
+Account Created: 2011-10-07T18:10:38Z  
+Link Karma:      14  
+Comment Karma:   2601  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T07:39:34Z  
+Score:           59 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+Yep he is compromised by RUS SIA and IS RAEL. Both countries can make him do whatever they want or need.From suspending help to Ukraine and blaming them for not ending a war by surrending to the invader to also allow and help geno cide GA ZA and bomb a country like I RAN that is so far away from the US. 
+Taco is sucessfully destroying USA, the most powerfull country in the world from inside. Quite impressive. I hope americans are able to stop him and in the future make a system of checks and balances stronger than before and wipe the ones in power getting funded by foreign countries because only then USA will be truly free.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Joined Reddit on Putin's birthday. During Arab Spring.
+>
+
+
+=============
+  
+## Reddit comment o34d7f0
+
+    entry 120
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34d7f0/  
+Comment ID:      o34d7f0  
+Author:          zingjaya117  
+Bio:               
+Account Created: 2021-03-19T18:04:33Z  
+Link Karma:      432  
+Comment Karma:   3239  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T07:54:38Z  
+Score:           42 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+Just a thought. Remember how all the staffers came out of the Alaska meeting looking absolutely horrified? I think they were shown one of these tapes of him either assaulting or torturing children
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Putin's information warfare has destabilized reality so much that we are getting outright wilding mindsets.
+> 
+> * "Now this is a very serious affair. It is serious because these symbolic worlds were the supports of the civilizations, of the moralities of the civilizations, of the self-confidence of the civilizations, of the vitality and creative power of the civilizations. And with the cutting down, the frustrating of the self-confidence that derives from images of this kind, **there is a disequilibrium within the society itself**. And everyone is challenged in his loyalty — are you going to be loyal to the tradition, to the form, to the morality and myth of your society, or are you going to be loyal to truth? They are two different things. This is the problem in teaching; this is the problem in bringing up your children; this is the problem that was beside me there at the lunch counter." - November 16, 1961
+>
+
+
+=============
+  
+## Reddit comment o34fx1a
+
+    entry 121
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34fx1a/  
+Comment ID:      o34fx1a  
+Author:          Front-Brick-3724  
+Bio:               
+Account Created: 2024-12-18T10:02:13Z  
+Link Karma:      11  
+Comment Karma:   901  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T08:20:11Z  
+Score:           15 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+This is all Israel and Russias long term plan. Get the richest, most influential people on the planet in highly immoral, compromising position so they can do whatever the fuck they want. 
+The fact the “leader of the free world” is named as a serial visitor to the island and hasn’t been removed from his position shows the state of corruption in the world. What does HE have on others? 
+I’m saddened by the things that have occurred, but I’m also pleased it’s starting to come out. It’s the worst kept secret for many years and finally some form of justice will happen.
+
+
+
+
+=============
+  
+## Reddit comment o34nt9t
+
+    entry 122
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34nt9t/  
+Comment ID:      o34nt9t  
+Author:          TheElectricalEd  
+Bio:               
+Account Created: 2025-09-14T13:43:59Z  
+Link Karma:      950  
+Comment Karma:   2848  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-02T09:37:02Z  
+Score:           7 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+Donald J Trump is one of the biggest pedophiles in American history. There is video evidence which Epstein had, which Israel has, and Russia has. 
+The decisions our president makes for all of us is predicated on the prevention of those tapes being leaked. Impeach him immediately.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 4 month account
+>
+
+
+=============
+  
+## Reddit comment o34d5ja
+
+    entry 123
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34d5ja/  
+Comment ID:      o34d5ja  
+Author:          Own_Ideal_7941  
+Bio:               
+Account Created: 2024-10-24T02:27:10Z  
+Link Karma:      7  
+Comment Karma:   17  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T07:54:09Z  
+Score:           -12 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+If he was compromised. There no way Russia wouldn’t have released it by now. They put a shit ton of secondary sanctions on anyone who buys Russian oil which isn’t something you would see from someone who is compromised
+
+
+
+
+=============
+  
+## Reddit comment o350at8
+
+    entry 124
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o350at8/  
+Comment ID:      o350at8  
+Author:          RoguePlanet2  
+Bio:               
+Account Created: 2023-12-22T03:03:24Z  
+Link Karma:      1581  
+Comment Karma:   229183  
+Comment Age:     52 minutes ago  
+Timestamp:       2026-02-02T11:31:39Z  
+Score:           1 point  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+It's both. Trump has sold out
+ to every enemy. We're one of the Axis powers now.
+
+
+
+
+=============
+  
+## Reddit comment o34g9qt
+
+    entry 125
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qto9uz/epstein_and_putin_were_connected_as_worlds/o34g9qt/  
+Comment ID:      o34g9qt  
+Author:          ClacksInTheSky  
+Bio:               
+Account Created: 2025-04-11T13:31:35Z  
+Link Karma:      1553  
+Comment Karma:   64308  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-02T08:23:34Z  
+Score:           3 points  
+Post Title:      Epstein and Putin were connected as 'world’s largest honeytrap' unveiled in bombshell files  
+:::::: Reddit User Comment: ======  
+Also, at what point does Christopher Steele get an apology or at least a re\-look?
+
+
+
+
+=============
+  
+## Reddit comment o352zux
+
+    entry 126
+
+Comment URL: https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o352zux/  
+Comment ID:      o352zux  
+Author:          FuguSandwich  
+Bio:               
+Account Created: 2015-10-11T21:15:47Z  
+Link Karma:      37449  
+Comment Karma:   361417  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-02T11:53:23Z  
+Score:           136 points  
+Post Title:      How is this Epstein file not front page news (2 FBI agents killed in Mexico investigating Epstein, involvement of President of Mexico, US Ambassador, et al)  
+:::::: Reddit User Comment: ======  
+More files that contain further replies in this email chain:
+
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00165013\.pdf](https://www.justice.gov/epstein/files/DataSet%209/EFTA00165013.pdf)
+
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00164993\.pdf](https://www.justice.gov/epstein/files/DataSet%209/EFTA00164993.pdf)
+
+They forgot to redact the NYPD detective's cell phone number in one of them, JFC.
+
+Also, what is "NY OGA"?
+
+
+
+
+=============
+  
+## Reddit comment o34yw1s
+
+    entry 127
+
+Comment URL: https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o34yw1s/  
+Comment ID:      o34yw1s  
+Author:          Going2beBANNEDanyway  
+Bio:               
+Account Created: 2025-07-24T18:00:28Z  
+Link Karma:      462  
+Comment Karma:   72777  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-02T11:19:36Z  
+Score:           298 points  
+Post Title:      How is this Epstein file not front page news (2 FBI agents killed in Mexico investigating Epstein, involvement of President of Mexico, US Ambassador, et al)  
+:::::: Reddit User Comment: ======  
+Because the CIA, KGB, and Mossad are suppressing it and the people who own mainstream media are involved.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o353dl2
+
+    entry 128
+
+Comment URL: https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o353dl2/  
+Comment ID:      o353dl2  
+Author:          jtwh20  
+Bio:               
+Account Created: 2017-11-09T17:27:47Z  
+Link Karma:      29870  
+Comment Karma:   155242  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-02T11:56:20Z  
+Score:           26 points  
+Post Title:      How is this Epstein file not front page news (2 FBI agents killed in Mexico investigating Epstein, involvement of President of Mexico, US Ambassador, et al)  
+:::::: Reddit User Comment: ======  
+the Media is the Billionaire Class who happen to love raping children, so its just Monday.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The Medium is the Massaging of the Public.
+>
+
+
+=============
+  
+## Reddit comment o3599fv
+
+    entry 129
+
+Comment URL: https://old.reddit.com/r/law/comments/1qts9j1/how_is_this_epstein_file_not_front_page_news_2/o3599fv/  
+Comment ID:      o3599fv  
+Author:          NUTS_STUCK_TO_LEG  
+Bio:             r/ockytop you’ll always be  
+Account Created: 2014-03-06T21:38:19Z  
+Link Karma:      285677  
+Comment Karma:   358635  
+Comment Age:     36 minutes ago  
+Timestamp:       2026-02-02T12:39:47Z  
+Score:           6 points  
+Post Title:      How is this Epstein file not front page news (2 FBI agents killed in Mexico investigating Epstein, involvement of President of Mexico, US Ambassador, et al)  
+:::::: Reddit User Comment: ======  
+This is [r/law](/r/law) so I’ll try to set my “Fuck Trump” glasses off to the side for a minute \- are you under the impression that every allegation in the files is true?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Impressions and superficial high-speed information glances are what people on Reddit seek. QAnon "Q" drops, information strip tease. If people wanted to reform and have honest sincere leaders, Malala and Dr. Bandy X Lee would be far more important and repeating topics. A lot of what is going on is ***information systems feedback loops*** of anonymous tips and theories feeding into government and back out to public.
+>
