@@ -3229,3 +3229,566 @@ Like clockwork. Fucking loser.
 > :::::: Analysis_Thoughts Commentary: ======  
 > Commenting day in day out about Trump. Anything but use Reddit social systems to promote Dr. Bandy X Lee's nonfiction teachings to the general public.
 >
+
+
+=============
+  
+## Reddit comment o35mryv
+
+    entry 107
+
+Comment URL: https://old.reddit.com/r/memes/comments/1qtvmcv/is_there_a_word_for_such_talent/o35mryv/  
+Comment ID:      o35mryv  
+Author:          StarryAuroraEcho  
+Bio:             Love books and coffee  
+Account Created: 2025-11-22T08:17:38Z  
+Link Karma:      210  
+Comment Karma:   735  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-02T14:01:34Z  
+Score:           230 points  
+Post Title:      Is there a word for such talent?  
+:::::: Reddit User Comment: ======  
+If you thought money was the best protection, you simply haven't seen what a person who is completely indifferent to other people's opinions is capable of.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> I don't even know how to begin explianing that Twitter postings all over /r/All of Reddit every hour of every day is a simultion of resistance to Elon Musk. People do not take seriously whst Elon Musk says about billionaires manipulating "mind virus" of Reddit audience. What do I fucking know, i only worked in social media for the richest people in the world in Bellevue, Washington.
+> 
+> I really don't know where to begin to describe this Reddit fandom of hate. People who prize and cheer on hate leaders { Putin, Musk, Trump }. Compulsively driven by media mania. Marshall McLuhan and James Joyce (what McLuhan says about Joyce https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/ ) are essential comprehension of the Reddit simulacra behaviors.
+>
+
+
+=============
+  
+## Reddit comment o35pqir
+
+    entry 108
+
+Comment URL: https://old.reddit.com/r/memes/comments/1qtvmcv/is_there_a_word_for_such_talent/o35pqir/  
+Comment ID:      o35pqir  
+Author:          starstar7429  
+Bio:             🎭 part-time poet, full-time overthinker  
+Account Created: 2025-09-16T15:59:21Z  
+Link Karma:      1  
+Comment Karma:   164  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-02T14:17:44Z  
+Score:           170 points  
+Post Title:      Is there a word for such talent?  
+:::::: Reddit User Comment: ======  
+Being so socially radioactive that even international criminals treat your presence as a liability is a truly generational achievement in being cringe.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Radio emitting signal. Twitter emitting. StarLink radio tech for Reddit tech audience.
+>
+
+
+=============
+  
+## Reddit comment o3b6kcm
+
+    entry 109
+
+Comment URL: https://old.reddit.com/r/Gamingcirclejerk/comments/1quk6od/lol_this_aint_even_a_joke_the_oval_ofice_was/o3b6kcm/  
+Comment ID:      o3b6kcm  
+Author:          Sodacan259  
+Bio:             Sodacan :   
+Account Created: 2021-01-16T14:58:44Z  
+Link Karma:      291  
+Comment Karma:   6565  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-03T08:33:25Z  
+Score:           150 points  
+Post Title:      Lol this aint even a joke, the oval ofice was evacuated because he crapped himself  
+:::::: Reddit User Comment: ======  
+Dumb liberals. It's Biden's poop in his pants not Trumps!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Anti-intellectual training ground, Reddit commenting section. Gamingcirclejerk. Joke-washing Trump as a source of entertainment. Trump has known all along that antics and bullshit get him to the front page of media systems. Tabloid trash /r/All Reddit. This isn't funny, it's a sick society that will amuse itself day and night to Trump. Fandom of Trump shit. That prizes shit-commenting, shit-leadership, and USA turning to shit all for jokes and comedy "jerking". NYC "Jerk" comedy that Trump out-jerks all of Reddit https://en.wikipedia.org/wiki/The_Jerky_Boys with POTUS Tony Clifton NYC SNL techniques. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o3cgdhv
+
+    entry 110
+
+Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qurfyk/when_rconservative_agrees_with_trump_that_we/o3cgdhv/  
+Comment ID:      o3cgdhv  
+Author:          DominionGhost  
+Bio:             Opinions are like testicles, you kick them hard enough it doesn't matter how many you've got.  
+Account Created: 2017-12-09T20:29:26Z  
+Link Karma:      7317  
+Comment Karma:   325299  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-03T14:22:28Z  
+Score:           81 points  
+Post Title:      When r/conservative agrees with Trump that we should nationalize voting, but are for small government and states rights  
+:::::: Reddit User Comment: ======  
+They think Trump is some sort of saint that is playing 4D chess to drain the swamp of corruption. And they will twist themselves into pretzels to deny what he really is, a geriatric pedophile who shits himself awake during cabinet meetings.
+
+MAGA is beyond reach now. Bunch of willfully ignorant evil fucks.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1291" height="930" alt="image" src="https://github.com/user-attachments/assets/a95b1f91-1f46-485f-9b4a-272186ece8a2" />
+> 
+> Reddit "I Think You Should Leave with Tim Robinson" Television fandom is fucking entirely blind that Putin is the one playing 16D chess since March of year 2013! Over and over the Reddit comment section is entertained by Trump behavior and Trump antics as Donald Trump plays POTUS Tony Clifton. The Reddit fandom of antics and jokes and television "Reality TV The Apprentice" eats it up. People can not face up to this **January of year 2015** story that explains the 16D Chess game and who is playing it. Reddit audience can not follow basic strategy game (Chess) timelines, minds are blown by shit comedy television Tony Clifton show every day into meme stupors. This is not resisting, this is mocking-away the USA to Russia's media television audience (Tim Robinson fandom) information warfare since this was published:
+> 
+> * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+>
+
+
+=============
+  
+## Reddit comment o3bgxkv
+
+    entry 111
+
+Comment URL: https://old.reddit.com/r/Music/comments/1quo3iv/50_cent_mocks_nicki_minajs_x_rampage_as_critics/o3bgxkv/  
+Comment ID:      o3bgxkv  
+Author:          Screamin_Toast  
+Bio:               
+Account Created: 2011-10-04T04:07:31Z  
+Link Karma:      1276  
+Comment Karma:   77340  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T10:14:16Z  
+Score:           1518 points  
+Post Title:      50 Cent mocks Nicki Minaj's X rampage as critics call her 'female Kanye West'  
+:::::: Reddit User Comment: ======  
+Good old professional hater 50\. Love it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1. Mocking is not resisting a Tony Clifton actor doing his acting of POTUS Clifton.
+> 
+> 2. Mocking a total mockery nation is adding to the overdose of mockery.
+> 
+> 3. Anti-Mocking is sobering up and promoting Dr. Bandy X Lee's nonfiction education and teaching every day on Reddit commenting section. EVERY HOUR OF EVERY DAY.
+> 
+> 4. Anti-Mockery is promoting Jen Senko about Fox News brainwashing and cult.
+> 
+> 5. Adding hate to a hate leader Trump is following Trump. Hate leadership is working. Putin leads Trump.
+> 
+> Wake the fuck up USA, the whole world is watching Tony Clifton President on stage make a mockery of intelligence via 16D Surkov chess.
+> 
+> * "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+>
+
+
+=============
+  
+## Reddit comment o3bq8pz
+
+    entry 112
+
+Comment URL: https://old.reddit.com/r/Music/comments/1quo3iv/50_cent_mocks_nicki_minajs_x_rampage_as_critics/o3bq8pz/  
+Comment ID:      o3bq8pz  
+Author:          popotheclowns  
+Bio:               
+Account Created: 2015-07-23T18:27:17Z  
+Link Karma:      136  
+Comment Karma:   10048  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-03T11:37:05Z  
+Score:           78 points  
+Post Title:      50 Cent mocks Nicki Minaj's X rampage as critics call her 'female Kanye West'  
+:::::: Reddit User Comment: ======  
+This title is ridiculous. 
+
+50 asked what Lizzo did to deserve the rage and then people responded to the comment and someone wrote an ‘article’ based on tweet responses.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1283" height="1373" alt="image" src="https://github.com/user-attachments/assets/580913fc-a907-4320-a308-1ab4ee12ea83" />
+> 
+> This Reddit posting is a **simulation of resistance, a screen game for Reddit gamers**, home gamers who are playing an ARG that they are winning. As billionaires run Reddit influencers. STUDY FUCKING RUSSIA YEAR 2011!! READ THIS AUTHOR https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+> 
+> Reddit is eating out of Putin's hands and has been doing so since MARCH OF YEAR 2013!! This problem runs very deep into mindsets.
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdxow7oimk2m https://autistics.life/@RoundSparrow/116007439740610684 https://MidWest.Social/post/42892697 }
+>
+
+
+=============
+  
+## Reddit comment o3dqatw
+
+    entry 113
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1quygiv/sen_chris_murphy_a_uae_investor_secretly_gave/o3dqatw/  
+Comment ID:      o3dqatw  
+Author:          FabulousValuable2643  
+Bio:             "I'm the king of my own land,
+Facing tempest of dust, I'll fight until the end.
+Creatures of my dreams raise up and dance with me!
+Now and forever, I'm your king!  
+Account Created: 2023-04-05T11:44:05Z  
+Link Karma:      1550  
+Comment Karma:   22122  
+Comment Age:     44 minutes ago  
+Timestamp:       2026-02-03T18:01:16Z  
+Score:           5 points  
+Post Title:      Sen Chris Murphy: A UAE investor secretly gave Trump 187 million dollars and his top Middle East envoy 31 million dollars. And then Trump gave that investor access to sensitive defense technology that broke decades of national security precedent  
+:::::: Reddit User Comment: ======  
+Cuz poppa trump is king in the eyes of maga
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> In the eyes of the Reddit fandom to Trump, adding more jokes and mocking to Trump's jokes and mockery is a good thing. In the eyes of Reddit audience members, never question your blind faith in jokes and humor. Give up on deep thinking on Reddit and favor high-speed delivery of commenting and joke-washing Trump day in and day out for over 10 years and never think about learning Surkov techniques.
+> 
+> * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business https://www.youtube.com/watch?v=ETUGwC9jXCM
+>
+
+
+=============
+  
+## Reddit comment o3dqcs9
+
+    entry 114
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1quygiv/sen_chris_murphy_a_uae_investor_secretly_gave/o3dqcs9/  
+Comment ID:      o3dqcs9  
+Author:          ZZmops  
+Bio:               
+Account Created: 2018-02-27T18:48:12Z  
+Link Karma:      69  
+Comment Karma:   1073  
+Comment Age:     44 minutes ago  
+Timestamp:       2026-02-03T18:01:30Z  
+Score:           14 points  
+Post Title:      Sen Chris Murphy: A UAE investor secretly gave Trump 187 million dollars and his top Middle East envoy 31 million dollars. And then Trump gave that investor access to sensitive defense technology that broke decades of national security precedent  
+:::::: Reddit User Comment: ======  
+C'mon Trump supporters, wake up!! Isn't this enough information and evidence of corruption?? Vote and impeach this f\*\*\*\*\* out
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Come on Reddit audience, Reddit end-users, WAKE UP and make Dr. Bandy X Lee a household name. Quote Dr. Bandy X Lee on every social platform! Every 4 hours, quote her nonfiction books to educate everyone on why Trump's mental health is dangerous to everyone! Keep teaching so we don't keep picking terrible business leaders in USA!
+>
+
+
+=============
+  
+## Reddit comment o3f3uik
+
+    entry 115
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f3uik/  
+Comment ID:      o3f3uik  
+Author:          LovelessDerivation  
+Bio:               
+Account Created: 2015-01-21T13:43:49Z  
+Link Karma:      10892  
+Comment Karma:   49018  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-03T21:50:13Z  
+Score:           None  
+Post Title:      Rep. Lieu Says Epstein files Have Allegations of Trump Raping & Threatening to Kill Children  
+:::::: Reddit User Comment: ======  
+Hear that y'all, it's your daily dose of:
+
+"We got him *THIS* time for sure!! He's cornered like a rat!! He's ours!! and he's *GONNA FAAACE JUSSTIIIICE!!!!* Bu\-but, Oh No!!! H\-He got away again!! Looks like he took all the horses, guns, *AND* money also!!"
+
+Tomorrow it'll be:
+
+"No *WAY* he gets out of it *THIS* time!!! Oh!! Oh My God!! Trump just grabbed the tailpipe of Robbie Kneivels motocross! He's cleared the Grand Canyon in an escape attempt turned successful somehow!!! How does this 5D chess playing, stable genius individual *KEEP* getting away with it!?!?!?!?!"
+
+*TUNE IN TOMORROOOOOOOOOWWW!*
+
+(And don't forget your Ovaltine Decoder Ring(s), Dedicated Listeners!!)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1573" height="988" alt="image" src="https://github.com/user-attachments/assets/452b07b2-7529-42ab-9993-c9cec91b7440" />
+> 
+> Simulation of resisting. Audience fandom of Trump. Content is king for media addiction society seeking the thrill of high-speed information delivery about Trump.
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdyhi6o6us2u https://autistics.life/@RoundSparrow/116009167384483689 }
+> 
+> OPERA_A They have a billion-dollar bounty on someone who understands the simulacra parties going on all over in filter-bubble echoing chambers. Hush, Caution! Echoland! https://www.youtube.com/watch?v=E6l5ezErGuw Let Dr. Bandy X Lee, *Woman* - take over... 52,975,062 views June 26, 2017
+>
+
+
+=============
+  
+## Reddit comment o3f810s
+
+    entry 116
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qv50nm/rep_lieu_says_epstein_files_have_allegations_of/o3f810s/  
+Comment ID:      o3f810s  
+Author:          Mr_Straws  
+Bio:               
+Account Created: 2015-07-21T12:36:41Z  
+Link Karma:      29132  
+Comment Karma:   37323  
+Comment Age:     52 minutes ago  
+Timestamp:       2026-02-03T22:09:40Z  
+Score:           None  
+Post Title:      Rep. Lieu Says Epstein files Have Allegations of Trump Raping & Threatening to Kill Children  
+:::::: Reddit User Comment: ======  
+It’s so odd everyone was raging and spewing up at the thought of “pizza gate” just a few years back but now there’s actual hard evidence for a child predator ring of elites and those same people are pretending it’s fine, because it involves their “team”.
+
+They made sure to redacted the abusers names as much as possible but just didn’t bother with the victims, and published child abuse images in the files. You people over in America need to do something, I don’t know what but it’s clear that justice is not happening
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> PizzaGate was a Kremlin-manipulated QAnon simulation. EVIDENCE: https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+>
+
+
+=============
+  
+## Reddit comment o3j96db
+
+    entry 117
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvpjas/well_that_answers_that/o3j96db/  
+Comment ID:      o3j96db  
+Author:          HappyHarryHardOn  
+Bio:               
+Account Created: 2008-12-04T14:51:45Z  
+Link Karma:      188298  
+Comment Karma:   494412  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-04T14:25:08Z  
+Score:           685 points  
+Post Title:      Well, that answers that..🤦🏽‍♂️  
+:::::: Reddit User Comment: ======  
+And here's the short answer to the question:
+
+Hunter Biden is a handsome, good\-looking man who, despite his flaws, still has a moral standard
+
+the complete opposite of MAGA
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Front page of Reddit. Top-voted comment. Nothing at all is being "resisted' here. There is no sense of abnormality in USA society, no sense of urgency, no sense of alarm bells ringing. AVOIDED: Dr. Bandy X Lee's education for the general population, for the public... for the nation. On mental health. Spare time and free time of USA society is discussing Twitter Elon Musk platform message screenshots on Reddit.
+>
+
+
+=============
+  
+## Reddit comment o3j7gy8
+
+    entry 118
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qvpjas/well_that_answers_that/o3j7gy8/  
+Comment ID:      o3j7gy8  
+Author:          Tyrannical-Botanical  
+Bio:               
+Account Created: 2020-01-27T00:35:47Z  
+Link Karma:      337  
+Comment Karma:   789445  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-04T14:16:14Z  
+Score:           609 points  
+Post Title:      Well, that answers that..🤦🏽‍♂️  
+:::::: Reddit User Comment: ======  
+Shit. Who *doesn't* like crack and Latinas?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Who doesn't like President Ronald Reagan media content in 2nd term 1985?
+> 
+> * "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb." ... "**All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions." ... "Big Brother turns out to be Howdy Doody."
+> ― Neil Postman, [Amusing Ourselves to Death: Public Discourse](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Postman_1985_Howdy_Doody.md) in the Age of Show Business, **year 1985**, page 111
+>
+
+
+=============
+  
+## Reddit comment o3k8br0
+
+    entry 119
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1qvuawr/apparently_they_are_not_even_trying_to_hide_it/o3k8br0/  
+Comment ID:      o3k8br0  
+Author:          Butterfly_Dangerous  
+Bio:             Noxxtom :   
+Account Created: 2020-06-25T13:45:46Z  
+Link Karma:      331  
+Comment Karma:   6030  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T17:11:55Z  
+Score:           2178 points  
+Post Title:      Apparently they are not even trying to hide it anymore  
+:::::: Reddit User Comment: ======  
+soooo intimidation.. gotcha
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This is normalizing, not resisting. Top-upvoted comment.
+>
+
+
+=============
+  
+## Reddit comment o3q7xl5
+
+    entry 120
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qwmzkf/during_a_pro_wrestling_match_on_live_tv_the_crowd/o3q7xl5/  
+Comment ID:      o3q7xl5  
+Author:          SeaEvent4666  
+Bio:               
+Account Created: 2022-09-18T20:02:21Z  
+Link Karma:      975  
+Comment Karma:   14063  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T15:12:31Z  
+Score:           677 points  
+Post Title:      During a pro wrestling match on live TV, the crowd starts chanting 'F*CK ICE.'  
+:::::: Reddit User Comment: ======  
+If it was still the 80s or 90s, Vince McMahon 
+ would create a heel character that was an ICE agent. And his theme song would just be the police siren.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This whole posting topic is "simulation of resistance", Audience vs. audience. Cult vs. cult. Wrestling audiences are the front lines of simulacra. Managed opposition, programmed cult media addicts mocking back at the Rupert Murdoch cults. Mock for mock, hate for hate, *hate harder*. ANYTHING but face up to Putin's information warfare. Reddit society unable to engage and comprehend and understand off-Reddit... September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ 
+> 
+> OPERA_A Andy, did you hear about this wrestling match one? Reddit audience eats it up. Polarity out-group logic mindsets. REPEATING_REPEATER https://www.youtube.com/watch?v=l2lliT6KK9o 189,797 views February 8, 2018
+>
+
+
+=============
+  
+## Reddit comment o3pq4ps
+
+    entry 121
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1qwl6es/loud_fck_ice_chants_during_aew_dynamite_main_event/o3pq4ps/  
+Comment ID:      o3pq4ps  
+Author:          Turbulent_Deal_3145  
+Bio:             lol_camis :   
+Account Created: 2025-10-18T16:48:02Z  
+Link Karma:      26882  
+Comment Karma:   4727  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T13:37:17Z  
+Score:           1688 points  
+Post Title:      Loud “F*CK ICE” chants during AEW Dynamite Main Event  
+:::::: Reddit User Comment: ======  
+You know your policy is too far right when even wresting fans are against it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Celebration of Ignorance as defined in 1995 by Carl Sagan. Television **Celebrity Donald Trump** for Reddit television celebrity addictions audiences. Entertainment addicts who diss and insult and mock nonfiction serious books.
+> 
+> * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+>
+
+
+=============
+  
+## Reddit comment o3r6rmj
+
+    entry 122
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to_cave_on_their/o3r6rmj/  
+Comment ID:      o3r6rmj  
+Author:          returnofthecursed  
+Bio:             returnofthecursed :   
+Account Created: 2024-11-05T21:19:21Z  
+Link Karma:      1  
+Comment Karma:   12405  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-05T17:54:58Z  
+Score:           None  
+Post Title:      Schumer and Jeffries Begin to Cave on Their Simplest ICE Demand - Why the hell are Democratic leaders giving up on a mask ban for federal immigration agents?  
+:::::: Reddit User Comment: ======  
+A cop who's scared to show his face is not a cop I want in my community.
+
+Fuck ICE
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Masked Reddit user with masked secret policing of Reddit comments that are disappeared without explanation or documentation. No active education is given, even during a global pandemic, on World Wide Web Reddit about Russian mental manipulation. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192 - a date and story that Reddit audience avoids and can not face. Non-fiction, fact-checked, real information warfare to harm USA population. Not suitcases of cash bribes like so many fantasies believers have on Reddit of one single man Trump taking bribes, but direct social media audience manipulation using masked Reddit and masked Twitter accounts that hide source identity. https://www.bbc.com/news/technology-43301643 Surkov won since March 2013.
+> 
+> * "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. **Всё началось ночью с 6 на 7 ноября 2012 года.**" https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+>
+
+
+=============
+  
+## Reddit comment o3r6hl7
+
+    entry 123
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qws929/schumer_and_jeffries_begin_to_cave_on_their/o3r6hl7/  
+Comment ID:      o3r6hl7  
+Author:          Ill_Painter5868  
+Bio:               
+Account Created: 2021-12-22T22:20:43Z  
+Link Karma:      183  
+Comment Karma:   3757  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-05T17:53:42Z  
+Score:           None  
+Post Title:      Schumer and Jeffries Begin to Cave on Their Simplest ICE Demand - Why the hell are Democratic leaders giving up on a mask ban for federal immigration agents?  
+:::::: Reddit User Comment: ======  
+They are paid to lose and then fundraise on how bad losing feels
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Simulation of resisting. Reddit banal comments that trivialize serious complex issues. Highly-upvoted popular comment. ANYTHING to avoid nonfiction teaching about managed opposition and Trump Putin facts.
+> 
+> * "Culture watchers and worriers — those of the type who read books like this one — will know that the examples above are not aberrations but, in fact, clichés. There is no shortage of critics who have observed and recorded the dissolution of public discourse in America and its conversion into the arts of show business. But most of them, I believe, have **barely begun to tell the story of the origin and meaning of this descent into a vast triviality**. Those who have written vigorously on the matter tell us, for example, that what is happening is the residue of an exhausted capitalism; or, on the contrary, that it is the tasteless fruit of the maturing of capitalism; or that it is the neurotic aftermath of the Age of Freud; or the retribution of our allowing God to perish; or that it all comes from the old stand-bys, greed and ambition. I have attended carefully to these explanations, and I do not say there is nothing to learn from them. Marxists, Freudians, Lévi-Straussians, even Creation Scientists are not to be taken lightly." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page 6.
+>
+
+
+=============
+  
+## Reddit comment o3q53uw
+
+    entry 124
+
+Comment URL: https://old.reddit.com/r/WorkReform/comments/1qwn45q/breaking_newspaper_owned_by_a_billionaire_tells/o3q53uw/  
+Comment ID:      o3q53uw  
+Author:          Heavy-Rise-1509  
+Bio:               
+Account Created: 2020-09-01T16:54:30Z  
+Link Karma:      1  
+Comment Karma:   978  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-05T14:58:09Z  
+Score:           473 points  
+Post Title:      Breaking: Newspaper owned by a Billionaire tells us not to tax Billionaires.  
+:::::: Reddit User Comment: ======  
+Okay bezo 🤡🤡🤡🤡
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Mockery created by billionaire Rupert Murdoch tells Reddit mockers to keep mocking with simple Twitter-Think Elon Musk Tweet-mindsets. This is not resisting, this is fandom to the clown show that billionaires are feeding into Reddit audience that joke-washes it all as entertainment. Trickle Down clown content for a clown fandom, Reddit is the venue for clowning and clown-washing.
+> 
+> <img width="762" height="235" alt="image" src="https://github.com/user-attachments/assets/102abe89-6803-4719-a3bc-255e3261c0e9" />
+> 
+> Clown icons, Unicode clowns. 
+> 
+> "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by **technological diversions**. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+> 
+> * Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
+>

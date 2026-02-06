@@ -177,3 +177,624 @@ Post Title:      Favorite actor/director who was called crazy for claiming Holly
 I mean Gibson is a huge trump supporter, if he was right\-\-he was talking about his own friends
 
 
+
+
+=============
+  
+## Reddit comment o3738uq
+
+    entry 9
+
+Comment URL: https://old.reddit.com/r/seinfeld/comments/1qu2cwl/jerry_has_been_named_in_the_epstein_files/o3738uq/  
+Comment ID:      o3738uq  
+Author:          ccccc4  
+Bio:               
+Account Created: 2017-07-14T01:03:03Z  
+Link Karma:      5052  
+Comment Karma:   56684  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-02T18:12:59Z  
+Score:           355 points  
+Post Title:      Jerry has been named in the Epstein files  
+:::::: Reddit User Comment: ======  
+Feel like lemonade has a different meaning for Epstein
+
+
+
+
+=============
+  
+## Reddit comment o37kllw
+
+    entry 10
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37kllw/  
+Comment ID:      o37kllw  
+Author:          enfersijesais  
+Bio:             Poop  
+Account Created: 2020-11-16T14:56:08Z  
+Link Karma:      1214  
+Comment Karma:   38299  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-02T19:31:59Z  
+Score:           3879 points  
+Post Title:      Genuinely confused and who is the hat man ?  
+:::::: Reddit User Comment: ======  
+People who purposely overdose on Benadryl to get high often report seeing a dark figure they refer to as the hat man.
+
+
+
+
+=============
+  
+## Reddit comment o37mvqg
+
+    entry 11
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37mvqg/  
+Comment ID:      o37mvqg  
+Author:          Wadoichi_monji  
+Bio:               
+Account Created: 2023-02-26T17:35:24Z  
+Link Karma:      198  
+Comment Karma:   2540  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-02T19:42:40Z  
+Score:           867 points  
+Post Title:      Genuinely confused and who is the hat man ?  
+:::::: Reddit User Comment: ======  
+As someone who once ODed on Benadryl, i was constantly taking to this guy who was walking right with me. Having full on conversations just for me to turn around and for him to vanish. 
+I didn't see a hat man but there was always a familiar presence with whom I was talking to who periodically vanishes when I turn around.
+
+
+
+
+=============
+  
+## Reddit comment o37nrg3
+
+    entry 12
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37nrg3/  
+Comment ID:      o37nrg3  
+Author:          ZethanosGaming  
+Bio:             Zethanos :   
+Account Created: 2024-01-24T14:40:28Z  
+Link Karma:      1290  
+Comment Karma:   28711  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-02T19:46:46Z  
+Score:           575 points  
+Post Title:      Genuinely confused and who is the hat man ?  
+:::::: Reddit User Comment: ======  
+Someone is hand filling a 20 gauge shotgun shell with Benadryl.
+
+The joke here is, he is going to shoot an overdose of Benadryl at home invaders, so that they’re both wounded, and overdose a delirium shadow demon that people refer to seeing when they overdose.
+
+
+
+
+=============
+  
+## Reddit comment o37nrys
+
+    entry 13
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qu4rmg/genuinely_confused_and_who_is_the_hat_man/o37nrys/  
+Comment ID:      o37nrys  
+Author:          Vast-Conference3999  
+Bio:               
+Account Created: 2025-12-30T09:53:51Z  
+Link Karma:      3852  
+Comment Karma:   21932  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-02T19:46:49Z  
+Score:           101 points  
+Post Title:      Genuinely confused and who is the hat man ?  
+:::::: Reddit User Comment: ======  
+Ok. So this is a play on the home\-intruder defence / Home Alone antics that often involves setting up shotgun shells to fire at intruders.
+
+Home\-made shrapnel solutions such as nails and rock salt are common constituents for such improvised explosive devices.
+
+In this case OP is dosing theirs with Benadryl. Overdosing on this can have weird and unpleasant side effects such as hallucinations and disappearing to a pocket dimension.
+
+
+
+
+=============
+  
+## Reddit comment o3bxerj
+
+    entry 14
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3bxerj/  
+Comment ID:      o3bxerj  
+Author:          JaggedOuro  
+Bio:             Jagged Hero : Mainly interested in all things City of Heroes  
+Account Created: 2019-08-31T10:29:38Z  
+Link Karma:      84  
+Comment Karma:   20053  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-03T12:30:47Z  
+Score:           58 points  
+Post Title:      This tells you everything  
+:::::: Reddit User Comment: ======  
+Or for that matter King Charles.
+
+A few weeks ago most of the papers had a picture of Andrew and Epstein in the UK. They all cropped Charles out of the picture.
+
+
+
+
+=============
+  
+## Reddit comment o3bzd0m
+
+    entry 15
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3bzd0m/  
+Comment ID:      o3bzd0m  
+Author:          ChaiTeaAndBoundaries  
+Bio:               
+Account Created: 2025-08-05T14:05:13Z  
+Link Karma:      1  
+Comment Karma:   29285  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-03T12:44:05Z  
+Score:           43 points  
+Post Title:      This tells you everything  
+:::::: Reddit User Comment: ======  
+Notice around that time the Andrew scandal was starting to leak out, the Meghan hate campaign was brutal in the British press? Harry said his wife became sucidal and knew that they were being used as scape goats and he had no option but to leave to save his family.
+
+Whenever you see Harry and Meghan hate know that the Andrew and Fergie's team are behind it.
+
+Britain is just as Racist as America, the Brits just are good at pretending but not anymore as Reform continues to gain momentum.
+
+
+
+
+=============
+  
+## Reddit comment o3c4ntg
+
+    entry 16
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1quq2ox/this_tells_you_everything/o3c4ntg/  
+Comment ID:      o3c4ntg  
+Author:          Intelligent_Hair3109  
+Bio:               
+Account Created: 2024-03-02T14:01:54Z  
+Link Karma:      127  
+Comment Karma:   19844  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-03T13:17:14Z  
+Score:           12 points  
+Post Title:      This tells you everything  
+:::::: Reddit User Comment: ======  
+Exactly. Have lived in England. Racists, misogynistic, patriarchal. 
+They did not even have a domestic violence law till 1989\.
+It's obvious as the press is constantly saying untruths about her but isn't really going after predators. Andrew, Jimmy Saville etc get a pass.
+It's disgusting
+
+
+
+
+=============
+  
+## Reddit comment o3e0dkb
+
+    entry 17
+
+Comment URL: https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3e0dkb/  
+Comment ID:      o3e0dkb  
+Author:          Gianni_the_tolerable  
+Bio:               
+Account Created: 2024-08-17T14:17:04Z  
+Link Karma:      158  
+Comment Karma:   22933  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-03T18:46:30Z  
+Score:           445 points  
+Post Title:      who wouldve saw it coming  
+:::::: Reddit User Comment: ======  
+"trans people are groomers" so it really was projection all along
+
+
+
+
+=============
+  
+## Reddit comment o3dz4qc
+
+    entry 18
+
+Comment URL: https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3dz4qc/  
+Comment ID:      o3dz4qc  
+Author:          petrock_  
+Bio:               
+Account Created: 2018-02-05T17:59:41Z  
+Link Karma:      329  
+Comment Karma:   1437  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-03T18:40:54Z  
+Score:           158 points  
+Post Title:      who wouldve saw it coming  
+:::::: Reddit User Comment: ======  
+All that obsession with trans people molesting children and ending up with being close to the pedo king? What a surprise
+
+
+
+
+=============
+  
+## Reddit comment o3dyu5z
+
+    entry 19
+
+Comment URL: https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3dyu5z/  
+Comment ID:      o3dyu5z  
+Author:          ZenQMeister  
+Bio:             Zen : Imagine finally changing your profile bio and banner image after being here for 6 years  
+Account Created: 2018-07-16T22:07:20Z  
+Link Karma:      16890  
+Comment Karma:   91910  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-03T18:39:35Z  
+Score:           58 points  
+Post Title:      who wouldve saw it coming  
+:::::: Reddit User Comment: ======  
+she also deleted all port logs for her yacht, over a decade of data
+
+not sus at all
+
+
+
+
+=============
+  
+## Reddit comment o3edray
+
+    entry 20
+
+Comment URL: https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3edray/  
+Comment ID:      o3edray  
+Author:          missusfictitious  
+Bio:             CiaoMare  :   
+Account Created: 2020-04-18T23:15:00Z  
+Link Karma:      2009  
+Comment Karma:   22981  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-03T19:48:37Z  
+Score:           7 points  
+Post Title:      who wouldve saw it coming  
+:::::: Reddit User Comment: ======  
+This cherry picking of names and headlines is getting ridiculous. Being mentioned in a document doesn’t mean a real relationship existed. This instance is related to event invitations handled by others (like publicists or producers), not a personal connection between Rowling and Epstein.
+
+
+
+
+=============
+  
+## Reddit comment o3e0lx0
+
+    entry 21
+
+Comment URL: https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3e0lx0/  
+Comment ID:      o3e0lx0  
+Author:          Pokemonfan_807  
+Bio:               
+Account Created: 2023-05-31T09:45:29Z  
+Link Karma:      358630  
+Comment Karma:   46592  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-03T18:47:32Z  
+Score:           8 points  
+Post Title:      who wouldve saw it coming  
+:::::: Reddit User Comment: ======  
+She was always a piece of shit. Now thanks to this new information another good reason for any sane person to stay the fuck away from her
+
+
+
+
+=============
+  
+## Reddit comment o3eo30g
+
+    entry 22
+
+Comment URL: https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3eo30g/  
+Comment ID:      o3eo30g  
+Author:          Knightmare_memer  
+Bio:             TheDarkKnightmare : Oi Noir  
+Account Created: 2022-01-31T08:22:21Z  
+Link Karma:      99681  
+Comment Karma:   95274  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-03T20:37:22Z  
+Score:           4 points  
+Post Title:      who wouldve saw it coming  
+:::::: Reddit User Comment: ======  
+Shit like this is why Reddit needs community notes
+
+
+
+
+=============
+  
+## Reddit comment o3eitoz
+
+    entry 23
+
+Comment URL: https://old.reddit.com/r/whennews/comments/1quzp6u/who_wouldve_saw_it_coming/o3eitoz/  
+Comment ID:      o3eitoz  
+Author:          Lump001  
+Bio:               
+Account Created: 2026-01-01T03:49:27Z  
+Link Karma:      1  
+Comment Karma:   3499  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-03T20:12:24Z  
+Score:           3 points  
+Post Title:      who wouldve saw it coming  
+:::::: Reddit User Comment: ======  
+You guys are unhinged. 
+
+He was invited (amongst other prominent people) to a premier. Probably happened hundreds of times from hundreds of publicity teams. 
+
+There's zero evidence that Rowling associated with him. 
+
+You can do better.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. NYE.
+>
+
+
+=============
+  
+## Reddit comment o3fpurr
+
+    entry 24
+
+Comment URL: https://old.reddit.com/r/Damnthatsinteresting/comments/1qv7vkc/stephen_hawking_in_jeffrey_epsteins_personal/o3fpurr/  
+Comment ID:      o3fpurr  
+Author:          Clean-Nectarine-1751  
+Bio:               
+Account Created: 2025-02-02T05:12:53Z  
+Link Karma:      1  
+Comment Karma:   7870  
+Comment Age:     25 minutes ago  
+Timestamp:       2026-02-03T23:42:06Z  
+Score:           28 points  
+Post Title:      Stephen Hawking in Jeffrey Epstein’s personal submarine at Epstein Island  
+:::::: Reddit User Comment: ======  
+Guys like this I’m sure are super friendly and nice on the surface. There is a reason they have so many friends…. There is also a terrible reason they have so many friends
+
+
+
+
+=============
+  
+## Reddit comment o3h781w
+
+    entry 25
+
+Comment URL: https://old.reddit.com/r/aviation/comments/1qvf46q/reddit_mod_deleted_breathtaking_photo_taken_by/o3h781w/  
+Comment ID:      o3h781w  
+Author:          pickles_and_mustard  
+Bio:             Pickles : Pickles  
+Account Created: 2022-03-08T12:39:31Z  
+Link Karma:      7613  
+Comment Karma:   148173  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-04T04:52:38Z  
+Score:           847 points  
+Post Title:      Reddit Mod Deleted Breathtaking Photo Taken by NASA Astronaut From Space Because It Was "Blurry"  
+:::::: Reddit User Comment: ======  
+Oof! I commented in that thread, but I guess I was too early to witness the shitstorm that followed. I was pretty impressed with the photo, myself. It's an angle of aviation that we rarely get to see, aside from when a plane appears a Google Maps tile, which often are too blurry. A real picture is a hundred times better
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Network Censorship war stories.
+> 
+> OPERA_A Alan Alda network censorship TV war Korean war stories. https://www.youtube.com/watch?v=37HXBdOMKOk&t=375s 366,855 views July 18, 2014 Underwear
+>
+
+
+=============
+  
+## Reddit comment o3hewkg
+
+    entry 26
+
+Comment URL: https://old.reddit.com/r/aviation/comments/1qvf46q/reddit_mod_deleted_breathtaking_photo_taken_by/o3hewkg/  
+Comment ID:      o3hewkg  
+Author:          TheThreeJet  
+Bio:             Snowbird 3 Inner Left Wing - Royal Canadian Air Force “Snowbirds”, 431 (Air Demonstration) Squadron.   
+Account Created: 2024-11-30T23:45:10Z  
+Link Karma:      1  
+Comment Karma:   239  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-04T05:48:50Z  
+Score:           173 points  
+Post Title:      Reddit Mod Deleted Breathtaking Photo Taken by NASA Astronaut From Space Because It Was "Blurry"  
+:::::: Reddit User Comment: ======  
+I’m a pilot with the RCAF’s Snowbirds Air Demonstration Team. I tried to post some cool pictures of our off\-season training a few weeks ago. Those were taken in\-flight with a vintage analog camera. They were immediately taken down for no reason… I haven’t bothered trying to post anything since, to be honest.
+
+
+
+
+=============
+  
+## Reddit comment o3k8ofc
+
+    entry 27
+
+Comment URL: https://old.reddit.com/r/SipsTea/comments/1qvso0z/what_are_your_questions/o3k8ofc/  
+Comment ID:      o3k8ofc  
+Author:          Nylanderthal88  
+Bio:             Nylanderthal88 : Morgan Rielly should be a winger and there's nothing wrong with that.   
+Account Created: 2025-03-12T18:05:12Z  
+Link Karma:      3571  
+Comment Karma:   68462  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T17:13:32Z  
+Score:           139 points  
+Post Title:      What are your Questions?  
+:::::: Reddit User Comment: ======  
+No he photoshops his nipples to look like that.
+
+
+
+
+=============
+  
+## Reddit comment o3lzyy8
+
+    entry 28
+
+Comment URL: https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3lzyy8/  
+Comment ID:      o3lzyy8  
+Author:          Idkboutdat2  
+Bio:               
+Account Created: 2022-05-08T03:39:22Z  
+Link Karma:      4383  
+Comment Karma:   161950  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-04T22:09:01Z  
+Score:           623 points  
+Post Title:      "Look at Call of Duty. That sh*t's dead now. You never wanna listen to streamers" Cloakzy warns Embark  
+:::::: Reddit User Comment: ======  
+A lot of games have been ruined because of streamers/comp players bullying their way into influence.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Toxic popularity. Trump mindsets of Truth Social fandoms.
+>
+
+
+=============
+  
+## Reddit comment o3m15ji
+
+    entry 29
+
+Comment URL: https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3m15ji/  
+Comment ID:      o3m15ji  
+Author:          cole_red  
+Bio:             Please don't be mean to me my dad is dead  
+Account Created: 2017-01-05T02:41:37Z  
+Link Karma:      3591  
+Comment Karma:   16913  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-04T22:14:52Z  
+Score:           1031 points  
+Post Title:      "Look at Call of Duty. That sh*t's dead now. You never wanna listen to streamers" Cloakzy warns Embark  
+:::::: Reddit User Comment: ======  
+Honestly props to Cloak for saying that, whether you agree or not
+
+
+
+
+=============
+  
+## Reddit comment o3lrhtp
+
+    entry 30
+
+Comment URL: https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3lrhtp/  
+Comment ID:      o3lrhtp  
+Author:          whoismiked  
+Bio:               
+Account Created: 2012-05-28T00:43:42Z  
+Link Karma:      1848  
+Comment Karma:   2538  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-04T21:28:25Z  
+Score:           145 points  
+Post Title:      "Look at Call of Duty. That sh*t's dead now. You never wanna listen to streamers" Cloakzy warns Embark  
+:::::: Reddit User Comment: ======  
+I am out of the loop as I don't watch many streams, but what exactly are the streamers asking for? What is the context for this?
+
+
+
+
+=============
+  
+## Reddit comment o3m5cb3
+
+    entry 31
+
+Comment URL: https://old.reddit.com/r/ArcRaiders/comments/1qw1gbq/look_at_call_of_duty_that_shts_dead_now_you_never/o3m5cb3/  
+Comment ID:      o3m5cb3  
+Author:          Interdimension  
+Bio:               
+Account Created: 2014-06-05T22:09:34Z  
+Link Karma:      194  
+Comment Karma:   67085  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-04T22:36:04Z  
+Score:           119 points  
+Post Title:      "Look at Call of Duty. That sh*t's dead now. You never wanna listen to streamers" Cloakzy warns Embark  
+:::::: Reddit User Comment: ======  
+His point about Arc Raiders not being an e\-sports or competitive title is 100% accurate. There are certain games that are designed to be "sweaty" and cater to ranked play, etc. Arc Raiders is not one of them. It's an entirely casual game. The only way to make this game competitive would be to remove all the RNG aspects of it, which would essentially transform the game into something else entirely.
+
+Let this game be what it is: casual fun. The game already has AGMM to let you get into "sweaty" PvP lobbies if you so choose.
+
+The people asking for this to become an actual competitive game are missing the point of an extraction shooter with massive RNG elements to it.
+
+
+
+
+=============
+  
+## Reddit comment o3m0fpu
+
+    entry 32
+
+Comment URL: https://old.reddit.com/r/Damnthatsinteresting/comments/1qw2hbq/piranhas_are_known_as_a_vicious_carnivore_but_are/o3m0fpu/  
+Comment ID:      o3m0fpu  
+Author:          actinross  
+Bio:             actinross : I am / I can  
+Account Created: 2022-10-17T14:40:41Z  
+Link Karma:      1  
+Comment Karma:   112246  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-04T22:11:18Z  
+Score:           277 points  
+Post Title:      piranhas are known as a vicious carnivore but are an important source of food for local people and are sold at local markets in Amazon.  
+:::::: Reddit User Comment: ======  
+Damn, that's a normal video!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> See replies about media ecology.
+>
+
+
+=============
+  
+## Reddit comment o3mv1yw
+
+    entry 33
+
+Comment URL: https://old.reddit.com/r/SipsTea/comments/1qw5rmg/ban_ozempic/o3mv1yw/  
+Comment ID:      o3mv1yw  
+Author:          Pristine-Confection3  
+Bio:               
+Account Created: 2020-08-08T09:17:43Z  
+Link Karma:      13437  
+Comment Karma:   64806  
+Comment Age:     11 hours ago  
+Timestamp:       2026-02-05T00:56:13Z  
+Score:           446 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+No, don’t ban a medicine saving the lives of morbidly obese people. It’s not the faults of the people who use it correctly under the supervision of a reputable a doctor. Unless the doctor is being bribed no reputable doctor would give it to a non diabetic with a healthy BMI. To ban things because celebs with eating disorders are getting thinner is insane. Don’t punish the millions of people who are obese and finally being able to lose weight for vain rich girls who cheat the system.
+
+
