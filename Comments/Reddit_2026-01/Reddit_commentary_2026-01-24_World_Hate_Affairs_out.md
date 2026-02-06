@@ -26,6 +26,12 @@ Native English speakers, does "concrete interests" make sense to you? As in does
 > <img width="1042" height="976" alt="image" src="https://github.com/user-attachments/assets/5c02564b-5a25-488e-958e-08b927e84669" />
 > 
 > Note the reply message, "LMAO" short-message on "Russia" topic, comedy content for Reddit fandom of Putin and Trump.
+> 
+> * Year 2011: "the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. **Surkov** is at the centre of the show, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a **strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable** because it’s indefinable. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming** and Eriksonian hypnosis: types of subliminal manipulation based largely on **confusing your opponent**, first developed in the US in the 1960s. **There are countless NLP and Eriksonian training centres in Moscow**, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator." - **20 October year 2011**. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+> 
+> OPERA_A "the stage is constantly changing" - **20 October year 2011** https://www.youtube.com/watch?v=AJm6-ZhK00o LYRICS: "Knee deep in the hoopla, sinking in your fight"; "Marconi plays the mamba, listen to the radio, don't you remember?"; "they're always changing corporation names! We just want to dance here, someone stole the stage"... 115,317 views March 6, 2020
+> 
+> Social post { https://MidWest.Social/post/43000469 }
 >
 
 
@@ -3584,3 +3590,5938 @@ This is [r/law](/r/law) so I’ll try to set my “Fuck Trump” glasses off to 
 > :::::: Analysis_Thoughts Commentary: ======  
 > Impressions and superficial high-speed information glances are what people on Reddit seek. QAnon "Q" drops, information strip tease. If people wanted to reform and have honest sincere leaders, Malala and Dr. Bandy X Lee would be far more important and repeating topics. A lot of what is going on is ***information systems feedback loops*** of anonymous tips and theories feeding into government and back out to public.
 >
+
+
+=============
+  
+## Reddit comment o35mgza
+
+    entry 130
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qtv7h1/the_world_is_trying_to_log_off_us_tech/o35mgza/  
+Comment ID:      o35mgza  
+Author:          bernieth  
+Bio:               
+Account Created: 2023-09-06T15:22:49Z  
+Link Karma:      39  
+Comment Karma:   6506  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-02T13:59:53Z  
+Score:           750 points  
+Post Title:      The world is trying to log off U.S. tech  
+:::::: Reddit User Comment: ======  
+All of the billionaires who were all\-in for Trump may not regret the loss of rule of law, the corruption, the attacks on the vulnerable, the attacks on our allies. But they are going to regret losing the world's markets.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> All the commenting creators on Reddit comment section... **will likely never realize they avoided promoting Neil Postman's** nonfiction, Dr. Bandy X Lee's nonfiction over and over until the cult problems were front and center in USA. We The People, the Reddit small-time user, did not stand up for over 10 years. Tech addictions to mocking high-speed TCP/IP media of Reddit wrecked the USA.
+> 
+> * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+>
+
+
+=============
+  
+## Reddit comment o35l9qw
+
+    entry 131
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qtv7h1/the_world_is_trying_to_log_off_us_tech/o35l9qw/  
+Comment ID:      o35l9qw  
+Author:          EasterEggArt  
+Bio:               
+Account Created: 2025-03-30T16:26:31Z  
+Link Karma:      2779  
+Comment Karma:   80249  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-02T13:53:15Z  
+Score:           230 points  
+Post Title:      The world is trying to log off U.S. tech  
+:::::: Reddit User Comment: ======  
+Maybe don't have the US president casually mention he could order all US military tech to be shut down remotely (I think he mentioned it first in his presidency) and have Microsoft admit they could disable all their tech in Europe....... (recently)
+
+Then again, we do live in the age of the Reverse Midas touched Orange.
+
+Now that the unspoken taboo has been spoken out loud, naturally most nation blocks will try and disconnect themselves for their own good and protection. Makes logical sense. Trump did what Trump does best, ruin businesses. Europe will decouple and never come back until fascism is dealt with in the US.
+
+Edit for clarification: I genuinely doubt that Europe will blindly embrace US tech anytime soon again. We are moving more and more into European alternatives and that will become entrenched. The economic concept of "first mover" in tech will die out now that we have had tech reliance for too long and shown the dangers of it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 10 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o35oe2r
+
+    entry 132
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35oe2r/  
+Comment ID:      o35oe2r  
+Author:          Dx_Suss  
+Bio:               
+Account Created: 2021-01-21T22:54:17Z  
+Link Karma:      7335  
+Comment Karma:   26771  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-02T14:10:26Z  
+Score:           1624 points  
+Post Title:      Petah?  
+:::::: Reddit User Comment: ======  
+I would add to this that JK Rowlings name appears as a correspondent in Jeffey Epsteins emails \- I would imagine this adds colour to the implication.
+
+Edit: I would like to remind everyone replying what sub they are in
+
+
+
+
+=============
+  
+## Reddit comment o35r8rd
+
+    entry 133
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35r8rd/  
+Comment ID:      o35r8rd  
+Author:          bornfromjets03  
+Bio:             John Bob : Just another car guy on the internet.   
+Account Created: 2019-08-04T14:17:00Z  
+Link Karma:      1016  
+Comment Karma:   3350  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-02T14:25:45Z  
+Score:           406 points  
+Post Title:      Petah?  
+:::::: Reddit User Comment: ======  
+I’m abandoning my career to start a new career as a wood chipper operator
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> why not devote yourself to being a Malala quote creator on GitHub and other media platforms... instead, hate inspires hate. Hate vs. hate, hate harder messaging on Reddit. Machine lovers of wood chippers. The problem is our content Hollywood film empire, the child trafficking of little girls for Harry Potter.
+>
+
+
+=============
+  
+## Reddit comment o35w6d1
+
+    entry 134
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qtv7i1/petah/o35w6d1/  
+Comment ID:      o35w6d1  
+Author:          thecarolinelinnae  
+Bio:             tcl : When life gives you shit, you make kool-aid.  
+Account Created: 2011-04-16T22:15:32Z  
+Link Karma:      28564  
+Comment Karma:   104635  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-02T14:51:38Z  
+Score:           288 points  
+Post Title:      Petah?  
+:::::: Reddit User Comment: ======  
+Omfg I would be fucking terrified. Her expression says "someone help me."
+
+That is the face of a young woman (19\) who is being touched without consent in a way that makes her extremely uncomfortable in a situation where she feels societal pressure to not make a scene and will have to laugh it off while she internally screams and wants nothing more than to escape.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Hollywood is image trafficking for audiences.
+>
+
+
+=============
+  
+## Reddit comment o36nqjz
+
+    entry 135
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qu0fkp/no_that_is_not_your_job_say_critics_after_schumer/o36nqjz/  
+Comment ID:      o36nqjz  
+Author:          Wonderful-Variation  
+Bio:             Wonderful Variation :   
+Account Created: 2020-01-18T20:36:04Z  
+Link Karma:      39201  
+Comment Karma:   332617  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-02T17:02:00Z  
+Score:           793 points  
+Post Title:      'No, That Is Not Your Job,' Say Critics After Schumer Claims 'Job' Is to 'Fight for Aid to Israel' “Seventy-five percent of Democratic voters oppose sending Israel more military aid, as do 66% of independents and 60% of Americans overall,” noted one domestic policy expert.  
+:::::: Reddit User Comment: ======  
+You know, Ukraine probably could have actually won its war if all the money/weapons/ammunition that were sent to Israel over the course of the past 3 years were automatically sent to Ukraine instead.
+
+At bare minimum, they would be in a much stronger position.
+
+
+
+
+=============
+  
+## Reddit comment o36r2ih
+
+    entry 136
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qu0fkp/no_that_is_not_your_job_say_critics_after_schumer/o36r2ih/  
+Comment ID:      o36r2ih  
+Author:          Able-Vermicelli-5811  
+Bio:               
+Account Created: 2023-10-13T13:25:39Z  
+Link Karma:      16  
+Comment Karma:   11324  
+Comment Age:     16 hours ago  
+Timestamp:       2026-02-02T17:17:41Z  
+Score:           171 points  
+Post Title:      'No, That Is Not Your Job,' Say Critics After Schumer Claims 'Job' Is to 'Fight for Aid to Israel' “Seventy-five percent of Democratic voters oppose sending Israel more military aid, as do 66% of independents and 60% of Americans overall,” noted one domestic policy expert.  
+:::::: Reddit User Comment: ======  
+What did Schumer do that Israel knows and we don’t? That should be the question everyone is asking themselves here. Why are our politicians so deeply devoted to Israel? What dirt does the Israeli government have on these people that they’re openly defying the will of their constituents? 
+
+As a reminder, Schumer \- YOU WORK FOR US,
+MOTHERFUCKER.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Science fiction popularity. The science fiction trilogy { Torah, Bible, Quran, Book of Mormon, etc } is incredibly popular. Very famous locations for these stories.
+>
+
+
+=============
+  
+## Reddit comment o35qf74
+
+    entry 137
+
+Comment URL: https://old.reddit.com/r/WorkReform/comments/1qtw3sn/if_cuck_schumer_put_even_half_the_effort_into/o35qf74/  
+Comment ID:      o35qf74  
+Author:          gentleman_bronco  
+Bio:               
+Account Created: 2014-06-07T23:31:00Z  
+Link Karma:      100958  
+Comment Karma:   679063  
+Comment Age:     19 hours ago  
+Timestamp:       2026-02-02T14:21:24Z  
+Score:           949 points  
+Post Title:      If Cuck Schumer put even HALF the effort into helping Americans as he does into helping Israel, Dems would have a 90 seat majority & we’d have Medicare For All.  
+:::::: Reddit User Comment: ======  
+It's stomach churning that our tax dollars are literally going to help fund Israel's healthcare \- including women's healthcare where abortions are legal \& free, free education, free childcare, *and* the colonization of Palestine.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Labor and money, especially people using social media, should be directed towards Malala's education and teaching so people GRASP the values of terrorism in Palestine. We need to reform the terrorist clergy systems in the 3 Levant religions.
+> 
+> * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+>
+
+
+=============
+  
+## Reddit comment o3clb51
+
+    entry 138
+
+Comment URL: https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/o3clb51/  
+Comment ID:      o3clb51  
+Author:          PossessedToSkate  
+Bio:               
+Account Created: 2013-01-04T22:10:15Z  
+Link Karma:      7836  
+Comment Karma:   201604  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:48:26Z  
+Score:           1154 points  
+Post Title:      Athletes need to stop thanking God  
+:::::: Reddit User Comment: ======  
+I'd like to see a pro athlete *blame* god after a loss.
+
+"We were in the game until Jesus made me fumble."
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Blame God for an earthquake. Blame god for COVID-2019 deaths.
+>
+
+
+=============
+  
+## Reddit comment o3cs2i2
+
+    entry 139
+
+Comment URL: https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/o3cs2i2/  
+Comment ID:      o3cs2i2  
+Author:          yaybunz  
+Bio:             slim 💜 : just looping :)  
+Account Created: 2018-06-19T23:56:09Z  
+Link Karma:      25570  
+Comment Karma:   95837  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-03T15:22:05Z  
+Score:           129 points  
+Post Title:      Athletes need to stop thanking God  
+:::::: Reddit User Comment: ======  
+my mom says the same thing about people saying god "saved them." so god picks and chooses who dies in a tsunami based on who believes in him? what a petty little god.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> God hates some people, the prayers people do to death-wish others. I've seen so many prayers to death-wish Trump from science fiction Bible believers in USA. I want WE THE PEOPLE, human beings, every person age 12 and over voter or non-voter, to STAND UP and teach scientist Dr. Bandy X Lee's public education about Trump mental health to hundreds of millions of media cultists of { Fox News HDTV, Twitter Social, Reddit Social, Truth Social, Facebook, Newsmax HDTV, etc }. Dr. Bandy X Lee is leading but people need to promote, quote her books, follow!
+>
+
+
+=============
+  
+## Reddit comment o3cjavz
+
+    entry 140
+
+Comment URL: https://old.reddit.com/r/StandUpComedy/comments/1quss99/athletes_need_to_stop_thanking_god/o3cjavz/  
+Comment ID:      o3cjavz  
+Author:          40kmaniacs  
+Bio:               
+Account Created: 2025-10-22T15:58:19Z  
+Link Karma:      1  
+Comment Karma:   12468  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:37:59Z  
+Score:           61 points  
+Post Title:      Athletes need to stop thanking God  
+:::::: Reddit User Comment: ======  
+I remember Carlin basically doing this bit like 30 years ago
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And if we quoted it every day since June 16, 2015 and revived the message of comprehension and understanding of Bible verse "1 John 4:20" crises. You have not SEEN Jesus, it is WRONG to say "I Love Jesus" - it's all there in Bible verse "1 John 4:20". We all should have been repeating and sharing George Carlin until every person grasped the concept!
+>
+
+
+=============
+  
+## Reddit comment o3cjlcw
+
+    entry 141
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjlcw/  
+Comment ID:      o3cjlcw  
+Author:          BarbequedYeti  
+Bio:               
+Account Created: 2016-07-24T19:08:13Z  
+Link Karma:      436  
+Comment Karma:   573133  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:39:30Z  
+Score:           1070 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Didnt know he was part of the 90's tribal armband group. Didnt think i could like him any less. I was wrong.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World Sex Hate Affairs
+>
+
+
+=============
+  
+## Reddit comment o3cldan
+
+    entry 142
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cldan/  
+Comment ID:      o3cldan  
+Author:          Pale_Fire21  
+Bio:             Pale Fire : The old world is dying and the new one struggles to be born.  
+Account Created: 2019-02-22T09:57:34Z  
+Link Karma:      10465  
+Comment Karma:   354895  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:48:44Z  
+Score:           2210 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Now do a report on his lengthy and well documented ties to Israel
+
+Here is a 2 hour deep dive with FriendlyJordies an independent journalist with an actual spine who’s survived attempts on his life over his reporting on corruption and refusal to leave the families that run organized crime in NSW alone to the point they firebombed his house
+
+[https://youtu.be/HpNM4KxhQeE?si\=8jZwr4tUd4wc3O8P](https://youtu.be/HpNM4KxhQeE?si=8jZwr4tUd4wc3O8P)
+
+Edit: I tried to post this video to </r/videos> and it was immediately removed with no reason given.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Saturday October 7, 2023 is Putin's Birthday in Palestine. Look it up! https://TheHill.com/opinion/international/4250708-putins-fingerprints-are-on-hamas/ - World hate Affairs. Anti-Malala Palestine, Anti-Malala Israel, hate for hate vs. hate clergy out-group teachings in the Levant.
+>
+
+
+=============
+  
+## Reddit comment o3ch44w
+
+    entry 143
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3ch44w/  
+Comment ID:      o3ch44w  
+Author:          dddoug  
+Bio:               
+Account Created: 2010-09-02T10:43:35Z  
+Link Karma:      1762  
+Comment Karma:   14919  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:26:23Z  
+Score:           438 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Posted by the sun (trash UK rag) 
+
+Historical publisher of underage girls
+
+
+
+
+=============
+  
+## Reddit comment o3cl59o
+
+    entry 144
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cl59o/  
+Comment ID:      o3cl59o  
+Author:          Keypenpad  
+Bio:               
+Account Created: 2016-03-06T12:38:41Z  
+Link Karma:      3962  
+Comment Karma:   76272  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:47:35Z  
+Score:           416 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+So we're just going to ignore his much deeper connection to Israel?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People need to address the population wide, age 12 to age 120, not just Republicans - mental health issues. The aftermath behavioral and mindset issues of Cambridge Analytica psychologists. We The People need to deal with the MAGA cults, Fox News HDTV cults, Newsmax cults, Twitter social cults, Truth Social media cultists, etc. NOW! Dr. Bandy X Lee should be getting constant attention and quotes on every media plaform, NOW!!!
+>
+
+
+=============
+  
+## Reddit comment o3cnlrb
+
+    entry 145
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cnlrb/  
+Comment ID:      o3cnlrb  
+Author:          seriousbangs  
+Bio:               
+Account Created: 2017-03-29T03:35:55Z  
+Link Karma:      3994  
+Comment Karma:   400787  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T15:00:03Z  
+Score:           86 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Putin has the Epstein files and they implicate Trump
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People need to be drawing timelines. FAQ, Wiki systems, this GitHub project, etc. Private jet, **Trump in Moscow on November 8, 2013** for sexual performances show, leading women in front of cameras for power and wealth concentration! Anti-love "girls just for sex" anti-compassion media event. Moscow. November 8, 2013.
+>
+
+
+=============
+  
+## Reddit comment o3cxoh0
+
+    entry 146
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cxoh0/  
+Comment ID:      o3cxoh0  
+Author:          Killer-Iguana  
+Bio:             Killer Iguana : Transplanted American,
+
+Gaming, Cats, Politics  
+Account Created: 2023-10-27T12:53:45Z  
+Link Karma:      42  
+Comment Karma:   4186  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-03T15:48:51Z  
+Score:           59 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Oh shit, so he WAS a Russian asset AND and Israeli asset. Dude was playing the field!
+
+
+
+
+=============
+  
+## Reddit comment o3cl60x
+
+    entry 147
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cl60x/  
+Comment ID:      o3cl60x  
+Author:          SWatersmith  
+Bio:             finance/software  
+Account Created: 2013-05-25T08:00:26Z  
+Link Karma:      58384  
+Comment Karma:   161072  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:47:43Z  
+Score:           150 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Odd that they go through the effort of making this link before the much more obvious link between Epstein and Israel/Mossad. We live in a farcical country.
+
+
+
+
+=============
+  
+## Reddit comment o3dmdmf
+
+    entry 148
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dmdmf/  
+Comment ID:      o3dmdmf  
+Author:          Truth-is-implacable  
+Bio:               
+Account Created: 2025-08-04T14:46:37Z  
+Link Karma:      1  
+Comment Karma:   2739  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-03T17:43:35Z  
+Score:           10 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Well there's the missing link of Trump Russia connection ....Treason i should say.....
+
+
+
+
+=============
+  
+## Reddit comment o3dgnj9
+
+    entry 149
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dgnj9/  
+Comment ID:      o3dgnj9  
+Author:          The_Party_Wizard  
+Bio:               
+Account Created: 2016-03-17T06:00:13Z  
+Link Karma:      392  
+Comment Karma:   2355  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-03T17:17:17Z  
+Score:           11 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+This comment section is fucking cooked.
+
+
+
+
+=============
+  
+## Reddit comment o3d30n0
+
+    entry 150
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3d30n0/  
+Comment ID:      o3d30n0  
+Author:          Jimmyg100  
+Bio:               
+Account Created: 2012-09-28T01:29:46Z  
+Link Karma:      33634  
+Comment Karma:   506546  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-03T16:14:06Z  
+Score:           9 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+I feel like there was some allegation about Trump and Russia blackmailing him with videos of Russian girls... jeez wild coincidence, right?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump was PARADING girls to dominate them in front of Cameras in Moscow on November 8, 2013! Wake the fuck up USA, he does his domination WITH THE CAMERA every day! Cults of Trump images, Trump name cults, Trump bling cults all over Reddit! Study Neil Postman's 1985 book! Moscow fucking Russia, year 2013!! OPERA_A Styx, Chicago city band. https://www.youtube.com/watch?v=swVRj7NDWcg 1,272,445 views July 29, 2018 Trump LEADS with mind exploitation of males, "Alpha male" bullshit! We need to TEACH AND EDUCATE! Rock Opera!
+>
+
+
+=============
+  
+## Reddit comment o3d3tl0
+
+    entry 151
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3d3tl0/  
+Comment ID:      o3d3tl0  
+Author:          bombayblue  
+Bio:             Former management consultant, part time geopolitical analyst, full-time procrastinator. Banned from r/worldnews for explaining that Dagestan is very different than the rest of Russia.  
+Account Created: 2011-11-10T17:26:52Z  
+Link Karma:      1483  
+Comment Karma:   426149  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-03T16:17:52Z  
+Score:           30 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+It is crazy to watch this entire thread get brigaded by bots trying to redirect the conversation to Israel. Putin is mentioned 1,000 times in the emails. Moscow is mentioned 10,000 times. Epstein was literally helping every far right party in europe get funding from Russia. 
+
+The same Russian intelligence apparatus in this thread trying to redirect every conversation away from Russia.
+
+Edit: the brigading by anti Israel folks is hilarious. Yes Jeffery Epstein was connected to Israeli intelligence. Yes that’s very bad. You can criticize two things without making your entire life around deflecting Russian blame for this.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Insecurity media environment, mind wars, information warfare ground zero against USA hearts and minds. Read the comment replies on this comment...
+>
+
+
+=============
+  
+## Reddit comment o3cjwdc
+
+    entry 152
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjwdc/  
+Comment ID:      o3cjwdc  
+Author:          Asrahn  
+Bio:               
+Account Created: 2016-05-18T19:39:51Z  
+Link Karma:      5209  
+Comment Karma:   69462  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:41:06Z  
+Score:           21 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Yeah everything is the Russians, no evil is home\-grown.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Extreme tiny-short logic, one-bit thinking. Minds blown on Reddit to ignore all the evidence. Trump is just a "normal" President and this Reddit posting about Epstein is just "normal" way things were before the Internet Research Agency factually invaded Reddit. March 2, 2018 **BBC world news**, a non-USA news source. https://www.BBC.com/news/technology-43255285
+> 
+> Reddit audience does not quote nonfiction books. No FAQ, no Wiki, just tiny-short shit-commenting and shit-posting prizing from Truth Social leadership in 2026. It was not this way this severely in year 2012 and before on serious important topics. Little tiny comments that dismiss details of important understandings of information warfare out of the Kremlin; Surkov techniques.
+>
+
+
+=============
+  
+## Reddit comment o3d0cxs
+
+    entry 153
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3d0cxs/  
+Comment ID:      o3d0cxs  
+Author:          Ok-Huckleberry-3843  
+Bio:               
+Account Created: 2026-01-09T02:10:37Z  
+Link Karma:      1  
+Comment Karma:   769  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-03T16:01:29Z  
+Score:           14 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+These obvious hasbara attempts to link Epstein to Russia, when we already know he was living with a senior mossad agent and was a known israeli asset...
+Hilarious.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Israel's October 7, 2023 "intelligence failure" (bigger than 9/11) was on Putin's Birthday morning! Saturday! While children were right near the danger zone. We to believe Israel doesn't love their children? OPERA_A https://www.youtube.com/watch?v=wHylQRVN2Qs - "Russians... Love their children too?" lyrics.
+>
+
+
+=============
+  
+## Reddit comment o3cktoc
+
+    entry 154
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cktoc/  
+Comment ID:      o3cktoc  
+Author:          nomamesgueyz  
+Bio:               
+Account Created: 2024-02-15T23:56:30Z  
+Link Karma:      33730  
+Comment Karma:   122176  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:45:56Z  
+Score:           6 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+The guys business model was disturbingly successful
+
+Sick fucks
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Works on men. Instead of getting our sex issues out in public and discussing the male sexual "sex sells" business systems...
+>
+
+
+=============
+  
+## Reddit comment o3cwjez
+
+    entry 155
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cwjez/  
+Comment ID:      o3cwjez  
+Author:          Sachinism  
+Bio:               
+Account Created: 2010-01-30T21:03:32Z  
+Link Karma:      1457  
+Comment Karma:   28326  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-03T15:43:21Z  
+Score:           8 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Crazy how the British press keep banging on about Russian ties, while simultaneously ignoring all the Israeli links
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit users will not name the "Internet Research Agency". Reddit audience members will not discuss October 7, 2023 intelligence failure as Putin's birthday on a Saturday with music festival in the danger zone! British Cambridge Analytica... people on Reddit audience won't talk about MAGA being mind-fucked by doctors of Cambridge England! March 2, 2018 **BBC world news**, a non-USA news source. https://www.BBC.com/news/technology-43255285 but Reddit audiences like little Twitter-length commenting to hand-wave away serious topics instead of off-Reddit citations and serious book quotes.
+> 
+> * "**Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета".
+> Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.** Затем.. положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому."; " **Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети.** И мы стали искать тех, кто справился бы с этой задачей лучше других." - gloating on Facebook by Константин Рыков
+>
+
+
+=============
+  
+## Reddit comment o3drjr7
+
+    entry 156
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3drjr7/  
+Comment ID:      o3drjr7  
+Author:          bordumb  
+Bio:             bordumb : Dude from a place.
+  
+Account Created: 2012-01-16T05:08:24Z  
+Link Karma:      129  
+Comment Karma:   31368  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-03T18:06:53Z  
+Score:           2 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+It’s odd that being in the Epstein files would have such a hold over anybody.
+
+I obviously can’t speak for psychopathic rapists, but…
+
+If I knew I was implicated in something, I’d probably just fess up, take the charge, and live in jail for the rest of my life.
+
+I don’t see why it’s such a big deal to just own up to what you did.
+
+But of course, I am just a normal, non\-narcissistic person talking.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We The People, Reddit social, Bluesky social, need to be teaching remedial morality lessons to every person. MAGA and Trump are the evidence. Our clergy can't find Bible verse "1 John 3:17" and teach it on social media and at Church buildings. We need to, we need to rescue We The People. https://github.com/RocketDerp/April14_2025/tree/working/Art/ScreenPlay/Remedial_Morality
+>
+
+
+=============
+  
+## Reddit comment o3cjb40
+
+    entry 157
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjb40/  
+Comment ID:      o3cjb40  
+Author:          sambull  
+Bio:               
+Account Created: 2014-11-12T15:35:57Z  
+Link Karma:      185  
+Comment Karma:   386226  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:38:00Z  
+Score:           16 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+lol... nice try 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "LOL", laugh track for Reddit audience. Extreme tiny-short Elon Musk Twitter messaging patterns. Blows the Reddit audience mindsets into meme stupors.
+>
+
+
+=============
+  
+## Reddit comment o3dbsj0
+
+    entry 158
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3dbsj0/  
+Comment ID:      o3dbsj0  
+Author:          f4flake  
+Bio:               
+Account Created: 2014-02-06T14:48:15Z  
+Link Karma:      14  
+Comment Karma:   4346  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-03T16:54:44Z  
+Score:           6 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+Murdoch's Sun newspaper not willing to talk about Epstein and Mossad?
+Murdoch who has interests in Genie Energy and off shore gas in Palastinian territories doesn't want to talk about Israel?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> How come Reddit fandom to Epstein is not wanting to teach Rupert Murdoch brainwashing methods and make Jen Senko world famous via Reddit commenting and postings? Why is this nonfiction film not being mentioned day and night on Reddit until everyone is on the same page for mental health brainwashing MAGA crisis topics? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Why isn't there a mental health crisis uprising to do cult deprogramming on Reddit? Reddit audience members have all the symptoms of being in an information media cult to Epstein topics.
+>
+
+
+=============
+  
+## Reddit comment o3cjafj
+
+    entry 159
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qut3rh/jeffrey_epsteins_links_to_putin_revealed_with/o3cjafj/  
+Comment ID:      o3cjafj  
+Author:          cgentry02  
+Bio:               
+Account Created: 2010-07-22T18:15:46Z  
+Link Karma:      1492  
+Comment Karma:   29401  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-03T14:37:55Z  
+Score:           5 points  
+Post Title:      Jeffrey Epstein’s links to Putin revealed with Russian girls in ‘world’s largest honeytrap’ for KGB  
+:::::: Reddit User Comment: ======  
+People paying attention have only known this since 2017\.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> But most people are paying attention to video games, sports gaming, sports stars, celebrity star Donald Trump, Reality TV garbage, Fox News HDTV, fiction storytelling. Reddit needs to be making FAQ and Wiki systems of PRIORITY topics since year 2015... not just making it an egoism contents (dick measuring of 1 person knows more than others) that 1 out of 100 people knows more. **Critical learning for adults needs to be COMMUNITY ORGANIZED in F.A.Q. of IMPORTANT TOPICS!**
+>
+
+
+=============
+  
+## Reddit comment o3e6mcz
+
+    entry 160
+
+Comment URL: https://old.reddit.com/r/Damnthatsinteresting/comments/1qv11zi/karen_mulder_tried_to_warn_everyone_about_similar/o3e6mcz/  
+Comment ID:      o3e6mcz  
+Author:          MagpieKaz  
+Bio:               
+Account Created: 2020-10-24T04:57:05Z  
+Link Karma:      9324  
+Comment Karma:   50254  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-03T19:15:01Z  
+Score:           2841 points  
+Post Title:      Karen Mulder tried to warn everyone about similar Epstein rings and no one listened.  
+:::::: Reddit User Comment: ======  
+Y'all should read about Natacha Jaitt. She was also a model and actress who blew the whistle on a pedophile ring in a soccer club in Argentina, where basically the men in power would rape and prostitute the kids that had hopes of becoming pro players one day, many times with the knowledge of their parents.
+
+Natacha said she knew her life was now in danger, very publicly denounced that she was NOT intended on committing suicide, said she'd been sober and clear from drugs for a long time, and that she would NOT be overdosing. She said, and I quote, "when you find my body, remember it was not me, I didn't commit suicide, I didn't OD."
+
+Guess how they found her body.
+
+And ever since, I haven't really seen anyone talking about the scandal.
+
+Edited to add: this was way more recent, btw. Natacha was murdered in 2019\.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Children are sports entertainment fodder to so many audience cults to sports games.
+>
+
+
+=============
+  
+## Reddit comment o3e59c1
+
+    entry 161
+
+Comment URL: https://old.reddit.com/r/Damnthatsinteresting/comments/1qv11zi/karen_mulder_tried_to_warn_everyone_about_similar/o3e59c1/  
+Comment ID:      o3e59c1  
+Author:          cool_uniqueusername  
+Bio:               
+Account Created: 2022-11-08T06:51:26Z  
+Link Karma:      14145  
+Comment Karma:   2880  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-03T19:08:41Z  
+Score:           962 points  
+Post Title:      Karen Mulder tried to warn everyone about similar Epstein rings and no one listened.  
+:::::: Reddit User Comment: ======  
+On 31 October 2001, 90s supermodel Karen Mulder was interviewed on a France show in front of a live studio audience. During the show's taping, Mulder claimed that various people had raped her, including police officers, politicians, members of her former agency Elite Model Management, and Albert II, Prince of Monaco.
+
+The producers of the show did not broadcast the interview, and the recording was erased. Her parents blamed her troubles on drugs.
+
+Days later, Mulder repeated her allegations, this time to a weekly magazine in an interview conducted in her Paris apartment. Within hours of the interview, her sister Saskia arrived and took her to Villa Montsouris, a psychiatric hospital specializing in such disorders as depression, anxiety, and delirium, where she stayed for five months. The stay reportedly was paid for by Elite models president Gérald Marie, her employer and one of the accused.
+
+It came after the BBC caught Marie on hidden camera trying to give a 15\-year\-old model £300 for sex, and bragging about Elite Model Look competitors he would sleep with that year.
+
+<https://en.wikipedia.org/wiki/Karen_Mulder>
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We have a global problem of men's clergy, men religion, men Daddy figure Jesus, men daddy figure Allah, men daddy figure Yahweh. Instead of listening to Malala and reworking education since her 2013 book, we promote Elon Musk and Donald Trump and Rupert Murdoch values to children since 2013.
+> 
+> * "They say more about Deuteronomy than about women. The Hebrews were absolutely ruthless with respect to their neighbors. But this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and aggression and abuse are projected outward on others. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy. Now, **today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression?** This is a problem that the world is going to, have to face—because aggression is a natural instinct just as much as, and more immediate than, compassion, and it is always going to be there. It’s a biological fact. Of course, in biblical times, when the Hebrews came in, they really wiped out the Goddess. The term for the Canaanite goddess that’s used in the Old Testament is “the Abomination.” Apparently, throughout the period represented in the Book of Kings, for example, there was a back and forth between the two cults. Many of the Hebrew kings were condemned in the Old Testament for having worshiped on the mountaintops. Those mountains were symbols of the Goddess. And there was a very strong accent against the Goddess in the Hebrew, which you do not find in the Indo-European mythologies. Here you have Zeus marrying the Goddess, and then the two play together. So it’s an extreme case that we have in the Bible, and our **own Western subjugation of the female is a function of biblical thinking**." - 1988 book, "Power of Myth"
+>
+
+
+=============
+  
+## Reddit comment o3dkkzk
+
+    entry 162
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1quy8rr/murphy_a_uae_investor_secretly_gave_trump_187/o3dkkzk/  
+Comment ID:      o3dkkzk  
+Author:          discardedcumrag  
+Bio:             Stars died so you could live.  
+Account Created: 2021-01-31T13:36:29Z  
+Link Karma:      35331  
+Comment Karma:   93043  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-03T17:35:23Z  
+Score:           2504 points  
+Post Title:      Murphy: A UAE investor secretly gave Trump $187 million and his top Middle East envoy $31 million. And then Trump gave that investor access to sensitive defense technology that broke decades of national security precedent. Brazen, open corruption. And we shouldn't pretend it's normal  
+:::::: Reddit User Comment: ======  
+Is this not Treason?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Is this low-effort commenting on Reddit? Is this a way to get social media engagement and not actually organize? Is this a simulation of resisting by commenting on Reddit and not organizing critical topics and education of cult deprogramming to face MAGA people by the hundreds of millions...
+>
+
+
+=============
+  
+## Reddit comment o3dqhh4
+
+    entry 163
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1quy8rr/murphy_a_uae_investor_secretly_gave_trump_187/o3dqhh4/  
+Comment ID:      o3dqhh4  
+Author:          NobodyImportant13  
+Bio:               
+Account Created: 2013-11-18T01:14:49Z  
+Link Karma:      816  
+Comment Karma:   94470  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-03T18:02:06Z  
+Score:           154 points  
+Post Title:      Murphy: A UAE investor secretly gave Trump $187 million and his top Middle East envoy $31 million. And then Trump gave that investor access to sensitive defense technology that broke decades of national security precedent. Brazen, open corruption. And we shouldn't pretend it's normal  
+:::::: Reddit User Comment: ======  
+Conservatives control the media and nearly all public discourse. We have to talk about Hunter Biden's laptop for an entire year, but when it comes to hundreds of millions of dollars in fraud by the Trump family, conservatives put their hands over their ears.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Right vs left brain rot. Fiction vs. nonfiction is a more critical and urgent crisis. Trump is an entertainer and fiction storyteller that has a massive USA fandom, including Reddit fanatics for Trump hate leadership content.
+>
+
+
+=============
+  
+## Reddit comment o3hyf3c
+
+    entry 164
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3hyf3c/  
+Comment ID:      o3hyf3c  
+Author:          StrongFaithlessness5  
+Bio:             Mono geo is the way  
+Account Created: 2020-05-07T15:22:49Z  
+Link Karma:      7271  
+Comment Karma:   77276  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-04T08:38:44Z  
+Score:           774 points  
+Post Title:      ‘Investigating child sex abuse isn’t controversial. Turning it into political theater is manipulation. Maybe that logic flies on some island. Doesn’t fly in France’: France rejects Musk’s charge after raid on X’s Paris office  
+:::::: Reddit User Comment: ======  
+I don't know where else to post it, but right now TikTok has started hiding specific videos only from the American users. 
+
+[https://i.imgur.com/MEhdCS1\.jpeg](https://i.imgur.com/MEhdCS1.jpeg)
+
+This is a famous Italian parody channel that makes videos regarding a lot of completely different topics, including a video about the recent you know which specific American special military corp and the Olympics situation.
+
+At some point, one of his American followers took contact with him asking why he decided to remove the video, but the point is that... the owner of the TikTok channel never did it. The video has been silently hidden only from the American users without any kind of notification. The owner would've never noticed it if it wasn't for that follower.
+
+As you already know, since 22 January 2026, American companies own 80% of the platform, which means that they can decide on their own how to control the platform just like Musk can manage X. 
+
+This was a funny and harmless video, but it really makes you wonder how many videos have been hidden so far. Are we really going to the same direction of China that is currently hiding news, pictures and videos containing specific words?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Political theater I've been calling "Information Strip Tease", the whole game of dropping "Q" drops of information an teasing who is in the secret files.
+>
+
+
+=============
+  
+## Reddit comment o3hz879
+
+    entry 165
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3hz879/  
+Comment ID:      o3hz879  
+Author:          TheLoneBlrReader  
+Bio:             Currently a leading contender to win the award ' how bored can a human get'   
+Account Created: 2025-07-13T04:20:28Z  
+Link Karma:      2075  
+Comment Karma:   11960  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-04T08:46:22Z  
+Score:           377 points  
+Post Title:      ‘Investigating child sex abuse isn’t controversial. Turning it into political theater is manipulation. Maybe that logic flies on some island. Doesn’t fly in France’: France rejects Musk’s charge after raid on X’s Paris office  
+:::::: Reddit User Comment: ======  
+finally someone has the balls to call him out.
+
+Now macron and France are gonna get the wrath of the bot army on X.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account. Short-length Twitter-thinking Tweet-logic minded. Anti-Reality on Reddit. FINALLY, someone shit-talks! Entirely blind that that is ALL people do day an night is insult and mock Trump over an over. Reddit users are BLIND to Tony Clifton performance. Trump and his orange makeup - do Reddit users truly think Trump has never heard anyone joke about his orange makeup. Yes, Reddit users actually think Trump does not grasp that people treat him differently! The fucking GULLIBILITY to Reality TV on Reddit. My god, do people need to study Neil Postman!
+> 
+> The USA population always wants more and more shit-talk and mocking. It just never ends with Trump and Musk. Always more, always more Twitter bullshit! ANYTHING but Dr. Bandy X. Lee and nonfiction serious learning and teaching of the general public on mental health and cults.
+> 
+> * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+>
+
+
+=============
+  
+## Reddit comment o3i3eb7
+
+    entry 166
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3i3eb7/  
+Comment ID:      o3i3eb7  
+Author:          Nonid  
+Bio:               
+Account Created: 2015-11-26T08:43:16Z  
+Link Karma:      3574  
+Comment Karma:   58238  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-04T09:25:58Z  
+Score:           179 points  
+Post Title:      ‘Investigating child sex abuse isn’t controversial. Turning it into political theater is manipulation. Maybe that logic flies on some island. Doesn’t fly in France’: France rejects Musk’s charge after raid on X’s Paris office  
+:::::: Reddit User Comment: ======  
+Would not change a thing. We are trash talked, mocked and insulted online litteraly all the time but since we're french, it doesn't really affect us. There's not a form of life on this universe that can shit on the french more than the french themselves.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes! Put into Best Of with some half-awake commentary.
+> 
+> <img width="1118" height="615" alt="image" src="https://github.com/user-attachments/assets/3cfd4a23-a5e4-4a8f-b19f-921bef46824e" />
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mdzt3yublk2o https://autistics.life/@RoundSparrow/116012237238927347 }
+> 
+> OPERA_A https://www.youtube.com/watch?v=jrGmcuj44DQ Overkill mockery faiths. 6,241,228 views June 7, 2008 Day after Day Trump mockery reappears. Symbolism ghosts in mass mind appear and disappear. Spell the desperation. The "cooked", cooking brains on media machines.
+>
+
+
+=============
+  
+## Reddit comment o3i9ro7
+
+    entry 167
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvj4u1/investigating_child_sex_abuse_isnt_controversial/o3i9ro7/  
+Comment ID:      o3i9ro7  
+Author:          i010011010  
+Bio:               
+Account Created: 2011-04-28T11:54:12Z  
+Link Karma:      29905  
+Comment Karma:   412020  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-04T10:25:44Z  
+Score:           14 points  
+Post Title:      ‘Investigating child sex abuse isn’t controversial. Turning it into political theater is manipulation. Maybe that logic flies on some island. Doesn’t fly in France’: France rejects Musk’s charge after raid on X’s Paris office  
+:::::: Reddit User Comment: ======  
+Flies in America too. Musk is so accustomed to the US where half the country will circle their wagons to protect pedophiles like him from justice because he has money\+connections.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People circle their wagon for fiction actors in a screenplay they love. Like fiction magical baby-daddy birth of Jesus. Trump and Musk provide fiction addiction home delivery for USA society.
+>
+
+
+=============
+  
+## Reddit comment o3hnkb0
+
+    entry 168
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hnkb0/  
+Comment ID:      o3hnkb0  
+Author:          UnchartedExplorer97  
+Bio:               
+Account Created: 2018-09-06T07:24:16Z  
+Link Karma:      479  
+Comment Karma:   14387  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T07:00:20Z  
+Score:           6756 points  
+Post Title:      Zayn Malik, Emma Thompson, Penelope Cruz, Stevie Wonder, Roger Waters and others named in Epstein emails about a group of 'anti-Israel celebrities'  
+:::::: Reddit User Comment: ======  
+I can’t imagine feeling more honoured than to be a part of that list.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The mental health of Epstein and Trump parallel my experience with the richest people in the world in Bellevue Washington. Let alone the Levant clergy, the pandemic clergy response to not have a world wide funeral and all come together in grief rituals.... sickening. How can any religion witness the Olympics and other global events and not have a pandemic funeral ritual. The grief issues are horrific.
+>
+
+
+=============
+  
+## Reddit comment o3hq70e
+
+    entry 169
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hq70e/  
+Comment ID:      o3hq70e  
+Author:          evie_b_b  
+Bio:               
+Account Created: 2018-10-06T04:17:22Z  
+Link Karma:      113  
+Comment Karma:   24719  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T07:23:13Z  
+Score:           3347 points  
+Post Title:      Zayn Malik, Emma Thompson, Penelope Cruz, Stevie Wonder, Roger Waters and others named in Epstein emails about a group of 'anti-Israel celebrities'  
+:::::: Reddit User Comment: ======  
+Zayn Malik, for tweeting \#FreePalestine as a then 21 year old.
+
+
+
+
+=============
+  
+## Reddit comment o3hnt64
+
+    entry 170
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hnt64/  
+Comment ID:      o3hnt64  
+Author:          funded_by_soros  
+Bio:               
+Account Created: 2018-11-02T03:40:56Z  
+Link Karma:      2091  
+Comment Karma:   92682  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T07:02:27Z  
+Score:           2444 points  
+Post Title:      Zayn Malik, Emma Thompson, Penelope Cruz, Stevie Wonder, Roger Waters and others named in Epstein emails about a group of 'anti-Israel celebrities'  
+:::::: Reddit User Comment: ======  
+The best imaginable endorsement of one's character.
+
+
+
+
+=============
+  
+## Reddit comment o3hpdb1
+
+    entry 171
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hpdb1/  
+Comment ID:      o3hpdb1  
+Author:          Needtorant12306  
+Bio:               
+Account Created: 2023-08-01T16:31:30Z  
+Link Karma:      13703  
+Comment Karma:   31690  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T07:15:56Z  
+Score:           2170 points  
+Post Title:      Zayn Malik, Emma Thompson, Penelope Cruz, Stevie Wonder, Roger Waters and others named in Epstein emails about a group of 'anti-Israel celebrities'  
+:::::: Reddit User Comment: ======  
+This was in 2014 as well… people want to act like this all started in 2023\.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Year 2014. Malala's book was published October 8, 2013 about terrorism in Islamic clergy systems. Of course, people shit upon and mock world peace. Too boring for the fandoms of hate and fandoms of Epstein leadership men over women. Allah the male domination ruler science fiction societies.
+>
+
+
+=============
+  
+## Reddit comment o3hq8wz
+
+    entry 172
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qvh7py/zayn_malik_emma_thompson_penelope_cruz_stevie/o3hq8wz/  
+Comment ID:      o3hq8wz  
+Author:          springxpeach  
+Bio:               
+Account Created: 2017-12-26T16:38:59Z  
+Link Karma:      218  
+Comment Karma:   109276  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T07:23:41Z  
+Score:           131 points  
+Post Title:      Zayn Malik, Emma Thompson, Penelope Cruz, Stevie Wonder, Roger Waters and others named in Epstein emails about a group of 'anti-Israel celebrities'  
+:::::: Reddit User Comment: ======  
+Lmao I started reading the headline and got worried but then I read the ending and felt an extreme sense of pride. Good for them!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> To understand Twitter-length thinking and Trumpism Tweet-thinking society, understand how many comments on this posting teat a posting title as clicbait life story. Why everything is TLDR condensed clickbait Trump world. This post is full of comments like this one declaring an entire lifetime of emotional experience in an advertisement clickbait title.
+> 
+> * "In any case, the current political structures are way behind this curve. They don’t understand it well at all in spite of all the talk about “The Selling of the President“. That’s very old fashioned, we all have lived with advertising for years. What we haven’t lived with are **ads that have more narrative structure and meaning than the programs**, and I’ll mention a few of those because I think they’re interesting. The current McDonalds ads that kind of tell a part of your life story in like a two and a half minute ad. It’s like from when you get married and when you have your grandkids until you die. You get that two and a half minutes and then there is a McDonalds thing, like “Good; I was born, I had kids, I died, and in the meantime I got a Big Mac”. I mean this is sort of “Gone With the Wind” condensed into a short version. **It’s fast, it’s hyperreal,** and in the meantime you at least got a Big Mac. You know, you never will have to be hungry again, you know, reproduced to infinity over and over on videotape. Change the Laserdisc, you can watch Scarlett O’Hara. I said that a million times, if we had the technology right now to do it we could just have Scarlett back there screaming about terror while I am doing this. In any case, ah, **if Baudrillard is even onto something**, what the postmodern trajectory means is that the self is not under siege, it’s lost. It’s just lost. And if that’s true then all of the strategies by which ordinary people try to live decent good lives are lost along with it. I am not necessarily going to buy that right away, I am really not. I do think that **the new, ah, technologies are going to call forth**… I mean this is why the title of this course has been “The Self Under Siege”. If I didn’t think it was a real, virulent technological siege and just some thought up philosopher’s dream, which would not have interested me. I mean, I have no interest in that." - Texan Rick Roderick, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+>
+
+
+=============
+  
+## Reddit comment o3iqhew
+
+    entry 173
+
+Comment URL: https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3iqhew/  
+Comment ID:      o3iqhew  
+Author:          hunt35744  
+Bio:               
+Account Created: 2020-10-05T17:43:03Z  
+Link Karma:      1885  
+Comment Karma:   41209  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T12:38:44Z  
+Score:           3595 points  
+Post Title:      Bill Gates denies allegations in new Epstein files release  
+:::::: Reddit User Comment: ======  
+Well that’s that guys, guess he’s innocent
+
+
+
+
+=============
+  
+## Reddit comment o3is5lc
+
+    entry 174
+
+Comment URL: https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3is5lc/  
+Comment ID:      o3is5lc  
+Author:          Bleakwind  
+Bio:               
+Account Created: 2015-05-19T18:04:23Z  
+Link Karma:      845  
+Comment Karma:   47681  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T12:49:36Z  
+Score:           832 points  
+Post Title:      Bill Gates denies allegations in new Epstein files release  
+:::::: Reddit User Comment: ======  
+Bill gates reputation throughout his year.
+
+A cold, heartless, brutal business ass who crush smaller firms to make billions.
+
+A reforming philanthropist spending billions in Africa, solving or helping big issues, plan to donating billions more.
+
+Now a sex fiend, a predator
+
+
+
+
+=============
+  
+## Reddit comment o3ir39e
+
+    entry 175
+
+Comment URL: https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3ir39e/  
+Comment ID:      o3ir39e  
+Author:          Capital-Control308  
+Bio:               
+Account Created: 2023-08-27T22:34:21Z  
+Link Karma:      99  
+Comment Karma:   1363  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T12:42:47Z  
+Score:           512 points  
+Post Title:      Bill Gates denies allegations in new Epstein files release  
+:::::: Reddit User Comment: ======  
+Bill Gates is a legendary Poon Hound. He has sent inappropriate messages to his female colleagues and had a lot of affairs. His wife was very disturbed about his friendship with Ebstein
+
+
+
+
+=============
+  
+## Reddit comment o3is270
+
+    entry 176
+
+Comment URL: https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3is270/  
+Comment ID:      o3is270  
+Author:          oiseaua20  
+Bio:             Ebb and flow  
+Account Created: 2021-01-06T20:13:00Z  
+Link Karma:      898  
+Comment Karma:   29466  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T12:49:00Z  
+Score:           248 points  
+Post Title:      Bill Gates denies allegations in new Epstein files release  
+:::::: Reddit User Comment: ======  
+Ah, the classic 'accidental billionaire' defense: staying in touch for years with a known predator and then acting like it was as unavoidable as a forced Windows update.
+
+
+
+
+=============
+  
+## Reddit comment o3ixazl
+
+    entry 177
+
+Comment URL: https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3ixazl/  
+Comment ID:      o3ixazl  
+Author:          TeeDee144  
+Bio:               
+Account Created: 2024-01-09T12:42:53Z  
+Link Karma:      698  
+Comment Karma:   41289  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T13:20:53Z  
+Score:           36 points  
+Post Title:      Bill Gates denies allegations in new Epstein files release  
+:::::: Reddit User Comment: ======  
+News: allegedly guilty man who is allegedly mentioned 2,000\+ times in Epstein files and has allegedly had multiple Microsoft former employees come out and allegedly say he had sex with them (while he was married), claims he is innocent.
+
+IMO, bro is not a kiddie fucker. I don’t think he fucked kids. But I do think he used his position of power to have sex with employees and also had sex with prostitutes who were part of human trafficking.
+
+History should not look kindly on bill gates. He has zero remorse and zero intention of admitting fault.
+
+BUT, DONT LET THIS DISTRACT YOU THAT TRUMP IS ALLEGEDLY MENTIONED 38,000 TIMES. RELEASE THE FILES
+
+
+
+
+=============
+  
+## Reddit comment o3j1sqp
+
+    entry 178
+
+Comment URL: https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3j1sqp/  
+Comment ID:      o3j1sqp  
+Author:          BlackWindBears  
+Bio:               
+Account Created: 2014-11-09T05:10:22Z  
+Link Karma:      7002  
+Comment Karma:   84295  
+Comment Age:     43 minutes ago  
+Timestamp:       2026-02-04T13:46:00Z  
+Score:           None  
+Post Title:      Bill Gates denies allegations in new Epstein files release  
+:::::: Reddit User Comment: ======  
+I mean if Epstein said it in an email sent to \<checks notes\> Epstein, it must be true.
+
+After all Epstein claims, in a spelling error\-laced draft, that Bill Gates wrote him an email about it!
+
+Weird how *that* email doesn't seem to actually exist.
+
+
+
+
+=============
+  
+## Reddit comment o3iur9o
+
+    entry 179
+
+Comment URL: https://old.reddit.com/r/news/comments/1qvnegy/bill_gates_denies_allegations_in_new_epstein/o3iur9o/  
+Comment ID:      o3iur9o  
+Author:          blackvariant  
+Bio:               
+Account Created: 2012-07-10T20:55:38Z  
+Link Karma:      4195  
+Comment Karma:   25165  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T13:05:50Z  
+Score:           36 points  
+Post Title:      Bill Gates denies allegations in new Epstein files release  
+:::::: Reddit User Comment: ======  
+She admits his relationship with Epstein was a factor in the divorce. Is there anything in the files that suggests he is a pedo? Obviously being close to Epstein makes that a real possibility, but I thought his name came up regarding getting a STD from a Russian prostitute? 
+
+Epstein had thousands of business relationships with a huge range of debauchery (from clean to rape/murder). I didn't think it's entirely clear where Gates was on that spectrum.
+
+
+
+
+=============
+  
+## Reddit comment o3k2mex
+
+    entry 180
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k2mex/  
+Comment ID:      o3k2mex  
+Author:          CrispyMiner  
+Bio:             Crispy : 23yrs, amateur photographer  
+Account Created: 2015-08-27T00:58:11Z  
+Link Karma:      1410475  
+Comment Karma:   513012  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:45:47Z  
+Score:           1808 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+Notice how "underage 13\-year\-old child unable to consent" becomes "13\-year\-old party girl that was down for it"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World Hate Affairs. World Violence Film Makers.
+>
+
+
+=============
+  
+## Reddit comment o3k32pv
+
+    entry 181
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k32pv/  
+Comment ID:      o3k32pv  
+Author:          blumpk1np1e  
+Bio:               
+Account Created: 2021-09-27T17:24:15Z  
+Link Karma:      1  
+Comment Karma:   6634  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:47:53Z  
+Score:           768 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+Suddenly writing himself into a movie as a child molester makes sense
+
+
+
+
+=============
+  
+## Reddit comment o3k5mzu
+
+    entry 182
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5mzu/  
+Comment ID:      o3k5mzu  
+Author:          tr3ysap  
+Bio:             13x :   
+Account Created: 2020-06-08T04:54:54Z  
+Link Karma:      5566  
+Comment Karma:   35781  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:59:30Z  
+Score:           1118 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+the phrase “13 year old party girls” is fucking revolting
+
+
+
+
+=============
+  
+## Reddit comment o3k5bf3
+
+    entry 183
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5bf3/  
+Comment ID:      o3k5bf3  
+Author:          kaos-mantra  
+Bio:               
+Account Created: 2025-07-22T04:25:32Z  
+Link Karma:      36  
+Comment Karma:   2462  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:58:02Z  
+Score:           320 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+....Jesu I member the worst thing about him was his foot fetish, his love of using the hard N and his inexplicable hate boner for Bruce Lee
+
+
+
+
+=============
+  
+## Reddit comment o3k2uh6
+
+    entry 184
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k2uh6/  
+Comment ID:      o3k2uh6  
+Author:          4thKaosEmerald  
+Bio:               
+Account Created: 2022-06-20T17:02:56Z  
+Link Karma:      5985  
+Comment Karma:   5269  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:46:49Z  
+Score:           482 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+I don't think 13 year olds are even supposed to be sleeping with other 13 year olds wtf.
+
+
+
+
+=============
+  
+## Reddit comment o3k67t1
+
+    entry 185
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k67t1/  
+Comment ID:      o3k67t1  
+Author:          Successful-Hat-2154  
+Bio:               
+Account Created: 2021-11-02T14:15:05Z  
+Link Karma:      67329  
+Comment Karma:   147337  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T17:02:11Z  
+Score:           93 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+HOW HARD IS IT NOT TO TOUCH KIDS?! HOW?!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> How hard it is to touch nonfiction books about mental health of world leaders... https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+>
+
+
+=============
+  
+## Reddit comment o3k5apq
+
+    entry 186
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5apq/  
+Comment ID:      o3k5apq  
+Author:          Ok-Walk-8040  
+Bio:             Hidious8911 :   
+Account Created: 2022-03-07T03:34:49Z  
+Link Karma:      411  
+Comment Karma:   132585  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:57:57Z  
+Score:           213 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+Imagine wanting to say the N word on camera all the time not being your worst character trait...
+
+
+
+
+=============
+  
+## Reddit comment o3k7j4b
+
+    entry 187
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k7j4b/  
+Comment ID:      o3k7j4b  
+Author:          SoupyStain  
+Bio:               
+Account Created: 2019-12-18T04:46:31Z  
+Link Karma:      1152  
+Comment Karma:   34233  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T17:08:17Z  
+Score:           89 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+Natalie Portman defended Polanski. My beloved David Lynch did too. The amount of Hollywood people that signed the petition to exonerate the guy would surprise you.
+
+I just think that Hollywood people live in a whole different reality. Much like musicians, they are used to star struck infantile fans wanting to be with them, so they see it as normal. Musicians get away with this shit much more than actors, so many musicians even wrote on their autobiographies about hooking up with minors and nobody gives a damn because they make music.
+
+Fuck celebrity culture.
+
+
+
+
+=============
+  
+## Reddit comment o3k5pe9
+
+    entry 188
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k5pe9/  
+Comment ID:      o3k5pe9  
+Author:          originalusername1625  
+Bio:               
+Account Created: 2025-05-30T06:13:31Z  
+Link Karma:      2615  
+Comment Karma:   47628  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:59:49Z  
+Score:           171 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+[\<image\>](https://preview.redd.it/wojjs3awdihg1.jpeg?width=1206&format=pjpg&auto=webp&s=af1642dacdd8f9e382b8f53e51f86206df9ada3e)
+
+THIS JUST IN! EVERYTHING YOU LIKE SUCKS NOW! GO FUCK YOURSELF
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 8 month Reddit account
+>
+
+
+=============
+  
+## Reddit comment o3k3jk7
+
+    entry 189
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k3jk7/  
+Comment ID:      o3k3jk7  
+Author:          FlorentineBanker  
+Bio:               
+Account Created: 2025-09-22T13:45:30Z  
+Link Karma:      535  
+Comment Karma:   28131  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:50:00Z  
+Score:           293 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+Likely sex predator flees to country that protects sexual predators.
+
+
+
+
+=============
+  
+## Reddit comment o3k4fas
+
+    entry 190
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k4fas/  
+Comment ID:      o3k4fas  
+Author:          Venik489  
+Bio:               
+Account Created: 2019-09-04T15:00:50Z  
+Link Karma:      5779  
+Comment Karma:   45736  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:53:58Z  
+Score:           80 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+The implications here are not great
+
+
+
+
+=============
+  
+## Reddit comment o3k2cen
+
+    entry 191
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k2cen/  
+Comment ID:      o3k2cen  
+Author:          TheCriterionCrypt  
+Bio:             Obnoxiously obsessed with my personal Criterion Closet, which is reverently dubbed "The Criterion Crypt"
+
+Wannabe Film Critic | History Educator | Good Vibes
+
+Letterboxd
+🟠🟢🔵 - boxd.it/3iCKb  
+Account Created: 2026-01-19T16:27:27Z  
+Link Karma:      1  
+Comment Karma:   5559  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T16:44:32Z  
+Score:           257 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+There was a time in my life where I thought Quentin Tarantino was hands down the greatest director ever. 
+
+I also thought The Fast and The Furious was peak cinema.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Because violence. And having women (Kill Bill lead) adopt male violence leadership.
+>
+
+
+=============
+  
+## Reddit comment o3k6b84
+
+    entry 192
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k6b84/  
+Comment ID:      o3k6b84  
+Author:          No_Waltz3421  
+Bio:               
+Account Created: 2025-08-29T00:47:42Z  
+Link Karma:      21  
+Comment Karma:   229  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T17:02:37Z  
+Score:           65 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+Source?
+
+
+
+
+=============
+  
+## Reddit comment o3k65nj
+
+    entry 193
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k65nj/  
+Comment ID:      o3k65nj  
+Author:          arihndas  
+Bio:             ap_trash_compactor :   
+Account Created: 2019-05-26T20:34:38Z  
+Link Karma:      833  
+Comment Karma:   115036  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T17:01:54Z  
+Score:           19 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+What’s truly crazy about this is that the interview was in 2003, and the only reputable news outlet reporting on it I could find was single short piece from BBC from 2018:[https://www.bbc.com/news/entertainment\-arts\-42965100\.amp](https://www.bbc.com/news/entertainment-arts-42965100.amp)
+
+
+
+
+=============
+  
+## Reddit comment o3k82ds
+
+    entry 194
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k82ds/  
+Comment ID:      o3k82ds  
+Author:          dsmith422  
+Bio:               
+Account Created: 2011-03-24T15:40:12Z  
+Link Karma:      1  
+Comment Karma:   185806  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T17:10:44Z  
+Score:           8 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+The child in question was literally drugged by Polanski before he raped her in the ass. Tarantino is a pedoprotector.
+
+
+
+
+=============
+  
+## Reddit comment o3k6cu5
+
+    entry 195
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3k6cu5/  
+Comment ID:      o3k6cu5  
+Author:          707_demetrio  
+Bio:             Demetrio : esquerda e feminista. não gostou? só bloquear.  
+leftist and feminist. don't like it? then block me.  
+Account Created: 2018-03-07T11:50:16Z  
+Link Karma:      4976  
+Comment Karma:   15340  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-04T17:02:50Z  
+Score:           16 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+it's so good to feel vindicated for my life\-long hate for someone. always knew tarantino is a creep
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> *Hate harder* Levant values (posting screenshot Israel media empire, Torah, vs Hollywood media empire, Film). Media empire hates media empire, long tradition in Levant science fiction trilogy. { Torah, Quran, Bible, Book of Mormon, etc }
+>
+
+
+=============
+  
+## Reddit comment o3kf3ov
+
+    entry 196
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1qvtegt/favorite_hack_director_that_is_also_a_pedophile/o3kf3ov/  
+Comment ID:      o3kf3ov  
+Author:          Beaster123  
+Bio:               
+Account Created: 2013-03-06T04:10:16Z  
+Link Karma:      614  
+Comment Karma:   41767  
+Comment Age:     56 minutes ago  
+Timestamp:       2026-02-04T17:43:21Z  
+Score:           4 points  
+Post Title:      Favorite hack director that is also a pedophile  
+:::::: Reddit User Comment: ======  
+Oh those "13 year old party girls". That totally clears things up.
+
+JFC
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Israel topic in screenshot, "Jesus Christ, Fucking" JFC commenting.
+> 
+> OPERA_A My Civic Ditty. Donald F, The Don of NYC, Jewish band leader. https://www.youtube.com/watch?v=-SR48XA3hss Citizen Japanese Steam-Powered Naked Lunch Dildo. Metaphors abound. 258,992 views  December 4, 2018 
+> 
+> this comment from Reddit inspired this:    
+> Social post { https://autistics.life/@RoundSparrow/116013825319128274 https://bsky.app/profile/roundsparrow.bsky.social/post/3me2jopsons2v }
+>
+
+
+=============
+  
+## Reddit comment o3juvga
+
+    entry 198
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3juvga/  
+Comment ID:      o3juvga  
+Author:          steveareno442  
+Bio:               
+Account Created: 2018-05-22T16:20:30Z  
+Link Karma:      1546  
+Comment Karma:   2793  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-04T16:10:12Z  
+Score:           517 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+I say we sacrifice Danielle Smith and all the separatist.
+
+
+
+
+=============
+  
+## Reddit comment o3jr7dp
+
+    entry 199
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jr7dp/  
+Comment ID:      o3jr7dp  
+Author:          Xsiah  
+Bio:               
+Account Created: 2015-07-06T19:15:12Z  
+Link Karma:      12484  
+Comment Karma:   309689  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-04T15:53:21Z  
+Score:           591 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Conservatives doing damage control so that the majority of Canadians don't see the party as a bunch of traitors, but also doing it an way that doesn't require *current* members to say anything that would alienate their Trumper wannabe base.
+
+
+
+
+=============
+  
+## Reddit comment o3jzf0i
+
+    entry 200
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jzf0i/  
+Comment ID:      o3jzf0i  
+Author:          FunDog2016  
+Bio:               
+Account Created: 2016-08-31T02:52:56Z  
+Link Karma:      2662  
+Comment Karma:   92727  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-04T16:31:08Z  
+Score:           36 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Oh fuck this timeline … now I am agreeing with Harper! Dude is a leading far right figure supporting like minded nutbars around the world!
+
+
+
+
+=============
+  
+## Reddit comment o3jzhyi
+
+    entry 201
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jzhyi/  
+Comment ID:      o3jzhyi  
+Author:          Fluffy_Moose_73  
+Bio:               
+Account Created: 2025-07-08T16:35:35Z  
+Link Karma:      1976  
+Comment Karma:   53481  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-04T16:31:30Z  
+Score:           50 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Ironic considering how much of the country he sold off to the US. 
+
+
+
+
+=============
+  
+## Reddit comment o3k1hsi
+
+    entry 202
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3k1hsi/  
+Comment ID:      o3k1hsi  
+Author:          MJIsaac  
+Bio:               
+Account Created: 2019-09-19T17:06:42Z  
+Link Karma:      260  
+Comment Karma:   10334  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-04T16:40:39Z  
+Score:           123 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+He's running damage control for the Conservatives, with a secondary goal of suggesting a rationale for more right\-wing, pro\-corporate, anti\-environment policies.
+
+Note he didn't detail exactly what sort of sacrifices he thinks should be made. That's a nicely vague concept for later justifying *anything*, and for claiming any new idea the Conservatives start pushing is a 'necessary sacrifice'. 
+
+For example:
+
+* Pipelines through first nations lands without consultation
+* loosening the Canada Health Act to let provinces (like Alberta) privatise health care
+* opening up public land to more development and mining
+* subsidising oil companies to preserve 'access to strategic resources'
+
+Etc.
+
+
+
+
+=============
+  
+## Reddit comment o3jvcj7
+
+    entry 203
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvrp9l/former_canadian_pm_harper_says_canada_should_make/o3jvcj7/  
+Comment ID:      o3jvcj7  
+Author:          ROACHOR  
+Bio:               
+Account Created: 2018-10-17T15:27:55Z  
+Link Karma:      7664  
+Comment Karma:   158223  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-04T16:12:23Z  
+Score:           81 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Harper runs the IDU which backed Trump, this about\-face is bizarre
+
+
+
+
+=============
+  
+## Reddit comment o3l0qgw
+
+    entry 204
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qvwyvw/washington_post_ukraine_correspondent_lizzie/o3l0qgw/  
+Comment ID:      o3l0qgw  
+Author:          VV-40  
+Bio:               
+Account Created: 2025-02-04T02:14:20Z  
+Link Karma:      2231  
+Comment Karma:   42741  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-04T19:21:02Z  
+Score:           270 points  
+Post Title:      Washington Post Ukraine Correspondent Lizzie Johnson announces that she has been laid off in the middle of a below-freezing war zone without power, heat or running water  
+:::::: Reddit User Comment: ======  
+This is a terrific example of just how callous and selfish billionaires are. While Bezos is earning $1M an hour or whatever it is currently, he can’t even be bothered to fund WaPo through a reasonable transition. Fire many and fire now! Whatever goodwill WaPo had remaining is now gone.
+
+
+
+
+=============
+  
+## Reddit comment o3l33oy
+
+    entry 205
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qvwyvw/washington_post_ukraine_correspondent_lizzie/o3l33oy/  
+Comment ID:      o3l33oy  
+Author:          The_Harden_Trade_  
+Bio:               
+Account Created: 2016-05-18T21:08:53Z  
+Link Karma:      747  
+Comment Karma:   6179  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-04T19:32:09Z  
+Score:           67 points  
+Post Title:      Washington Post Ukraine Correspondent Lizzie Johnson announces that she has been laid off in the middle of a below-freezing war zone without power, heat or running water  
+:::::: Reddit User Comment: ======  
+Jeff Bezos is a literal caricature of an evil trillionaire magnate.
+
+
+
+
+=============
+  
+## Reddit comment o3la3wl
+
+    entry 206
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1qvwyvw/washington_post_ukraine_correspondent_lizzie/o3la3wl/  
+Comment ID:      o3la3wl  
+Author:          Old_Celebration_5950  
+Bio:             Lyranfan :   
+Account Created: 2025-11-09T06:15:24Z  
+Link Karma:      1  
+Comment Karma:   636  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-04T20:05:31Z  
+Score:           1 point  
+Post Title:      Washington Post Ukraine Correspondent Lizzie Johnson announces that she has been laid off in the middle of a below-freezing war zone without power, heat or running water  
+:::::: Reddit User Comment: ======  
+Trump said Vladimir says Hi....
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o3kb96h
+
+    entry 207
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kb96h/  
+Comment ID:      o3kb96h  
+Author:          IL1keBigButts  
+Bio:               
+Account Created: 2021-05-02T19:39:33Z  
+Link Karma:      1  
+Comment Karma:   2124  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T17:25:25Z  
+Score:           749 points  
+Post Title:      Finland's Stubb: We must admit the US is changing  
+:::::: Reddit User Comment: ======  
+The US is speedrunning towards an extreme right autocracy. 
+
+We (Europe) need to come together and push back together to protect our value and law based society.
+
+
+
+
+=============
+  
+## Reddit comment o3kjs1s
+
+    entry 208
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kjs1s/  
+Comment ID:      o3kjs1s  
+Author:          DeliciousStand372  
+Bio:               
+Account Created: 2025-03-07T04:56:14Z  
+Link Karma:      104  
+Comment Karma:   34249  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-04T18:04:34Z  
+Score:           36 points  
+Post Title:      Finland's Stubb: We must admit the US is changing  
+:::::: Reddit User Comment: ======  
+How do the Finns feel about this guy? Because I like him. Saw him on a Bloomberg interview and I've been a fan
+
+
+
+
+=============
+  
+## Reddit comment o3kha0d
+
+    entry 209
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kha0d/  
+Comment ID:      o3kha0d  
+Author:          WorldStability  
+Bio:               
+Account Created: 2022-04-20T10:17:20Z  
+Link Karma:      2475  
+Comment Karma:   313  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T17:53:13Z  
+Score:           40 points  
+Post Title:      Finland's Stubb: We must admit the US is changing  
+:::::: Reddit User Comment: ======  
+I feel the U.S. has been subverted by foreign(RSSA) and domestic(billionaires, far right) adversaries to the Constitution. This has been decades in the making with constant divisive propaganda, demoralization, and now rapid destabilization of its alliances, institutions, and economy. All democracies should safeguard against this with truth, justice, and unity.
+
+Americans must unite to defend their Constitution, uphold the rule of law, and defend free elections. It's imperative to world stability.
+
+
+
+
+=============
+  
+## Reddit comment o3kd9uq
+
+    entry 210
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kd9uq/  
+Comment ID:      o3kd9uq  
+Author:          sask357  
+Bio:               
+Account Created: 2022-02-07T23:50:24Z  
+Link Karma:      251  
+Comment Karma:   94501  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-04T17:34:53Z  
+Score:           49 points  
+Post Title:      Finland's Stubb: We must admit the US is changing  
+:::::: Reddit User Comment: ======  
+This has been clear to Canadians since Trump's first threats in 2024 to annex our country. US foreign policy has now extended to owning or controlling Greenland, Canada, Cuba, Venezuela and possibly Mexico. American values and specific policies are completely changed. It's a positive sign that European countries are making this awareness public.
+
+
+
+
+=============
+  
+## Reddit comment o3kmow7
+
+    entry 211
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qvucak/finlands_stubb_we_must_admit_the_us_is_changing/o3kmow7/  
+Comment ID:      o3kmow7  
+Author:          Curious_Party_4683  
+Bio:               
+Account Created: 2024-02-29T14:44:45Z  
+Link Karma:      1413  
+Comment Karma:   25529  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-04T18:17:43Z  
+Score:           19 points  
+Post Title:      Finland's Stubb: We must admit the US is changing  
+:::::: Reddit User Comment: ======  
+the US is being hit with propaganda and it's working exactly how Putin wants it....ripping USA from the inside out.
+
+you wanna help US? set up more bots and hit back with your own propaganda. it's amazing how former US allies havent figured it out.
+
+
+
+
+=============
+  
+## Reddit comment o3ofjkn
+
+    entry 212
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3ofjkn/  
+Comment ID:      o3ofjkn  
+Author:          mods4mods  
+Bio:             rodeogrill : Trying to be a musician, failing miserably  
+Account Created: 2022-01-17T08:58:31Z  
+Link Karma:      20835  
+Comment Karma:   29815  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T07:09:47Z  
+Score:           1603 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+It's wild how many worldwide elites are all in these files. Politicians, celebrities, billionaire CEOs... It's difficult to not lose hope in the system.
+
+
+
+
+=============
+  
+## Reddit comment o3o9szo
+
+    entry 213
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3o9szo/  
+Comment ID:      o3o9szo  
+Author:          DavidlikesPeace  
+Bio:               
+Account Created: 2013-02-21T00:12:01Z  
+Link Karma:      3803  
+Comment Karma:   367095  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T06:19:53Z  
+Score:           417 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+Always shocking to see when criminals get away with it for decades. Almost always, it’s not in a vacuum. It’s because the police do not believe or follow up the warnings from whistleblowers.
+
+
+
+
+=============
+  
+## Reddit comment o3onras
+
+    entry 214
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3onras/  
+Comment ID:      o3onras  
+Author:          OceanicDissonance  
+Bio:               
+Account Created: 2013-03-14T02:17:19Z  
+Link Karma:      4361  
+Comment Karma:   3547  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T08:26:21Z  
+Score:           137 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+The craziest part of this is that there’s outrage in all these other countries and seems like people are immediately being investigated and yet the orange buffoon is seemingly as unharmed as ever.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Because We The People are the problem in USA. The commenting creators on Reddit who refuse and avoid to promote and engage mental health leader Dr. Bandy X Lee. People on Reddit use mental health as an insult with the horrific ~~USS medical~~ USA medical system / USA health insurance system. People don't see the gun worship in USA as a gun cult, people don't see the advertising and marketing of medicine as a cult in USA, the cult of brainwashing, cult of media systems, cult of commenting. People on Reddit avoid nonfiction quotes and avoid any serious learning about cults. People just toss around mental illness and cult as insulting shit-talk and shit-posting.
+> 
+> People in USA are proud of shit-posting, it is a pride to shit-post. It is **shit-post MAGA values**. Celebration of Ignorance. **Celebration of Trump Truth Social Shit Postings**. Celebration of Fox News HDTV Shit Posting content. "Locker Room Talk", "Boys will be Boys", Shit-posting shit-for-brains nation. Adult education shit eaters.
+> 
+> * “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+>
+
+
+=============
+  
+## Reddit comment o3ok288
+
+    entry 215
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3ok288/  
+Comment ID:      o3ok288  
+Author:          john_san  
+Bio:               
+Account Created: 2017-01-18T13:30:02Z  
+Link Karma:      159  
+Comment Karma:   5582  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T07:51:29Z  
+Score:           398 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+Seems like Norwegian elites were all very close to Epstein and sharing a border with Russia isn’t the only thing they share apparently…
+
+Cannot wait for a formal investigation into the dude.
+
+
+
+
+=============
+  
+## Reddit comment o3ojylz
+
+    entry 216
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3ojylz/  
+Comment ID:      o3ojylz  
+Author:          backyard_tractorbeam  
+Bio:               
+Account Created: 2025-01-17T11:15:54Z  
+Link Karma:      346  
+Comment Karma:   10948  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T07:50:32Z  
+Score:           90 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+Jagland might face consequences in Norway, keep track of this story. Hopefully, surely, charges of corruption must come.
+
+
+
+
+=============
+  
+## Reddit comment o3oq0xi
+
+    entry 217
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oq0xi/  
+Comment ID:      o3oq0xi  
+Author:          Realitype  
+Bio:               
+Account Created: 2016-06-20T21:48:11Z  
+Link Karma:      364  
+Comment Karma:   39218  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T08:47:59Z  
+Score:           134 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+The Kremlin propagandists are currently working full time to cover up Russias involvement on this and score some cheap disruption points at the same time. 
+
+Just today I saw a post on instagram with 100s of thousands of “likes” blatantly lying about how Putin is not mentioned in the files, when he is mentioned hundreds of times, never mind his lackeys which were regularly sending requests to Epstein. Thousands of bot comments underneath talking about how much respect they have for Putin including a fucking ridiculous one about how much Polish people love him, unironically lmao.
+
+At this point I think social media sites need to be regulated somehow, because this shit is insane. Its clearly just a tool of manipulation for billionaires and autocrats and a large reason the world as a whole is regressing.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1501" height="1278" alt="image" src="https://github.com/user-attachments/assets/cdcb90e8-0628-40de-bbb4-c784674e8c7d" />
+> 
+> "At this point I think social media sites need to be regulated somehow, because this shit is insane. Its clearly just a tool of manipulation for billionaires and autocrats and a large reason the world as a whole is regressing."
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4lqbnihk27 https://autistics.life/@RoundSparrow/116018474422566248 }
+>
+
+
+=============
+  
+## Reddit comment o3oseui
+
+    entry 218
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oseui/  
+Comment ID:      o3oseui  
+Author:          Heavy_Secret_203  
+Bio:               
+Account Created: 2020-09-26T09:38:03Z  
+Link Karma:      1  
+Comment Karma:   16836  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T09:11:12Z  
+Score:           37 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+I wouldn't be surprised if there's another Epstein equivalent out there that just has a better security measures. Elites still have a lot of money and lust for forbidden pleasures.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4maou2z22r https://autistics.life/@RoundSparrow/116018525393872433 }
+>
+
+
+=============
+  
+## Reddit comment o3otvje
+
+    entry 219
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3otvje/  
+Comment ID:      o3otvje  
+Author:          Cybor_wak  
+Bio:               
+Account Created: 2018-11-23T21:45:14Z  
+Link Karma:      207  
+Comment Karma:   17019  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T09:25:39Z  
+Score:           64 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+Every right wing politician in europa is a fucking Russian agent. They all only care about their own Wealth and will happily sell out the rest of us. This is fact until proven otherwise for me.
+
+
+
+
+=============
+  
+## Reddit comment o3okwkb
+
+    entry 220
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3okwkb/  
+Comment ID:      o3okwkb  
+Author:          KadmonX  
+Bio:               
+Account Created: 2022-04-06T17:30:46Z  
+Link Karma:      40084  
+Comment Karma:   10076  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T07:59:21Z  
+Score:           66 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+We warned you, but no one wants to listen.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1139" height="870" alt="image" src="https://github.com/user-attachments/assets/91a46bcb-50fc-40bc-ab02-2852d8de3432" />
+> 
+> Ukraine marked on Reddit flair.
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4n5o572c27 https://Autistics.Life/@RoundSparrow/116018574350111113 }
+>
+
+
+=============
+  
+## Reddit comment o3p7l06
+
+    entry 221
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3p7l06/  
+Comment ID:      o3p7l06  
+Author:          fredagsfisk  
+Bio:               
+Account Created: 2016-04-14T10:30:33Z  
+Link Karma:      4096  
+Comment Karma:   659885  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T11:31:38Z  
+Score:           4 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+The article never claims that he was the "human rights commissioner"? 
+
+It says that: 
+
+> Jagland ran the Council of Europe—the continent's human rights watchdog.
+
+---
+
+> Jagland wasn't a fringe figure. He ran the institution that decides whether Russia belongs in European human rights bodies, helped choose Nobel Peace Prize winners, and shaped the debate over sanctions after Crimea.
+
+---
+
+> In 2009, he took the top job at the Council of Europe—the continent's human rights watchdog—and held it for a decade.
+
+Jagland did serve as secretary general of the Council of Europe from 2009 to 2019, and one of the main tasks of the CoE is to uphold human rights in Europe. 
+
+The Commissioner for Human Rights was established by the CoE and exists within the CoE (under their umbrella basically): 
+
+> The Commissioner for Human Rights is an institution within the Council of Europe, mandated to promote awareness of and respect for human rights within the member states.
+
+<https://en.wikipedia.org/wiki/Council_of_Europe> 
+
+> The Council of Europe Commissioner for Human Rights is an independent and impartial non\-judicial institution established in 1999 by the Strasbourg\-based Council of Europe, to promote awareness of and respect for human rights in the council's 46 member states.
+
+<https://en.wikipedia.org/wiki/Commissioner_for_Human_Rights>
+
+
+
+
+=============
+  
+## Reddit comment o3otfef
+
+    entry 222
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3otfef/  
+Comment ID:      o3otfef  
+Author:          Top_Room6768  
+Bio:               
+Account Created: 2022-01-13T23:48:38Z  
+Link Karma:      26  
+Comment Karma:   119  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T09:21:14Z  
+Score:           5 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+That's not what the Epstein files show, but what do facts matter... we are on reddit, Russians are the bad guys, so we upvote all desinformation that confirms that xDDDD
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Ukraine war since February 20, 2024 on /r/Europe - the European subreddit, claiming that Russia isn't a "bad guy" currently at hot war with Ukraine... on Europe subreddit.... Hyper-banal reply message. SEE_ALSO: https://old.reddit.com/r/HyperBanalisation description of Reddit mockery of serious discourse with banal replies. "Under the Surkov media invasion (Russia against NATO), USA social media has become an environment where banalisation is the ultimate outcome of every serious conversation. Adam Curtis in 2016 from the UK perspective: emphasized "Hyper Normalization", but Rick Roderick in 1993 far more addressed the USA-centric media usage to banalise. Where brevity serves to dismiss citation, fact-checking, validation, understanding itself!"
+>
+
+
+=============
+  
+## Reddit comment o3oxi20
+
+    entry 223
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oxi20/  
+Comment ID:      o3oxi20  
+Author:          dragonpjb  
+Bio:             Blue Dragon : I like to make stuff.  
+Account Created: 2013-09-09T20:09:55Z  
+Link Karma:      1517  
+Comment Karma:   24934  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T10:00:50Z  
+Score:           1 point  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+Its starting to feel like Epstein was literally the devil.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "The Devil" is a fiction storytelling character from The Bible and Quran, the Levant Science Fiction Trilogy { Torah, Bible, Quran, Book of Mormon }. Tiny-shirt Reddit commenting message Twitter-thinking mindset patterns. People think "The Devil" and "South Park 2025 Satan" in White House fiction is more real than human beings in the reality of the real world. Putin, Epstein, Trump are nonfiction, but people are so stuffed full of South Park fiction images and Bible science fiction "The Devil" storytelling...
+>
+
+
+=============
+  
+## Reddit comment o3oplpg
+
+    entry 224
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qwd3o4/ukrainians_warned_for_years_that_europes_human/o3oplpg/  
+Comment ID:      o3oplpg  
+Author:          Tattletale_0516  
+Bio:             Freedom for Iran, 
+Freedom for Uyghur, 
+Viva Ex-muslim   
+Account Created: 2025-09-23T04:14:01Z  
+Link Karma:      2375  
+Comment Karma:   9859  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T08:43:59Z  
+Score:           -6 points  
+Post Title:      Ukrainians warned for years that Europe’s human rights chief was a Kremlin conduit. The Epstein files just proved them right.  
+:::::: Reddit User Comment: ======  
+Don't worry, just blame it on the Jews, many are already doing it. /s
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 4 month Reddit account. MY ADVICE: Blame it on low-effort banal Reddit joke-washing of Epstein, content addicts who will not turn to Dr. Bandy X Lee's public education leadership on mental health.
+>
+
+
+=============
+  
+## Reddit comment o3p8s1t
+
+    entry 225
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8s1t/  
+Comment ID:      o3p8s1t  
+Author:          NuPNua  
+Bio:               
+Account Created: 2020-05-19T20:32:19Z  
+Link Karma:      6771  
+Comment Karma:   496792  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T11:41:29Z  
+Score:           7253 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Anyone talking like this without billions at their disposal would have been sectioned by now.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit is a fandom of "South Park Satan in White House" fiction year 2025. South Park fanatics cult of Reddit media cult platform. The "Anti-Christ" is a fictions character from the Quran and Bible science fiction stories. People on Reddit are addicted and attracted to fiction storytelling.
+>
+
+
+=============
+  
+## Reddit comment o3p9vnk
+
+    entry 226
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9vnk/  
+Comment ID:      o3p9vnk  
+Author:          dorgoth12  
+Bio:               
+Account Created: 2013-09-07T17:17:48Z  
+Link Karma:      177026  
+Comment Karma:   97675  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T11:50:07Z  
+Score:           739 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+It must be insane to be Greta Thunberg and have a tidal wave of batshit insane people harassing you every day
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> To have autism like Greta is to have people go wild with you over their fiction monomyth addictions, such as Peter Thiel with his fiction Bible character stories. Greta speaks in science nonfiction. Peter Thiel is all about "Stand UP For the Big Guy" Allah, Yahweh science fiction characters in outer space metaphors. Greta is about THE LITTLE GAL, Stand Up for The Little Guy...
+> 
+> * “Homo Sapiens have not yet failed. Yes, we are failing, but there is still time to turn everything around. We can still fix this. We still have everything in our own hands.” ― Greta Thunberg, No One Is Too Small to Make a Difference. Published May 30, 2019
+>
+
+
+=============
+  
+## Reddit comment o3pa21e
+
+    entry 227
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pa21e/  
+Comment ID:      o3pa21e  
+Author:          blipblopthrowawayz  
+Bio:               
+Account Created: 2017-11-08T13:38:11Z  
+Link Karma:      62  
+Comment Karma:   44588  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T11:51:28Z  
+Score:           3494 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This scumbag wants western societies to collapse so he and his buddies can scoop up and control as many failing industries as possible.
+
+Him and Epstein talked in emails in relation to Brexit how it's easier finding things on their way to collapse than trying to find the next bargain.
+
+It's literally in his interests for this to happen and he knows what he's doing with his rants about people trying to stop general societal collapse. 
+
+Him and his sick group of bastards want to undo the last century of progress everywhere, remove total power from civilians.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Stand up for "The Little Gal", "The Little Guy" to billionaires and Trumpism Putinism. https://en.wikipedia.org/wiki/Putinism Russia oil and earth damaging business model mindsets. Surkov won since March 2013.
+> 
+> * “Some people say that I should study to become a climate scientist so that I can ‘solve the climate crisis’. But the climate crisis has already been solved. We already have all the facts and solutions. All we have to do is to **wake up and change**.” ― Greta Thunberg, No One Is Too Small to Make a Difference.  Published May 30, 2019
+> * * “Joyce is, in the *Wake*, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of **tribal institutions can return in the electric age**, but if again, then let’s make it a wake or awake or both. Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream. He discovered the means of living simultaneously in all cultural modes while quite conscious.” - https://www.TheMediumisTheMassage.com/the-book/ the book “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in **March 1967**.
+>
+
+
+=============
+  
+## Reddit comment o3p8imh
+
+    entry 228
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8imh/  
+Comment ID:      o3p8imh  
+Author:          MaximumZer0  
+Bio:               
+Account Created: 2015-01-30T22:50:49Z  
+Link Karma:      4141  
+Comment Karma:   721912  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:39:23Z  
+Score:           6150 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Every. Accusation. Is. A. Confession.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Every low-effort Reddit comment is a confession of celebration of Elon Musk short-message Tweeting Thinking Twitter Mindset pro-ignorance. Billionaire mind virus that Musk OPENLY DISCUSSES. EVERY SHIT-COMMENT AND SHIT-POST ON REDDIT IS A CONFESSION OF LOVE FOR SHIT! https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+>
+
+
+=============
+  
+## Reddit comment o3p8ug6
+
+    entry 229
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8ug6/  
+Comment ID:      o3p8ug6  
+Author:          newtoallofthis2  
+Bio:               
+Account Created: 2015-04-27T16:31:32Z  
+Link Karma:      157  
+Comment Karma:   239437  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T11:42:01Z  
+Score:           1440 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Make loads of money, have people constantly blow smoke up your ass as you're rich, believe own hype, inflate ego, go down weird rabbit hole, become quite mad.
+
+The Musk/Thiel conveyor
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Egoism. Egomania. Media mania consumers of Trickle Down content from billionaires. Competitive education that is Anti-Malala on making education open and smarter world wide teaching practices. A global education concern.
+> 
+> * "An individual has not begun to live until he can rise above the narrow horizons of his particular individualistic concerns to the broader concerns of all humanity." - August 11, 1957. REPEATING_REPEATER " broader concerns of all humanity"
+> 
+> * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+> ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+>
+
+
+=============
+  
+## Reddit comment o3pahhl
+
+    entry 230
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pahhl/  
+Comment ID:      o3pahhl  
+Author:          BadHombreSinNombre  
+Bio:               
+Account Created: 2017-02-13T19:29:20Z  
+Link Karma:      323  
+Comment Karma:   231040  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T11:54:44Z  
+Score:           129 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Are you kidding? There’s a huge swath of the population that eats this shit right up.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> No, Reddit audience is not kidding. Joke-washing kidding-washing of billionaires is serious fandom on Reddit. Turning everything into jokes about how great it is to hear more billionaire content every day on Reddit. Drowning in Putin messaging, Musk messaging, etc.
+>
+
+
+=============
+  
+## Reddit comment o3p8nr9
+
+    entry 231
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8nr9/  
+Comment ID:      o3p8nr9  
+Author:          OddPatience1621  
+Bio:               
+Account Created: 2023-09-21T21:16:40Z  
+Link Karma:      2  
+Comment Karma:   18005  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:40:33Z  
+Score:           864 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This ghoul is mentioned almost as much in the files as T was.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Peter Thiel is actively selling his science fiction stories to Reddit fandom about "Anti-Christ" and fantasy "apocalypse" from the Surkov monomyth in February 2026. People love these science fiction stories about South Park Satan fiction and bible apocalypse / Christ / Christian monomyth. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o3p8pm4
+
+    entry 232
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8pm4/  
+Comment ID:      o3p8pm4  
+Author:          thedeeb56  
+Bio:               
+Account Created: 2025-08-07T19:05:14Z  
+Link Karma:      137  
+Comment Karma:   41230  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:40:57Z  
+Score:           258 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+If there was ever going to be an antichrist, it's trump.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o3p8guz
+
+    entry 233
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8guz/  
+Comment ID:      o3p8guz  
+Author:          maddsskills  
+Bio:               
+Account Created: 2015-06-02T04:07:47Z  
+Link Karma:      5279  
+Comment Karma:   254356  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:38:59Z  
+Score:           200 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Return to monke \= satanic. 
+
+These rich people are insane.
+
+
+
+
+=============
+  
+## Reddit comment o3p9dlk
+
+    entry 234
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9dlk/  
+Comment ID:      o3p9dlk  
+Author:          hostile_scrotum  
+Bio:             Muk : Not that hostile most of the times  
+Account Created: 2020-10-14T19:59:25Z  
+Link Karma:      15611  
+Comment Karma:   79258  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T11:46:13Z  
+Score:           75 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Billionaire Psychosis
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Media mania of Reddit audience. 2-word Twitter-think Tweet-thinking mindset. Media psychosis of high-speed messaging systems. People who never studied 1960's Marshall McLuhan, Professor at University of Toronto. Lost understanding and self-awareness of Reddit media systems impact on audience.
+> 
+> * From September 9, 2014, which is **more than a decade** ... https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. **It reinvents reality, creating mass hallucinations** that then translate into political action."
+>
+
+
+=============
+  
+## Reddit comment o3p9wnw
+
+    entry 235
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9wnw/  
+Comment ID:      o3p9wnw  
+Author:          baby_armadillo  
+Bio:               
+Account Created: 2017-01-31T14:02:03Z  
+Link Karma:      192  
+Comment Karma:   380321  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:50:20Z  
+Score:           127 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Environmentalist who hates genocide vs billionaire who is actively setting up a for\-profit surveillance state to aid the rise of a fascist regime in a country to which he does not hold citizenship. Gosh, which one of those people is evil…?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Inversion of Good vs. Evil is a serious problem that Reddit commenting turns into a "Gosh" mockery. Instead of turning to serious nonfiction teaching of the long-standing problem. Reddit end-users who mock away the problem like Trump mocks away every day on Truth Social empire of media. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/ 
+> 
+> * "For the lover of that jealous god in the Bible, there is no allowance for the following of one’s own light: the leadership and guidance of one’s own expanding, deepening, enriched experience of the nature of the world and oneself. All life, **all thought**, all meditation, is to be governed by the authority of the shepherds of the group \[the Church\]; and there can be no doubt, from what we know of the history of this tradition, that **this authority was imposed and maintained by force**. But any religious symbol, so interpreted that it refers not to a thought-transcending mystery but to a **thought-enveloping** social order, misappropriates to the lower principle the values of the higher and so (to use a theological turn of phrase) sets Satan in the seat of God." - before year 1968
+>
+
+
+=============
+  
+## Reddit comment o3pdolk
+
+    entry 236
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdolk/  
+Comment ID:      o3pdolk  
+Author:          PSCGY  
+Bio:             Woohoo  
+Account Created: 2020-04-17T18:38:47Z  
+Link Karma:      308  
+Comment Karma:   27827  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:18:28Z  
+Score:           44 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+It’s just so puzzling to me. As a longtime homosexual, seeing the xenophobic Christians lapping up all this Antichrist discourse pouring out of the mouth of this foreign, truly demonic\-looking, proud sodomite is mind\-boggling. The cognitive dissonance is at an all\-time high.
+
+
+
+
+=============
+  
+## Reddit comment o3p9djl
+
+    entry 237
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9djl/  
+Comment ID:      o3p9djl  
+Author:          Long-Time-lurker-1  
+Bio:               
+Account Created: 2019-02-22T10:34:42Z  
+Link Karma:      300  
+Comment Karma:   27381  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:46:13Z  
+Score:           44 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Motherfucker if anyone would be the god dam antichrist its you. Just evil incarnate.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Anti-education Reddit commenting. Hate for hate. baited into hate worship. "Anti-Christ" is fiction, **hate is real, hate is nonfiction**. Reddit hate prizing, hate inside minds, is nonfiction.
+>
+
+
+=============
+  
+## Reddit comment o3pd6rq
+
+    entry 238
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pd6rq/  
+Comment ID:      o3pd6rq  
+Author:          MrTulaJitt  
+Bio:               
+Account Created: 2022-08-12T22:17:19Z  
+Link Karma:      955  
+Comment Karma:   107277  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:14:54Z  
+Score:           17 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+The rich and powerful using religious nonsense to manipulate stupid people into supporting their evil plans. Stop me if you've heard this one before!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Using SCIENCE FICTION. Star Wars Andor and The Bible are both science fiction. Magical outer-space Daddy for Jesus. Science fiction. There is no magic supernatural, there is science fiction storytelling.
+>
+
+
+=============
+  
+## Reddit comment o3pa2w5
+
+    entry 239
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pa2w5/  
+Comment ID:      o3pa2w5  
+Author:          312Observer  
+Bio:               
+Account Created: 2018-09-24T17:44:08Z  
+Link Karma:      45  
+Comment Karma:   27914  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:51:39Z  
+Score:           31 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+They always pick on women and act super tough about it
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Science fiction fandoms of Levant Allah / Jesus / Yahweh stories, "Anti-Christ" fictions character claims of Thiel. Anti-women, anti-girls, anti-ladies.
+> 
+> * “We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+> ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+>
+
+
+=============
+  
+## Reddit comment o3phcan
+
+    entry 240
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phcan/  
+Comment ID:      o3phcan  
+Author:          Plaineswalker  
+Bio:               
+Account Created: 2018-11-02T17:54:55Z  
+Link Karma:      1  
+Comment Karma:   86373  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:43:47Z  
+Score:           15 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Bro, really? The epstein files appear to be about literal demons of which this guy is one and he is blaming Greta Thunberg? Lmao
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "LMAO" in Reddit comment message. Amused Reddit audience. Billionaires playing fiction characters of "Devil" and "Christ" science fiction is content amusement for Reddit fandom of billionaire content creators. Reddit is a social cesspool training ground of laughing away "LMAO" serious topics. "LMAO" baby-talking commenting about critical and serious humanism issues.
+> 
+> * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+>
+
+
+=============
+  
+## Reddit comment o3p9ebk
+
+    entry 241
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9ebk/  
+Comment ID:      o3p9ebk  
+Author:          cunningstunt6899  
+Bio:               
+Account Created: 2015-08-02T13:08:21Z  
+Link Karma:      756  
+Comment Karma:   43904  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:46:22Z  
+Score:           22 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+I wonder what his fellow Christians who live in America, that he seems so hellbent on protecting, think about his sexual orientation...
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> They think his sexual orientation reaches a demographic audience and fandom on Reddit.
+>
+
+
+=============
+  
+## Reddit comment o3pgcx7
+
+    entry 242
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgcx7/  
+Comment ID:      o3pgcx7  
+Author:          RedditTurnedMediocre  
+Bio:               
+Account Created: 2023-06-21T14:48:14Z  
+Link Karma:      3  
+Comment Karma:   19265  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:37:11Z  
+Score:           9 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Lol who is more likely the Antichrist? A young activist calling for compassion, or a billionaire who openly dreams of ruling society?
+
+Can we tax these fuckers out of existence already?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "LOL". Comedian practitioner. Reddit commenting is a social cesspool training ground of laughing away "LOL" / "LOL cow miking" farm of serious topics. "LOL" baby-talking commenting about critical and serious humanism issues.
+> 
+> * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+> ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+>
+
+
+=============
+  
+## Reddit comment o3pc2kc
+
+    entry 243
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pc2kc/  
+Comment ID:      o3pc2kc  
+Author:          la_winky  
+Bio:             La-Winky :   
+Account Created: 2016-03-31T19:38:54Z  
+Link Karma:      134  
+Comment Karma:   20694  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:06:41Z  
+Score:           8 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+He’s batshit crazy.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Anti-Christ" Reddit topic posting, "batshit crazy" commenting. Media mania. Bible book media mania. Reddit commenting media mania. ANYTHING to avoid Dr. Bandy X Lee's mental health nonfiction books and serious discourse and education for the general public. Instead. shit-commenting on a shit-posting shit worship content center.
+>
+
+
+=============
+  
+## Reddit comment o3pmouy
+
+    entry 244
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pmouy/  
+Comment ID:      o3pmouy  
+Author:          obaterista93  
+Bio:               
+Account Created: 2013-02-26T04:07:01Z  
+Link Karma:      2058  
+Comment Karma:   68855  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-05T13:17:22Z  
+Score:           9 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Oh, right, Greta is the problem. Not the dude doing his best to usher in an authoritarian police surveillance state. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Oh right" message on Reddit, Twitter-length mocking. Peter Thiel mocks first, Reddit audience predictably mocks back with low-effort commenting. Eating the simulation that billionaires create with Reddit media cloud computing systems. Screen game for mockery. ARG.
+>
+
+
+=============
+  
+## Reddit comment o3pbwg2
+
+    entry 245
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbwg2/  
+Comment ID:      o3pbwg2  
+Author:          Area51_Spurs  
+Bio:               
+Account Created: 2024-12-20T03:23:59Z  
+Link Karma:      10014  
+Comment Karma:   279914  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:05:23Z  
+Score:           14 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+I’ve never seen an out gay man’s internalized homophobia, self\-hatred, and fucked up feelings of not fitting in become weaponized like this. 
+
+He must absolutely despise himself in the most tragic and terrible way. 
+
+He’s terrifying because he’s a true believer and he’s actually got a couple braincells and he, like Miller has a real underlying hatred that drives him.
+
+
+
+
+=============
+  
+## Reddit comment o3pac8u
+
+    entry 246
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pac8u/  
+Comment ID:      o3pac8u  
+Author:          ThriftyMegaMan  
+Bio:               
+Account Created: 2017-11-16T12:43:30Z  
+Link Karma:      5578  
+Comment Karma:   91500  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:53:37Z  
+Score:           7 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+All I see is an angry little guy who never got over people disliking him.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit mind-fucking messages. Signals to USA audiences to downplay the billionaire power and threat to society.
+>
+
+
+=============
+  
+## Reddit comment o3pb4jn
+
+    entry 247
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pb4jn/  
+Comment ID:      o3pb4jn  
+Author:          SirKlip  
+Bio:               
+Account Created: 2016-02-01T16:43:40Z  
+Link Karma:      5739  
+Comment Karma:   31535  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:59:32Z  
+Score:           7 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Is He describing himself here
+
+> In lectures on Christianity delivered to select audiences, Thiel has argued the Antichrist in the 21st century will not resemble the stereotypical mad scientist, but rather a self\-described protector who promises peace, safety, and an end to technological risk. Drawing on apocalyptic passages from the Bible, he portrays an approaching choice between a “one‑world state” aligned with the Antichrist and an Armageddon‑style collapse if that project fails, framing both scenarios as live possibilities for contemporary politics and technology.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Peter T. is creating content for Reddit audiences, who eat it up. People compulsively mocking the mockery created by Surkov students.
+>
+
+
+=============
+  
+## Reddit comment o3pbxw1
+
+    entry 248
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbxw1/  
+Comment ID:      o3pbxw1  
+Author:          apoca1ypse12  
+Bio:             AngryTanuki :   
+Account Created: 2016-10-28T06:55:11Z  
+Link Karma:      149  
+Comment Karma:   29807  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:05:41Z  
+Score:           7 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This asshole failed in trying to take over the world with his pedo friend, and now hes going around the world trying to preach about antichrist. Truly pathetic
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Truly pathetic commenting that does nothing to educate and teach the addicts of Reddit about thier compulsive attraction to technology providers. Peter Thiel has Reddit audience eating out of his hand with one single sentence in a Reddit posting title.
+> 
+> * “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+>
+
+
+=============
+  
+## Reddit comment o3phndu
+
+    entry 249
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phndu/  
+Comment ID:      o3phndu  
+Author:          TheBlueBlaze  
+Bio:               
+Account Created: 2010-08-23T21:06:01Z  
+Link Karma:      81333  
+Comment Karma:   262042  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:45:49Z  
+Score:           6 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+A billionaire who has advocated for mass surveillance, the taking away of rights, manipulation of the public, and the hoarding of wealth, who has potentially at least been witness to some evil acts, has to convince himself he's still a good person by acting like the advocates who are against his interests are the literal manifestation of evil.
+
+It would almost be tragic if it wasn't so evil in and of itself.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Downplaying it as "almost tragic", that Rupert Murdoch billionaire fucked over **rural less-educated population** with Levant monomyth storytelling patterns. Typical Reddit denial of the Rupert Murdoch media since October 7, 1996 (Putin's birthday).
+>
+
+
+=============
+  
+## Reddit comment o3pktaz
+
+    entry 250
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pktaz/  
+Comment ID:      o3pktaz  
+Author:          princesoceronte  
+Bio:             Rhinoprince :   
+Account Created: 2017-10-10T17:29:12Z  
+Link Karma:      4990  
+Comment Karma:   120926  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T13:05:58Z  
+Score:           7 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Thiel is, in my opinion, the most dangerous person to ever exist.
+
+The world he's fighting to build is literally put of a dystopian novel, making no one happy and he'd create that hellcape just to make a disgustingly large pile of money.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> No off-Reddit links. No book quotes. No author names. The most dangerous person in entire world, and a shit-commenting shit-posting prizing platform lover. ANYTHING to avoid serious nonfiction books about Peter Thiel's plot to wreck USA published in year 2019.
+> 
+> * 2019 :    
+> “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+> ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+> 
+> * "Benjamin Wallace-Wells on the conservative tech entrepreneur Peter Thiel and how his particular brand of libertarianism is quickly becoming" - https://www.newyorker.com/news/annals-of-populism/the-rise-of-the-thielists
+> 
+> Tech addicts on Reddit, gaming addicts, Fox News HDTV device addicts, etc.
+>
+
+
+=============
+  
+## Reddit comment o3p9v54
+
+    entry 251
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p9v54/  
+Comment ID:      o3p9v54  
+Author:          slo1111  
+Bio:               
+Account Created: 2016-05-08T19:56:08Z  
+Link Karma:      458  
+Comment Karma:   219415  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T11:50:00Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+He is obviously mentally unwell or trying to manipulate the death cult christians
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "mentally unwell" from Bible science fiction media ("Anti-Christ" posting context), Reddit cult media people will not turn to Dr. Bandy X Lee's nonfiction books. Just Twitter-length commenting messages on Reddit saying "mentally unwell" and nothing to rescue or educate people. "mentally unwell" on Reddit media society is street-gang shit-commenting shit-talk shit-posting language of Reddit shit-prizing to insult and mock out-groups / individuals who don't conform to Reddit hive minded thinking. You won't see people discussing nonfiction books about mental health when they throw out these (Information highway metaphors) street-gang signs and symbols.
+> 
+> “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+> ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o3peszp
+
+    entry 252
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peszp/  
+Comment ID:      o3peszp  
+Author:          Rude-Helicopter5363  
+Bio:               
+Account Created: 2025-11-05T17:59:34Z  
+Link Karma:      10  
+Comment Karma:   103  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:26:21Z  
+Score:           5 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+The villlage idiot has billions now ,oh how the times have changed.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account. "village idiot" mocking. Reddit mockery, mocking back at mock content. Reddit is the idiot fandom commenting about the idiot. OPERA_A "Will it turn us all into Global Village Idiots". https://youtu.be/2JIj0Bqbdhk?t=148 "A Greek word meaning very private person". Marshall McLuhan. 6,379 views May 17, 2009 (I shared this YouTube link during the Arab Spring 2010 over Internet to Tunisia and Algeria)
+>
+
+
+=============
+  
+## Reddit comment o3ph9nr
+
+    entry 253
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph9nr/  
+Comment ID:      o3ph9nr  
+Author:          jreed66  
+Bio:               
+Account Created: 2011-10-15T08:46:13Z  
+Link Karma:      463  
+Comment Karma:   21925  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:43:18Z  
+Score:           5 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Imagine being a billionaire and thinking you have a barometer for any worries the rest of us have. 
+
+The apocalypse is not having affordable healthcare coverage
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1300" height="723" alt="image" src="https://github.com/user-attachments/assets/a27d6503-1676-4819-bb0e-09a5de60966f" />
+> 
+> **Imagine being a Reddit commenting person** who can't see the forest for the trees of junk 1.5 second commenting messages all over Reddit day in and day out mocking Trump the billionaire, mocking Musk the billionaire, mocking Fox News the Murdoch billionaire, Reddit comments mockery of Peter Thiel the billionaire, mocking Putin the billionaire since March 2013. Just seeing over and over short shit-commenting about serious topics that drown out all serious discussion. Imagine witnessing people who have no self-awareness of Marshall McLuhan or Neil Postman concepts. Imagine seeing Reddit for what it really is. A billionaire mind-fucking of cowards who hide their real-name behind machines that the billionaires can easily exploit to find real identity of (via LLM systems, etc), but "The Little Guy" peers on Reddit don't know who the author is.
+> 
+> * "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance." - ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Book on paper. Year 1985. At the public library for any Reddit user to read.
+> 
+> OPERA_A Lyrics: "Unhand that gun! begone! There's no one to fire upon!"; "The man in the street dragging his feet...  Don't wanna hear the bad news. **Imagine your face** there is his place
+> Standing inside his brown shoes... You do his nine to five, drag yourself home half alive. And there on **the screen**... A man with a dream..." - NYC Godwhackers Jewish band leader Donald F. https://www.youtube.com/watch?v=Hvz0TOm0zgI why was a 1972 song only put on Youtube late year 2018, too late for Trump? 3,455,783 views October 25, 2018. NYC music cartels.
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4sut33q22y https://autistics.life/@RoundSparrow/116018980304813623 }
+>
+
+
+=============
+  
+## Reddit comment o3phm0f
+
+    entry 254
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phm0f/  
+Comment ID:      o3phm0f  
+Author:          baeruu  
+Bio:               
+Account Created: 2020-12-15T13:39:35Z  
+Link Karma:      555  
+Comment Karma:   64345  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T12:45:34Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+All that money, influence and power but still so afraid of one woman lmao. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "LMAO", predictably Reddit audience minds blown into meme stupor mindsets. Gender paradox messaging from billionaires down to Reddit tech fandoms.
+> 
+> * “If one man can destroy everything, why can't one girl change it?”
+> ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+>
+
+
+=============
+  
+## Reddit comment o3pby2z
+
+    entry 255
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pby2z/  
+Comment ID:      o3pby2z  
+Author:          DMala  
+Bio:               
+Account Created: 2013-09-28T06:06:05Z  
+Link Karma:      631  
+Comment Karma:   590346  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:05:44Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This motherfucker needs a padded cell.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit shit-commenting, shit-talking, information highway street gang lingo. Meme stupor states of mind where people can not turn to serious intelligent nonfiction books from Dr. Bandy X Lee. Over and over in gaming loops of shit-talking at billionaires in feedback social systems.
+>
+
+
+=============
+  
+## Reddit comment o3pdry2
+
+    entry 256
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdry2/  
+Comment ID:      o3pdry2  
+Author:          SonofGrog  
+Bio:               
+Account Created: 2018-06-11T01:20:28Z  
+Link Karma:      1  
+Comment Karma:   1987  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:19:08Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+It would appear that one the most influential billionaires, who appears to be a driving force around the world with his company, is afraid the end is nigh due to a young woman who cares about the environment we live in and the well being others.
+
+
+
+
+=============
+  
+## Reddit comment o3pdwxq
+
+    entry 257
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdwxq/  
+Comment ID:      o3pdwxq  
+Author:          FrostingGrand1413  
+Bio:               
+Account Created: 2021-03-31T22:39:24Z  
+Link Karma:      540  
+Comment Karma:   20474  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:20:07Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+I'm not a christian, but watching a billionaire who constantly talks about how people who protest the powerful are the real anti\-christ, who has ties to an international CSA ring, who has connections in the white house and other world governments, who runs a tech spyware company utlised by many governments named after the device from a Catholic author's fantasy that corrupts the minds of leaders into being unwitting servants of ultimate evil, , . . . Well, it makes one start to believe in the anti\-christ. . . 
+
+And that we're all living in a novel, a badly written one, whatever Garth Marenghi's equivalent to The Stand or the Dead Zone would've been.
+
+
+
+
+=============
+  
+## Reddit comment o3pfzw4
+
+    entry 258
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfzw4/  
+Comment ID:      o3pfzw4  
+Author:          AlfonsoGid  
+Bio:               
+Account Created: 2025-02-07T11:08:21Z  
+Link Karma:      192  
+Comment Karma:   929  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:34:41Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+If creepy and wicked old men are telling me that Greta Thunberg is the enemy and that i should side with them, ..., I'm siding with Greta Thunberg.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Opposition logic think. Binary logic conditioned audience of tech on Reddit. Machine logic mindset programmed by Elon Musk and other tech billionaires. OPERA_A REPEATING_REPEATER https://www.youtube.com/watch?v=eAyEb36SJYs "Squares", "Square wave" logic thinking. Blockheads (Charlie Brown lingo). "Haley Johnsen - The Logical Song by Supertramp" 160,441 views January 6, 2023 - I know it sounds ABSURD, please tell me WHO I AM? WHO I AM!!!
+>
+
+
+=============
+  
+## Reddit comment o3pg1gh
+
+    entry 259
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg1gh/  
+Comment ID:      o3pg1gh  
+Author:          Bawbawian  
+Bio:             I don't check messages. because the people that I argue with like to send me pictures of hate crimes. so dont message me.
+
+I use speech to text. sometimes it auto corrects into a word jumble.   
+Account Created: 2022-12-23T06:03:50Z  
+Link Karma:      607  
+Comment Karma:   475820  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:34:59Z  
+Score:           5 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Wait so the billionaire sociopath that drinks blood and is currently trying to make a database to track and extort all of humanity thinks that the young woman that's complaining about pollution is actually the villain.....
+
+these men are a threat to the world. 
+
+their companies need to be broken into tiny little competitive pieces they cannot manipulate world events
+
+
+
+
+=============
+  
+## Reddit comment o3pgdq1
+
+    entry 260
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgdq1/  
+Comment ID:      o3pgdq1  
+Author:          critacle  
+Bio:               
+Account Created: 2025-01-09T17:13:53Z  
+Link Karma:      5935  
+Comment Karma:   11174  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:37:20Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Peter Thiel, Mike Johnson, Stephen Miller, Donald Trump, RFJ Jr, Ted Cruz, Hannity, Murdoch. 
+
+All good candidates for Antichrist.
+
+
+
+
+=============
+  
+## Reddit comment o3pgffo
+
+    entry 261
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgffo/  
+Comment ID:      o3pgffo  
+Author:          meganano  
+Bio:               
+Account Created: 2013-10-04T17:44:08Z  
+Link Karma:      345  
+Comment Karma:   2006  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:37:40Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+It's so weird how threatened he is by her.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4uxp3irk2y https://autistics.life/@RoundSparrow/116019124154080402 }
+>
+
+
+=============
+  
+## Reddit comment o3pgnlf
+
+    entry 262
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgnlf/  
+Comment ID:      o3pgnlf  
+Author:          Your_Moms_Flame  
+Bio:               
+Account Created: 2017-01-05T21:37:05Z  
+Link Karma:      168217  
+Comment Karma:   76795  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:39:12Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+You know we used to lock people like this in a padded cell. We should go back to that.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> You know how people used to read nonfiction books before they all became addicts in USA to smartphone touching... we should go back to that.
+>
+
+
+=============
+  
+## Reddit comment o3ph8zx
+
+    entry 263
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph8zx/  
+Comment ID:      o3ph8zx  
+Author:          Joebotnik  
+Bio:               
+Account Created: 2012-03-04T21:16:09Z  
+Link Karma:      4266  
+Comment Karma:   33436  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:43:11Z  
+Score:           6 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Thiel is one of the biggest threats to a peaceful society right now. He should be in a straight jacket, not dumping millions into fascist administrations in an attempt to destroy western democracy.
+
+
+
+
+=============
+  
+## Reddit comment o3pi1oi
+
+    entry 264
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pi1oi/  
+Comment ID:      o3pi1oi  
+Author:          TightPizza69  
+Bio:               
+Account Created: 2026-01-15T23:58:10Z  
+Link Karma:      1  
+Comment Karma:   44  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:48:24Z  
+Score:           8 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Oh is the gay nazi who literally has "blood boys" calling a young woman a product of the antichrist?
+
+What a total shock.
+
+
+
+
+=============
+  
+## Reddit comment o3pi2mn
+
+    entry 265
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pi2mn/  
+Comment ID:      o3pi2mn  
+Author:          MastodonSoggy6967  
+Bio:               
+Account Created: 2026-01-09T03:06:16Z  
+Link Karma:      1  
+Comment Karma:   349  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:48:34Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+luigi
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Gamers on Reddit and their Tweet-think Mario logic. Anti-intellectual gun tech worship.
+>
+
+
+=============
+  
+## Reddit comment o3pj5jt
+
+    entry 266
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pj5jt/  
+Comment ID:      o3pj5jt  
+Author:          boxian  
+Bio:               
+Account Created: 2012-12-07T21:50:51Z  
+Link Karma:      755  
+Comment Karma:   18988  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T12:55:33Z  
+Score:           5 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+it's crazy that greta gets to live rent free over there
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "crazy" that media works on Reddit audiences.
+>
+
+
+=============
+  
+## Reddit comment o3pkabz
+
+    entry 267
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkabz/  
+Comment ID:      o3pkabz  
+Author:          FormStriking1  
+Bio:               
+Account Created: 2024-04-28T19:14:47Z  
+Link Karma:      3369  
+Comment Karma:   8277  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:02:40Z  
+Score:           6 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+That’s cool anyways don’t forget Peter Thiel has multiple ties to Jefferey Epstein
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Don't forget that satire-washing is the Reddit audience fandom of shit media shit-commenting shit-leaders of tech.
+>
+
+
+=============
+  
+## Reddit comment o3pkg9w
+
+    entry 268
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkg9w/  
+Comment ID:      o3pkg9w  
+Author:          FeelingKind7644  
+Bio:               
+Account Created: 2023-11-19T04:24:21Z  
+Link Karma:      11352  
+Comment Karma:   17042  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:03:42Z  
+Score:           5 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Peter talking about christ is hilarious. Go read the trump Bible Peter, you're not part of the clique.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Mind-blowing comedy for Reddit fandom of shit-commenting. Audience Reddit.
+>
+
+
+=============
+  
+## Reddit comment o3pklwl
+
+    entry 269
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pklwl/  
+Comment ID:      o3pklwl  
+Author:          Stokkolm  
+Bio:             ᔟtok|&lt;olm✨☆。 :   
+Account Created: 2014-05-03T02:12:34Z  
+Link Karma:      5939  
+Comment Karma:   73712  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:04:41Z  
+Score:           8 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This guy is puzzling. For a person with such strong ideological convictions and political power, he can't even explain his own views. Not defend, just explain.
+
+If I were to summarize his point, he's saying that because of environmental activists and other people campaigning for regulations, the world is heating towards an apocalyptic scale catastrophe.
+
+That is all out nuclear war... wait no. It's famines and scarcity of resources so sever a big part of the world population will die... not this one either. It's a pandemic ten times worse than COVID... nope.
+
+None of that. The catastrophic end of times event is... technological and scientific progress slows down. What!? We're not even using the current technological knowledge anything close to it's full potential due to trade wars, literal wars, economic inequality, lack of adequate education, etc. and you want me to feel bad about technology that doesn't even exist? None of this makes sense.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Answer to your puzzle: READ NONFICTION. Marshall McLuhan books, Neil Postman books.
+>
+
+
+=============
+  
+## Reddit comment o3pkm6z
+
+    entry 270
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkm6z/  
+Comment ID:      o3pkm6z  
+Author:          SLR107FR-31  
+Bio:             Good Times : Ughhhhh  
+Account Created: 2017-10-24T21:25:02Z  
+Link Karma:      52034  
+Comment Karma:   142091  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:04:44Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+That buddy of Epstein? Yeah of course he's obsessed with Greta
+
+
+
+
+=============
+  
+## Reddit comment o3pkwyw
+
+    entry 271
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pkwyw/  
+Comment ID:      o3pkwyw  
+Author:          BocaSeniorsWsM  
+Bio:               
+Account Created: 2021-07-12T20:44:40Z  
+Link Karma:      103  
+Comment Karma:   16778  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:06:36Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+It is becoming clear that extreme, unimaginable wealth impacts mental health.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "mental health", technology addictions. Machine logic.
+>
+
+
+=============
+  
+## Reddit comment o3pl4fr
+
+    entry 272
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pl4fr/  
+Comment ID:      o3pl4fr  
+Author:          steve_dallasesq  
+Bio:               
+Account Created: 2018-12-05T02:28:20Z  
+Link Karma:      735  
+Comment Karma:   122905  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:07:54Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+See this is why the Catholic Church hundreds of years ago said not to translate the Bible from Latin but uh no the Protestants had to have it.
+
+(Please this is sarcasm)
+
+
+
+
+=============
+  
+## Reddit comment o3pm4uw
+
+    entry 273
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pm4uw/  
+Comment ID:      o3pm4uw  
+Author:          generatorland  
+Bio:             Sighs-Deeply : Founder of Generatorland.com, lover of craft beer. Always looking for comfortable seating.  
+Account Created: 2019-02-12T00:28:27Z  
+Link Karma:      6008  
+Comment Karma:   55277  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:14:04Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+People this crazy should not have money.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "crazy"
+>
+
+
+=============
+  
+## Reddit comment o3pmps9
+
+    entry 274
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pmps9/  
+Comment ID:      o3pmps9  
+Author:          moist_crack  
+Bio:               
+Account Created: 2022-08-08T20:29:23Z  
+Link Karma:      440  
+Comment Karma:   44356  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:17:31Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Surely nothing bad could ever happen if we let men like this amass immeasurable wealth and influence, right?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit loves mocking back at mockery billionaires.
+>
+
+
+=============
+  
+## Reddit comment o3pna30
+
+    entry 275
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pna30/  
+Comment ID:      o3pna30  
+Author:          SpaceshipSpooge  
+Bio:               
+Account Created: 2023-01-23T01:10:51Z  
+Link Karma:      8114  
+Comment Karma:   12974  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:20:51Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Republicans: The 16 year old Greta Thunberg is just a **little girl** who doesn’t know what she’s talking about.
+
+Also Republicans: No, I did not have sex with that 16 year old **young woman**.
+
+
+
+
+=============
+  
+## Reddit comment o3pnd2l
+
+    entry 276
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pnd2l/  
+Comment ID:      o3pnd2l  
+Author:          hillClimbin  
+Bio:               
+Account Created: 2025-05-14T12:28:41Z  
+Link Karma:      4  
+Comment Karma:   293  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:21:21Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This guy hangs out with Epstein and owns a company that spies on civilians and political enemies. A man living in a house like that shouldn’t be throwing such large, clumsy, stones.
+
+
+
+
+=============
+  
+## Reddit comment o3psrar
+
+    entry 277
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3psrar/  
+Comment ID:      o3psrar  
+Author:          barneyrubbble  
+Bio:               
+Account Created: 2015-05-19T01:19:20Z  
+Link Karma:      78  
+Comment Karma:   291954  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T13:52:07Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Peter Thiel is mentally unwell.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "mentally unwell". Reddit street gang lingo for anti-education.
+>
+
+
+=============
+  
+## Reddit comment o3pt1tn
+
+    entry 278
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pt1tn/  
+Comment ID:      o3pt1tn  
+Author:          coiniac  
+Bio:               
+Account Created: 2014-01-24T02:22:28Z  
+Link Karma:      5185  
+Comment Karma:   5915  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-05T13:53:46Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This is why we need to give the billionaires all the resources. To save us from the antichrist and populate outer space. /s
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Sarcasm-washing. Sarcasm of The Bible crisis, monoomyth mental warfare.
+>
+
+
+=============
+  
+## Reddit comment o3q2chx
+
+    entry 279
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3q2chx/  
+Comment ID:      o3q2chx  
+Author:          Misubi_Bluth  
+Bio:               
+Account Created: 2015-07-23T00:56:47Z  
+Link Karma:      2312  
+Comment Karma:   120580  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-05T14:43:55Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Gonna remind everyone in the chat that Peter Thiel named his *military surveillance company* after a magic seeing stone that Sauron used to spy on his enemies, feed them false information, and drive them into depression and dispair so they didn't fight back when he sent orcs after them. And the 21 year old who rides boats to fight climate change is supposed to be the antichrist. Riiiight.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fiction fandoms on Reddit.
+>
+
+
+=============
+  
+## Reddit comment o3pdcnl
+
+    entry 280
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdcnl/  
+Comment ID:      o3pdcnl  
+Author:          isecore  
+Bio:             Chevy Guevara : I am a meat-popsicle. Quite sweary. If I don't answer you it's either because I'm scatterbrained and forgot or because I think you're a cunt.   
+Account Created: 2015-08-15T12:13:36Z  
+Link Karma:      25418  
+Comment Karma:   744426  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T12:16:05Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Billionaire narcissist and sociopath says one of the things he don't like will be the apocalypse. Please keep sending monies to him.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Anything but quote nonfiction books from Dr. Bandy X Lee, a woman.
+>
+
+
+=============
+  
+## Reddit comment o3pdq8c
+
+    entry 281
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdq8c/  
+Comment ID:      o3pdq8c  
+Author:          PotsAndPandas  
+Bio:             Just-a-Jester : I don't come to Reddit of all places for DMs, so don't bother lol  
+Account Created: 2015-10-25T05:47:21Z  
+Link Karma:      1823  
+Comment Karma:   45575  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T12:18:48Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Does Thiel not hear himself? That's one of the most deeply ironic things I've heard coming from him.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Does Reddit audience not hear the mockery, the forest of mocking for the shit-posting and shit-commenting trees? Shitpost after shitposts, day in and day out, anti-intellectual meme-washing camp of Reddit.
+>
+
+
+=============
+  
+## Reddit comment o3pdtce
+
+    entry 282
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdtce/  
+Comment ID:      o3pdtce  
+Author:          Hiimzap  
+Bio:               
+Account Created: 2020-06-15T19:58:29Z  
+Link Karma:      7415  
+Comment Karma:   128620  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T12:19:25Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Why is it that the worst humans are always rich fucks?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Because We The People, Reddit end-users We The People, are easily amused and entertained by shit-commenting that billionaires build systems for.
+>
+
+
+=============
+  
+## Reddit comment o3pdy0x
+
+    entry 283
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pdy0x/  
+Comment ID:      o3pdy0x  
+Author:          The1Ski  
+Bio:               
+Account Created: 2016-04-05T19:19:22Z  
+Link Karma:      11480  
+Comment Karma:   71336  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T12:20:20Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Greta and Trump in a room. Put the history of their lives on a projector, and you're gonna tell me GRETA is the bad one?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fantasy fandom episode writing for Reddit audience.
+>
+
+
+=============
+  
+## Reddit comment o3pg41z
+
+    entry 284
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg41z/  
+Comment ID:      o3pg41z  
+Author:          Frewdy1  
+Bio:               
+Account Created: 2025-02-17T13:27:46Z  
+Link Karma:      369  
+Comment Karma:   46236  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T12:35:28Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+We should be drug testing or giving these weirdos cognitive competency tests. Like…that’s insane. Can we commit them to a loony bin?
+
+Also we need more journalists to treat these people like regular people instead of demigods. Like give me more articles that are like “Billionaire shows sign of mental collapse in unhinged rant”
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "insane", "loon bin", "mental collapse". All Reddit street gang signs (gang signage, symbolic meme street languages) of dumb-shit insulting. Reddit is a total mockery. Fiction addicts and their streets of Internet mockery languages. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+>
+
+
+=============
+  
+## Reddit comment o3pg6t3
+
+    entry 285
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg6t3/  
+Comment ID:      o3pg6t3  
+Author:          Ok_Flounder59  
+Bio:               
+Account Created: 2020-10-09T04:14:05Z  
+Link Karma:      374  
+Comment Karma:   45075  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T12:36:00Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+I wonder how many drugs one has to do to become this delusional
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The topic is The Bible science fictions story. The "Anti-Christ" is a character from a book published 2,000 years ago that induces cult behaviors. A book. Reddit fandom thinks "drugs", recency bias. They aren't all on drugs at Mecca. Ignorance of Reddit on media ecology and comparative mythology and how billionaires use science fiction storytelling on Reddit fandoms.
+>
+
+
+=============
+  
+## Reddit comment o3pgii1
+
+    entry 286
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgii1/  
+Comment ID:      o3pgii1  
+Author:          Traumatic_Tomato  
+Bio:               
+Account Created: 2014-09-04T17:45:38Z  
+Link Karma:      767  
+Comment Karma:   74662  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-05T12:38:14Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+For a man of behind tech companies is very scary and eerie how attached he is to speaking of the anti christ. Why does he keep bringing it up?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1042" height="721" alt="image" src="https://github.com/user-attachments/assets/79d7cb81-d795-4f18-ac95-f625bf77fced" />
+> 
+> ANSWER: Peter Thiel is creating content for Reddit audiences, Reddit fandoms of mocking. The cults of Reddit, media cultists. Tech cults on Reddit, fiction cults, video gamers. Gaming enthusiasts, cults of Peter Thiel investments. Meme connoisseurs on Reddit. Addicts to gaming media, tech smartphone shit-commenting media. BIBLE CHARACTERS HAVE NO INTELLECTUAL PROPERTY PROTECTION. Mohammad put "Christ" in the Quran / year 635 science fiction retcon. Peter Thiel is following Mohammad male tradition regarding women and retcon rewriting.
+> 
+> * Year 2011: "the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. **Surkov** is at the centre of the show, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a **strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable** because it’s indefinable. This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for **neuro-linguistic programming** and Eriksonian hypnosis: types of subliminal manipulation based largely on **confusing your opponent**, first developed in the US in the 1960s. **There are countless NLP and Eriksonian training centres in Moscow**, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator." - **20 October year 2011**. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3me4wwytosc2x https://autistics.life/@RoundSparrow/116019264375633155 }
+>
+
+
+=============
+  
+## Reddit comment o3pl3c4
+
+    entry 287
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pl3c4/  
+Comment ID:      o3pl3c4  
+Author:          BigfeetSquotch  
+Bio:               
+Account Created: 2025-02-15T15:04:21Z  
+Link Karma:      11  
+Comment Karma:   2916  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:07:42Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Please stop making “news articles” about batshit crazy assholes
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Censorship fandom on Reddit.
+>
+
+
+=============
+  
+## Reddit comment o3pnc73
+
+    entry 288
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pnc73/  
+Comment ID:      o3pnc73  
+Author:          Conscious-Dot  
+Bio:               
+Account Created: 2019-12-12T12:36:58Z  
+Link Karma:      565  
+Comment Karma:   9400  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:21:12Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This bro is nuttier than a shithouse rat. Could someone get him an MRI or a strait jacket and stop inviting him to speak places?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Comment full of Reddit street gang signs (gang signage, symbolic meme street languages) of dumb-shit insulting. Reddit is a total mockery. Fiction addicts and their streets of Internet mockery languages. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+>
+
+
+=============
+  
+## Reddit comment o3po3wb
+
+    entry 289
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3po3wb/  
+Comment ID:      o3po3wb  
+Author:          dangerrnoodle  
+Bio:               
+Account Created: 2019-08-08T07:09:53Z  
+Link Karma:      464  
+Comment Karma:   62370  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:25:40Z  
+Score:           4 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+These fools think they are gods. They are completely off their rockers and have way too much money and power than is safe for society.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Every Reddit meme consumer commenting on different pages at slightly different times. ANYTHING to AVOID GETTING ON THE SAME PAGES. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+>
+
+
+=============
+  
+## Reddit comment o3pso2l
+
+    entry 290
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pso2l/  
+Comment ID:      o3pso2l  
+Author:          ArtDecoAutomaton  
+Bio:               
+Account Created: 2011-11-05T15:45:39Z  
+Link Karma:      1289  
+Comment Karma:   26582  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:51:38Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Cant believe how many grown men want to make a villain out of the girl who wants a clean planet
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fiction addicts on Reddit, fandoms of fiction memes, can not "believe" the real world / reality.
+>
+
+
+=============
+  
+## Reddit comment o3pv1x6
+
+    entry 291
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pv1x6/  
+Comment ID:      o3pv1x6  
+Author:          ChanceGardener  
+Bio:               
+Account Created: 2013-06-12T01:30:10Z  
+Link Karma:      49  
+Comment Karma:   21987  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:04:53Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Billionaires are driving the apocalypse, not activists
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Followers on Reddit tech fandom are doing the following.
+>
+
+
+=============
+  
+## Reddit comment o3pvcj1
+
+    entry 292
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvcj1/  
+Comment ID:      o3pvcj1  
+Author:          jerryondrums  
+Bio:               
+Account Created: 2012-05-16T16:53:39Z  
+Link Karma:      16023  
+Comment Karma:   29818  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:06:31Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Everyone in this thread needs to go listen to the podcast *Behind The Bastards*, and their multi\-part series on this exact topic. Thiel is a monster, but also a stupid fucking monster. It was a very enlightening listen.
+
+
+
+
+=============
+  
+## Reddit comment o3pvd2n
+
+    entry 293
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvd2n/  
+Comment ID:      o3pvd2n  
+Author:          Happy_Drake5361  
+Bio:               
+Account Created: 2022-08-15T20:17:27Z  
+Link Karma:      1  
+Comment Karma:   21896  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:06:36Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Religious nutjobs are the worst problem in this world.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Religion is science fiction media. Media addictions are "religion". Reddit is a club of media addicts. Fandoms of media addictions. But Reddit users think only 2,000 year old "Anti Christ" cults exist, not that Reddit itself is a cult center. Bible cult is fiction cult. Reddit cult is fiction cult.
+>
+
+
+=============
+  
+## Reddit comment o3pvdl6
+
+    entry 294
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvdl6/  
+Comment ID:      o3pvdl6  
+Author:          Kimantha_Allerdings  
+Bio:               
+Account Created: 2018-05-30T17:43:40Z  
+Link Karma:      46432  
+Comment Karma:   306303  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:06:41Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This is the same tune he’s been singing for *years*
+
+By itself it’s not a problem. But…this is the guy who hand\-picked and sponsored VD Vance. He has huge influence over the current administration
+
+I’d go as far as to say that he’s the reason why Trump dying or otherwise being incapacitated would be worse than it currently is \- same influence from the same people with the same agendas, but with someone who’s got a brain and is happy to bend the knee, as opposed to someone who has to be managed like a toddler
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Peter Thiel is singing "same tune" of the Bible with many other monomyth performers and clergy. Every Church is singing those tunes every Sunday and more. Churches are science fiction fandoms. Fiction venues are Churches. Reddit is also a fiction venue for cultists of fiction, just like Church. Before digital TCP/IP media packet switching networks, people went to physical venues and not virtual Reddit cults. SEE_ALSO Mecca monomyth singers. Jewish Band Leader "The Don" of NYC, Donald F. https://www.youtube.com/watch?v=1Opx_1FkaXs "Godwhacker".
+>
+
+
+=============
+  
+## Reddit comment o3pvk32
+
+    entry 295
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvk32/  
+Comment ID:      o3pvk32  
+Author:          Informal-Term1138  
+Bio:             Edenjung :   
+Account Created: 2023-02-08T20:02:51Z  
+Link Karma:      275  
+Comment Karma:   108309  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:07:41Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Dude belongs in an asylum. 
+
+Can somebody check if Arkham is available?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit fiction addicts Batman monomyth vs. Bible "Anti-Christ" (Reddit posting title context) fandoms. Fiction vs fiction. Fiction cult of comic books vs. fiction cult of Bible books.
+>
+
+
+=============
+  
+## Reddit comment o3pvms4
+
+    entry 296
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pvms4/  
+Comment ID:      o3pvms4  
+Author:          No-Wonder1139  
+Bio:               
+Account Created: 2021-03-17T06:32:37Z  
+Link Karma:      159  
+Comment Karma:   352941  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:08:06Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+The whole Antichrist thing was written about Nero. No one was writing stories thousands of years ago about a kid protesting for a cleaner world.
+
+
+
+
+=============
+  
+## Reddit comment o3pwwtt
+
+    entry 297
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pwwtt/  
+Comment ID:      o3pwwtt  
+Author:          Mutex70  
+Bio:               
+Account Created: 2018-11-14T06:29:24Z  
+Link Karma:      4451  
+Comment Karma:   175059  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:15:03Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Peter Thiel is an insane person and we should be very concerned that he has significant political and economic influence.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "insane"
+> 
+> Mental health insulting street-gang Reddit-speak meme-speaking. Every Reddit meme consumer commenting on different pages at slightly different times. ANYTHING to AVOID GETTING ON THE SAME PAGES. Anything but quote nonfiction books about USA mental health from Dr. Bandy X Lee, a woman.
+>
+
+
+=============
+  
+## Reddit comment o3pxr9a
+
+    entry 298
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pxr9a/  
+Comment ID:      o3pxr9a  
+Author:          Mysterious_Rule938  
+Bio:               
+Account Created: 2021-09-10T13:06:15Z  
+Link Karma:      21  
+Comment Karma:   35746  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:19:40Z  
+Score:           5 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Where Greta fights tooth and nail for the betterment of humanity through environmentalism and equality, Thiel the billionaire likens her to Antichrist?
+
+As Jesus taught: “what you did not do for the least of these, you did not do for me”. If his teachings matter in an analysis of what constitutes the antichrist, Thiel’s statements and actions seem at odds with those of Greta and Jesus himself.
+
+
+
+
+=============
+  
+## Reddit comment o3pyfbp
+
+    entry 299
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pyfbp/  
+Comment ID:      o3pyfbp  
+Author:          lala47  
+Bio:               
+Account Created: 2013-07-25T17:50:52Z  
+Link Karma:      25  
+Comment Karma:   431  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:23:14Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+He is driving the end of modernity and empowering warlord type leaders. What a sick projecting Epstein pal
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "sick"
+>
+
+
+=============
+  
+## Reddit comment o3pz0ss
+
+    entry 300
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pz0ss/  
+Comment ID:      o3pz0ss  
+Author:          MnamesPAUL  
+Bio:               
+Account Created: 2012-02-03T17:37:11Z  
+Link Karma:      1067  
+Comment Karma:   9153  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T14:26:27Z  
+Score:           5 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+The difference is, if Greta Thunberg had enough money to end world hunger, she probably would
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Then why are people (We The People) not following Greta as a leader, a woman? Or following Jen Senko, a woman? or following Dr. Bandy X Lee, a woman? Or following Malala, a woman? Tech fandom of male masculine machines... Steve Jobs followers, Bill Gates followers... tech addictions Reddit society.
+>
+
+
+=============
+  
+## Reddit comment o3pb19t
+
+    entry 301
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pb19t/  
+Comment ID:      o3pb19t  
+Author:          G-bone714  
+Bio:               
+Account Created: 2017-01-18T15:27:17Z  
+Link Karma:      873  
+Comment Karma:   116302  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T11:58:53Z  
+Score:           5 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This is the guy who has been pushing JD Vance on us.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit is a cult media center for JD Vance "couch couch" chanting, religion ritual of JD Vance cultists.
+>
+
+
+=============
+  
+## Reddit comment o3pbcdg
+
+    entry 302
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbcdg/  
+Comment ID:      o3pbcdg  
+Author:          Frequent-Client1508  
+Bio:             XindiCabal :   
+Account Created: 2024-04-07T00:28:04Z  
+Link Karma:      18  
+Comment Karma:   10622  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:01:10Z  
+Score:           5 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Peter Thiel groomed vd vance for years. Him and Elon paid orange fuckface for the vp seat.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Putin has been grooming the Reddit commenting section consumers for years. Since March 2013. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o3p8zqo
+
+    entry 303
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3p8zqo/  
+Comment ID:      o3p8zqo  
+Author:          Anonplzdontexpelme  
+Bio:               
+Account Created: 2020-08-21T06:13:35Z  
+Link Karma:      25  
+Comment Karma:   13893  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T11:43:11Z  
+Score:           9 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+I remember when government officials would get in trouble for saying crazy stuff like this. I remember when the public would cancel them. What is this?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "crazy"
+> 
+> ANSWER: I remember how Reddit behaved before year 2013 when the Internet Research Agency in Saint Petersburg mind-fucked everyone. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o3pacio
+
+    entry 304
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pacio/  
+Comment ID:      o3pacio  
+Author:          Hobotronacus  
+Bio:               
+Account Created: 2018-05-01T21:55:32Z  
+Link Karma:      347  
+Comment Karma:   70628  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T11:53:40Z  
+Score:           8 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Why hasn't this man overdosed yet?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit drug dealers / marketing programming. Death-wishing out-groups. Anti-education drug peddlers. ANYTHING but turn to Dr. Bandy X Lee's mental health books for general public (Reddit is the general public). Pill cultists on Reddit.
+>
+
+
+=============
+  
+## Reddit comment o3pab6x
+
+    entry 305
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pab6x/  
+Comment ID:      o3pab6x  
+Author:          XtremeGnomeCakeover  
+Bio:               
+Account Created: 2012-01-05T09:32:26Z  
+Link Karma:      4148  
+Comment Karma:   38866  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T11:53:24Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+If I were a billionaire Christian, I'd probably blame the other side too, but hopefully not.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Programmed dreams.
+>
+
+
+=============
+  
+## Reddit comment o3pbo5h
+
+    entry 306
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbo5h/  
+Comment ID:      o3pbo5h  
+Author:          What-Hapen  
+Bio:               
+Account Created: 2016-05-23T15:45:12Z  
+Link Karma:      552  
+Comment Karma:   29099  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:03:40Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+I'm sure ghouls like this would've loved to have gotten their hands on Greta when Epstein was still around.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit audiences of memes would love commenting about it. Content addicts.
+>
+
+
+=============
+  
+## Reddit comment o3pbxj5
+
+    entry 307
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pbxj5/  
+Comment ID:      o3pbxj5  
+Author:          ceelogreenicanth  
+Bio:               
+Account Created: 2015-12-30T03:56:36Z  
+Link Karma:      23520  
+Comment Karma:   149274  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:05:37Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+You know for someone who wants to shape all human interactions through dark forces that's deeply tied to satanic ritual child abuse, it's a pretty bold statement.
+
+
+
+
+=============
+  
+## Reddit comment o3pcay1
+
+    entry 308
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pcay1/  
+Comment ID:      o3pcay1  
+Author:          DarkGamer  
+Bio:               
+Account Created: 2009-02-27T02:35:26Z  
+Link Karma:      5007  
+Comment Karma:   1039878  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:08:25Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Obligatory Link: [Could American Evangelicals Spot the Antichrist? Here Are the Biblical Predictions](https://www.benjaminlcorey.com/could-american-evangelicals-spot-the-antichrist-heres-the-biblical-predictions/)
+
+
+
+
+=============
+  
+## Reddit comment o3pe37f
+
+    entry 309
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pe37f/  
+Comment ID:      o3pe37f  
+Author:          Biffsbuttcheeks  
+Bio:               
+Account Created: 2021-03-14T17:18:07Z  
+Link Karma:      5286  
+Comment Karma:   62294  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:21:21Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+I’m pretty sure if the antichrist and apocalypse is coming, it’s going to have something to do with the BILLIONAIRE CHILD PREDATORS WHO ARE SECRETLY INFLUENCING WORLD EVENTS AND allegedly SACRIFICING CHILDREN. people allegedly like Peter Thiel
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> PRETTY SURE REDDIT IS SPREADING IT EVERY HOUR OF EVERY DATE WITH VOTING. Not election day voting, but UPVOTING anything but Dr. Bandy X Lee's nonfiction leadership.
+>
+
+
+=============
+  
+## Reddit comment o3pe8nu
+
+    entry 310
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pe8nu/  
+Comment ID:      o3pe8nu  
+Author:          oxxcccxxo  
+Bio:               
+Account Created: 2020-10-30T13:54:33Z  
+Link Karma:      55  
+Comment Karma:   35136  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:22:25Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This guy is such a lunatic. We need to end billionaires.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "lunatic"
+>
+
+
+=============
+  
+## Reddit comment o3pql9x
+
+    entry 311
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pql9x/  
+Comment ID:      o3pql9x  
+Author:          mombi  
+Bio:               
+Account Created: 2012-05-08T15:59:57Z  
+Link Karma:      286  
+Comment Karma:   54614  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-05T13:39:55Z  
+Score:           3 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+His creepy obsession with her is very concerning. Also, every single person obsessed with the anti Christ is comic book villain levels of evil. Isn't this prick a paedophile and didn't he literally buy JD Vance's way into the vice presidency so he can be the defacto leader of the US when Trump finally soils his last nappy?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Baby-talk. Shit-commenting lovers of Reddit media shit-postings shit-talk all the time, following Trump shit off Truth Social leadership. Followers of the trending shit. Reddit is shit-core cults of shit-prizing.
+> 
+> * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+>
+
+
+=============
+  
+## Reddit comment o3pap7h
+
+    entry 312
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pap7h/  
+Comment ID:      o3pap7h  
+Author:          Mediocre_lad  
+Bio:               
+Account Created: 2017-10-24T12:55:05Z  
+Link Karma:      6044  
+Comment Karma:   77016  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T11:56:22Z  
+Score:           7 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+And Greta trafficked all of them kids and raped them, and killed them and ate them. And then she set up poor little Jeffrey and innocent, amazing business man, Donald.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fiction fandom of Reddit. Addicts to fiction.
+>
+
+
+=============
+  
+## Reddit comment o3pb5lg
+
+    entry 313
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pb5lg/  
+Comment ID:      o3pb5lg  
+Author:          angrath  
+Bio:               
+Account Created: 2012-11-26T01:14:37Z  
+Link Karma:      1589  
+Comment Karma:   73774  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T11:59:46Z  
+Score:           10 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Yup. A young woman who became famous just because she wanted us to focus on fixing our environment. 
+
+Hate her now, fine \- don’t care. 
+
+But anyone who hated her when she first appeared \- hating a child for being worried about their future. Fuck them.
+
+
+
+
+=============
+  
+## Reddit comment o3pci3n
+
+    entry 314
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pci3n/  
+Comment ID:      o3pci3n  
+Author:          Electrical_Angle_701  
+Bio:               
+Account Created: 2023-01-09T00:10:22Z  
+Link Karma:      4944  
+Comment Karma:   139877  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:09:53Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Crazy billionaires will get us all killed.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Crazy"
+>
+
+
+=============
+  
+## Reddit comment o3peasv
+
+    entry 315
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peasv/  
+Comment ID:      o3peasv  
+Author:          DoomedKiblets  
+Bio:               
+Account Created: 2017-07-26T02:24:48Z  
+Link Karma:      35118  
+Comment Karma:   54619  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:22:50Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Yeah, this dude is freaking insane.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "insane"
+>
+
+
+=============
+  
+## Reddit comment o3pee1p
+
+    entry 316
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pee1p/  
+Comment ID:      o3pee1p  
+Author:          Ok_Helicopter4276  
+Bio:             Sentrino711 :   
+Account Created: 2021-05-01T11:57:41Z  
+Link Karma:      68  
+Comment Karma:   67692  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:23:28Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Of course he’s going to name Greta Thunberg, do you expect him to tell you the truth and tear the flesh\-mask off his face to reveal his full evil? 
+
+No, it’s too soon for that obviously. After the midterm elections though…
+
+
+
+
+=============
+  
+## Reddit comment o3peh6k
+
+    entry 317
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peh6k/  
+Comment ID:      o3peh6k  
+Author:          According-Garage8256  
+Bio:               
+Account Created: 2024-06-08T00:50:09Z  
+Link Karma:      539  
+Comment Karma:   1644  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:24:05Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This guy is batshit crazy and I'm legit concerned about what he's planning. Asshole ruined Lord of the Rings for me by naming his fascist overwatch surveillance organization, Palantir. Fucker!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "batshit crazy"
+>
+
+
+=============
+  
+## Reddit comment o3peiuo
+
+    entry 318
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peiuo/  
+Comment ID:      o3peiuo  
+Author:          FairTrade6677  
+Bio:               
+Account Created: 2025-12-02T19:35:01Z  
+Link Karma:      1  
+Comment Karma:   545  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:24:24Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This fucker is so fucking evil and oblivious.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o3pepo4
+
+    entry 319
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pepo4/  
+Comment ID:      o3pepo4  
+Author:          WaytoomanyUIDs  
+Bio:               
+Account Created: 2013-08-10T10:08:00Z  
+Link Karma:      4071  
+Comment Karma:   152390  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:25:43Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+To get Biblical, Donald Trump is a far better example of it, with his weird red capped apocalyptic cult.
+
+And Peter Theil is an Epstein associate, accellerationist and has regularly boasted that he is actively trying to destroy Western democracy
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Bible science fiction fandom discussing their storybook on Reddit commenting. Cults of fiction abound.
+>
+
+
+=============
+  
+## Reddit comment o3perb8
+
+    entry 320
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3perb8/  
+Comment ID:      o3perb8  
+Author:          Death-by-Fugu  
+Bio:               
+Account Created: 2023-06-30T22:07:10Z  
+Link Karma:      5  
+Comment Karma:   18848  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:26:02Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Fuckin lunatic
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "lunatic". Tiny-short two-word commenting Twitter-thinking, as programmed by the owners of Reddit and other meme sellers.
+>
+
+
+=============
+  
+## Reddit comment o3perzx
+
+    entry 321
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3perzx/  
+Comment ID:      o3perzx  
+Author:          Dpepps  
+Bio:               
+Account Created: 2015-08-30T21:00:48Z  
+Link Karma:      809  
+Comment Karma:   206738  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:26:10Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+I don't believe in the Antichrist or any cult followings, but let's pretend the Antichrist is real. I dunno, call me crazy but I'd bet he'd be associated with the worlds biggest pedophile ring leader or be the leader of it himself. He'd probably be a power hungry mad man who does any and everything he wants and never face consequences. That's just my take though.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "mad man" - Reddit end user who doesn't "believe" - but also doesn't believe in nonfiction section of the public library. Believes in commenting over and over and over at billionaires instead of educating and teaching nonfiction about "madness in men".
+> 
+> * “In Donald Trump, we have a frightening Venn diagram consisting of three circles: the first is extreme present hedonism; the second, narcissism; and the third, **bullying behavior.** These three circles overlap in the middle to create an impulsive, immature, incompetent person who, when in the position of ultimate power, easily slides into the role of tyrant, complete with family members sitting at his proverbial “ruling table.” Like a fledgling dictator, he plants psychological seeds of treachery in **sections of our population that reinforce already negative attitudes**.” ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 44.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA44&dq=%22immature,+incompetent+person+who,+when+in+the+position+of+ultimate+power,+easily+slides+into+the+role+of+tyrant%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o3petal
+
+    entry 322
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3petal/  
+Comment ID:      o3petal  
+Author:          aedilanigiro  
+Bio:             I'm a musician, gamer, cosplay enthusiast and cat feeder outside of the silly work life.  
+Account Created: 2016-10-19T14:04:17Z  
+Link Karma:      742  
+Comment Karma:   297  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:26:24Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+That guy is so weird.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "weird". Reddit Twitter-thinking cultists commenting on Bible cultists.
+>
+
+
+=============
+  
+## Reddit comment o3peub0
+
+    entry 323
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3peub0/  
+Comment ID:      o3peub0  
+Author:          ProblemOk9820  
+Bio:               
+Account Created: 2024-03-09T16:58:46Z  
+Link Karma:      1  
+Comment Karma:   9410  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:26:37Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Says the guy who worked with the modern example of the "Antichrist" by the way.
+
+This man was closely associated with Epstein (the NY financier) and conspired against proletariat interests for his own gain.
+
+He is scum.
+
+
+
+
+=============
+  
+## Reddit comment o3pft2b
+
+    entry 324
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pft2b/  
+Comment ID:      o3pft2b  
+Author:          Don-Gunvalson  
+Bio:               
+Account Created: 2020-05-29T01:30:50Z  
+Link Karma:      1118  
+Comment Karma:   72044  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:33:21Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Isn’t he also the one who spoke to JE about destabilizing the world and bringing tribalism back so he could buy up more property ?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Playing dumb on Reddit. ANYTHING to avoid quoting a nonfiction book from the public library. In Reddit culture in year 2026, it is extremely uncool to quote nonfiction serious books on important topics.
+>
+
+
+=============
+  
+## Reddit comment o3pfw3s
+
+    entry 325
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfw3s/  
+Comment ID:      o3pfw3s  
+Author:          Living-Restaurant892  
+Bio:             2 Black labs :   
+Account Created: 2024-06-19T19:18:03Z  
+Link Karma:      17341  
+Comment Karma:   67994  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:33:56Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+He appears to be unwell. He could use a mental health check.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "mental health", "unwell". Reddit user that must think hundreds of millions of USA have good mental health and health care system, insurance for health care. Because the issue isn't just one single man. It is the entire population. Reddit context blindness, only ONE person is what Reddit consumer sees, tree and not forest.  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+>
+
+
+=============
+  
+## Reddit comment o3pfylz
+
+    entry 326
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfylz/  
+Comment ID:      o3pfylz  
+Author:          MaleficentMeaning594  
+Bio:               
+Account Created: 2025-12-23T16:45:25Z  
+Link Karma:      1  
+Comment Karma:   218  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:34:25Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Religious psychosis is fascinating.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Attracted audience member. Fandom of mental sickness to comment on Reddit about.
+>
+
+
+=============
+  
+## Reddit comment o3pfzjm
+
+    entry 327
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfzjm/  
+Comment ID:      o3pfzjm  
+Author:          Anxious_Ad936  
+Bio:             L/Cpl Jones :   
+Account Created: 2021-01-05T15:34:25Z  
+Link Karma:      1  
+Comment Karma:   38656  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:34:36Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Luckily no sane government would take his deranged rantings seriously, right?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The Roman Empire in year 380 took it very seriously. But Reddit year 2026 comment community plays dumb and promotes dumb social media engagement question-asking. https://en.wikipedia.org/wiki/Christianity_as_the_Roman_state_religion
+>
+
+
+=============
+  
+## Reddit comment o3pfzys
+
+    entry 328
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pfzys/  
+Comment ID:      o3pfzys  
+Author:          Superphilipp  
+Bio:               
+Account Created: 2014-10-28T12:54:45Z  
+Link Karma:      22  
+Comment Karma:   29660  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:34:42Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+This man is psychotic and should be hospitalised
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit cultists insulting the other cults. Reddit cult member (Reddit end user, the comment creator) context blindness, only ONE person is what Reddit consumer sees, tree and not forest.  https://www.youtube.com/watch?v=09maaUaRT4M&t=743s "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"
+>
+
+
+=============
+  
+## Reddit comment o3pg4s0
+
+    entry 329
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pg4s0/  
+Comment ID:      o3pg4s0  
+Author:          jthollister  
+Bio:               
+Account Created: 2016-07-21T15:50:19Z  
+Link Karma:      1723  
+Comment Karma:   1493  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:35:37Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Southpark nailed it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Tiny-short commenting cultists with South Park fiction addictions loves the performances of Bible fiction "Anti-Christ" on Reddit venue.
+>
+
+
+=============
+  
+## Reddit comment o3pgisn
+
+    entry 330
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgisn/  
+Comment ID:      o3pgisn  
+Author:          stevekaw  
+Bio:               
+Account Created: 2020-08-07T19:06:38Z  
+Link Karma:      3  
+Comment Karma:   1603  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:38:18Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Thiel probably just wants to sleep with her. Creep.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit audience just wants to turn everything into sex with little girls topics to comment upon. Epstein / QAnon "Q Drops" cultists on Reddit. Reaction commenting "Daddy Issues" cultists. Who don't stand up and quote women and instead talk about the men and their lust for hookups.
+> 
+> * “We are about to sacrifice our civilization for the opportunity of a very small number of people to continue to make enormous amounts of money. We are about to sacrifice the biosphere so that rich people in countries like mine can live in luxury. But it is the sufferings of the many which pay for the luxuries of the few.” ― Greta Thunberg, No One Is Too Small to Make a Difference. Published May 30, 2019
+>
+
+
+=============
+  
+## Reddit comment o3pgkk6
+
+    entry 331
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgkk6/  
+Comment ID:      o3pgkk6  
+Author:          WiSoSirius  
+Bio:               
+Account Created: 2018-09-15T12:53:52Z  
+Link Karma:      500  
+Comment Karma:   85622  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:38:37Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Stop talking about this guy. Arrest him for being a pedophile with Epstein and remove him from society.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Mind-fucking Reddit audience to self-censor and shut up / stop.
+>
+
+
+=============
+  
+## Reddit comment o3pgn4i
+
+    entry 332
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgn4i/  
+Comment ID:      o3pgn4i  
+Author:          feanornoldor666  
+Bio:               
+Account Created: 2019-03-23T01:57:33Z  
+Link Karma:      106  
+Comment Karma:   21896  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:39:07Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Of course a pedo is going to blame a child.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit tech fandom bored with the plot of the media storytelling. Commenting on Reddit about the shit-postings with shit-commenting. Reddit fandom does this with any topic of importance or serious. Drowns it out with low-effort thoughtless commenting.
+>
+
+
+=============
+  
+## Reddit comment o3pgo19
+
+    entry 333
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgo19/  
+Comment ID:      o3pgo19  
+Author:          ImWhatsInTheRedBox  
+Bio:               
+Account Created: 2017-10-21T19:44:42Z  
+Link Karma:      22182  
+Comment Karma:   158344  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:39:17Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+If he's not just bull shitting, then he's literally insane.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "insane". Gullible fandom. ANYTHING but turn to Dr. Bandy X Lee's nonfiction books. Engaged fandom audience.
+>
+
+
+=============
+  
+## Reddit comment o3pgpog
+
+    entry 334
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgpog/  
+Comment ID:      o3pgpog  
+Author:          RedditPiglet  
+Bio:               
+Account Created: 2021-07-04T02:37:07Z  
+Link Karma:      1  
+Comment Karma:   1065  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:39:36Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Sweaty, grasping weirdo
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "wierdo"
+>
+
+
+=============
+  
+## Reddit comment o3pgptu
+
+    entry 335
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgptu/  
+Comment ID:      o3pgptu  
+Author:          edwardothegreatest  
+Bio:             John Smallberries : Middle aged man. Gray collar guy.   
+Account Created: 2021-01-23T02:36:48Z  
+Link Karma:      3615  
+Comment Karma:   131821  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:39:37Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Dude is off his nut
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "off his nut". Street gang lingo of Reddit cult.
+>
+
+
+=============
+  
+## Reddit comment o3pgvwa
+
+    entry 336
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgvwa/  
+Comment ID:      o3pgvwa  
+Author:          Prickle_Dimension  
+Bio:               
+Account Created: 2024-11-10T04:58:07Z  
+Link Karma:      418  
+Comment Karma:   1725  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:40:45Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Antichrist warns everyone he and a group of sociopathic gluttons are trying to wind back modern advances in society.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit audience does anything but sound alarm and call for intellectual defense. ANYTHING but turn to nonfiction and assert Dr. Bandy X Lee's leadership.
+>
+
+
+=============
+  
+## Reddit comment o3pgx5r
+
+    entry 337
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pgx5r/  
+Comment ID:      o3pgx5r  
+Author:          md_youdneverguess  
+Bio:               
+Account Created: 2021-06-04T12:21:40Z  
+Link Karma:      27396  
+Comment Karma:   139083  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:40:59Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+"Epstein\-associated billionaire who collects the blood of adolescent men to keep himself young is warning about the antichrist"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit audience cult member is creating fiction content on commenting section instead of teaching serious nonfiction by Dr. Bandy X Lee to rescue the USA and NATO from cultists.
+>
+
+
+=============
+  
+## Reddit comment o3ph4cn
+
+    entry 338
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph4cn/  
+Comment ID:      o3ph4cn  
+Author:          lucyooo  
+Bio:               
+Account Created: 2024-04-05T14:58:09Z  
+Link Karma:      130  
+Comment Karma:   31218  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:42:20Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+I’m an atheist but this guy makes me think demons are real.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fiction addicts who are describing how fiction storytelling by the richest people on Earth is more real than factual reality. Hyperreal audience of Reddit.
+>
+
+
+=============
+  
+## Reddit comment o3ph8s7
+
+    entry 339
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3ph8s7/  
+Comment ID:      o3ph8s7  
+Author:          actuallywaffles  
+Bio:               
+Account Created: 2017-07-17T07:56:32Z  
+Link Karma:      54  
+Comment Karma:   103691  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:43:08Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Peter Thiel, as in the guy in the Epstein files plotting how to ruin the world so him and his best buddy Jeffrey Epstein could make a quick buck? Sorry, I don't take religious advice from pedophiles or their accomplices.
+
+
+
+
+=============
+  
+## Reddit comment o3phbro
+
+    entry 340
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phbro/  
+Comment ID:      o3phbro  
+Author:          Shigglyboo  
+Bio:               
+Account Created: 2008-10-20T19:21:44Z  
+Link Karma:      2740  
+Comment Karma:   150862  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:43:41Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+what does Ja Rule think about all of this? why is anyone listening to this doofus? is it just because he has a lot of money? is that his qualification for being worth listening to? perhaps we should ask him about money since that's what he knows about.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Joke-washing serious topics with powerful Reddit media systems.
+>
+
+
+=============
+  
+## Reddit comment o3phhbk
+
+    entry 341
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phhbk/  
+Comment ID:      o3phhbk  
+Author:          TheRealCabbageJack  
+Bio:               
+Account Created: 2019-11-14T15:55:02Z  
+Link Karma:      4260  
+Comment Karma:   256000  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:44:42Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Remember folks, this is the guy who owns Ol’Couch Fucker
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> JD Fandom, JD Vance fanatic chanting programmed media lines about couches.
+>
+
+
+=============
+  
+## Reddit comment o3phhjq
+
+    entry 342
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phhjq/  
+Comment ID:      o3phhjq  
+Author:          RampantJellyfish  
+Bio:               
+Account Created: 2024-01-20T08:43:00Z  
+Link Karma:      1414  
+Comment Karma:   140541  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:44:45Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+When did we start listening to crazy people? Just because you have money doesn't mean your opinions are worth shit
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "When did we start listening to crazy people?" Let's see. This posting is about "Christ" Jesus, Bible in Levant, 2000 years ago when audiences started to retcon the Torah stories from thousands of years earlier. Comparative mythology education is absent in Reddit media cult fandoms.
+>
+
+
+=============
+  
+## Reddit comment o3phxh0
+
+    entry 343
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3phxh0/  
+Comment ID:      o3phxh0  
+Author:          AcrobaticSlide5695  
+Bio:               
+Account Created: 2022-03-29T02:01:04Z  
+Link Karma:      587  
+Comment Karma:   15885  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:47:38Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+« Peter Thiel professes that he is unable to engage inwhat he terms "unacceptable compromise, politics", considers democracy a failed experiment
+drawing into doubt "the wisdom ofgranting women and the poor" voting rights. »
+
+
+
+
+=============
+  
+## Reddit comment o3pisnc
+
+    entry 344
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qwizi0/peter_thiel_warns_the_antichrist_and_apocalypse/o3pisnc/  
+Comment ID:      o3pisnc  
+Author:          ProbablyNotADuck  
+Bio:             I mostly use Reddit when I am high, and I feel like that should tell you everything you need to know about my posts.  
+Account Created: 2014-01-13T02:33:32Z  
+Link Karma:      107  
+Comment Karma:   246525  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-05T12:53:17Z  
+Score:           2 points  
+Post Title:      Peter Thiel warns the Antichrist and apocalypse are linked to the ‘end of modernity’ currently happening—and cites Greta Thunberg as a driving example  
+:::::: Reddit User Comment: ======  
+Are there people who are genuinely gullible enough that they believe this crap? Like.. Really? The girl/woman whose goal is to get people to truly consider the future of the planet we're living on is the issue rather than the issue being than the libertarian authoritarian who has directly contributed to technology that has severely made the world a worse place?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Gullible people get their information from commenting without off-Reddit links.
+>
+
+
+=============
+  
+## Reddit comment o3s0n33
+
+    entry 345
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s0n33/  
+Comment ID:      o3s0n33  
+Author:          fashionforager  
+Bio:               
+Account Created: 2018-09-30T20:42:25Z  
+Link Karma:      675  
+Comment Karma:   13521  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-05T20:13:09Z  
+Score:           4506 points  
+Post Title:      Tony Hawk debunks the viral rumor he had one of his weddings on Epstein's island and Epstein’s brother photographed it.  
+:::::: Reddit User Comment: ======  
+He's . . . been married a lot.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World Divorce Affairs. Celebrity cult of Reddit. Fandom of Tony Hawk, media cults.
+> 
+> Social post { https://autistics.life/@RoundSparrow/116020170356150746 https://bsky.app/profile/roundsparrow.bsky.social/post/3me5dtqluyc2t }
+>
+
+
+=============
+  
+## Reddit comment o3s05xk
+
+    entry 346
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s05xk/  
+Comment ID:      o3s05xk  
+Author:          OriginalChildBomb  
+Bio:               
+Account Created: 2022-01-26T22:20:10Z  
+Link Karma:      962  
+Comment Karma:   178863  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-05T20:10:53Z  
+Score:           1645 points  
+Post Title:      Tony Hawk debunks the viral rumor he had one of his weddings on Epstein's island and Epstein’s brother photographed it.  
+:::::: Reddit User Comment: ======  
+Yeah, they're going hard into disinformation, trying to connect Mamdani and all sorts of progressive folks to Epstein when it isn't factually true.
+
+(I think this was always their goal with the AI push, by the way\- to further distort reality and pass on misinformation to support their shitty causes.)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fiction outsells nonfiction.
+>
+
+
+=============
+  
+## Reddit comment o3s0nif
+
+    entry 347
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s0nif/  
+Comment ID:      o3s0nif  
+Author:          awkward_sleepy  
+Bio:               
+Account Created: 2022-10-24T03:35:07Z  
+Link Karma:      128  
+Comment Karma:   9463  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-05T20:13:12Z  
+Score:           1097 points  
+Post Title:      Tony Hawk debunks the viral rumor he had one of his weddings on Epstein's island and Epstein’s brother photographed it.  
+:::::: Reddit User Comment: ======  
+This is how I learned that he's had four marriages.
+
+
+
+
+=============
+  
+## Reddit comment o3s1ppi
+
+    entry 348
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qwvyqe/tony_hawk_debunks_the_viral_rumor_he_had_one_of/o3s1ppi/  
+Comment ID:      o3s1ppi  
+Author:          ebbtideisalive  
+Bio:             KeanuWalksAmongUs :   
+Account Created: 2021-09-04T13:04:47Z  
+Link Karma:      895  
+Comment Karma:   170501  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-05T20:18:20Z  
+Score:           570 points  
+Post Title:      Tony Hawk debunks the viral rumor he had one of his weddings on Epstein's island and Epstein’s brother photographed it.  
+:::::: Reddit User Comment: ======  
+At first I thought wow Tony Hawk renewed his vows a lot, cute. Then I googled and saw that he in fact did not. Then I saw the photos of his wives and I'm sorry but they look like the same person. What a rollercoaster!
+
+
