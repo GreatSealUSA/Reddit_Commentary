@@ -123,7 +123,7 @@ Just vote a little harder next time, and we’ll fix everything for sure.
 > 
 > You can't have 5% of your population be terrorists. You can't have 10%, 30%. You gotta keep it to well below 1%. Surkov won, Putin won, NATO lost. Pentagon did not grasp 1968 book "War and Peace in the Global Village". I'm not hopeless, but things are very grim on Reddit in people not addressing the Fox News cult and Reddit cultists.
 > 
-> Reddit February 2026 midnset is TECHNICAL, that by bmocking out MAGA with technology tools, block button, just as MAGA wants to do with foreingers and immigrants and libereals... block-button the telephone ICE button...
+> Reddit February 2026 mindset is TECHNICAL, that by blocking out MAGA with technology tools, block button, just as MAGA wants to do with foreigners and immigrants and liberals... block-button the telephone ICE button...
 > 
 > QUOTE OF NONFICTION BOOK FOLLOWS:
 > 
@@ -513,4 +513,2943 @@ Temu Charlie Kirk.
 > Reddit touch device *things*... *App* things... comments.
 > 
 > * "Well, if we had really reached the postmodern in its fullest sense – the way Baudrillard uses it – it would be the computers unplugging us and not the reverse. The postmodern is a blurring of the lines between human beings and machines, a blurring of the line between reality and image. It is a society – actually I can’t even really use that word anymore – it is a world, if you will, a grouping of the world in which **reality is simply that which can be simulated, Xeroxed, copied**. That is one of his first theses, it’s a book called Simulations. It’s a very interesting thesis. Baudrillard argues that this process is… one of the central things is the way in which **we… that’s changed us fundamentally and has helped to bring our relations as humans to a close**. I mean, in a way Baudrillard sees himself as a post-apocalyptic writer. For Baudrillard the apocalypse has already occurred; it wasn’t religious or anything, it was not atomic bombs. At some point in the development of technology, **human beings ceased to be the reason** of things and things took on their own reasons… technological things." - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ - Texan Rick Roderick, Duke University
+>
+
+
+=============
+  
+## Reddit comment o3wmx1s
+
+    entry 14
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxixus/this_is_not_a_normal_reaction/o3wmx1s/  
+Comment ID:      o3wmx1s  
+Author:          Misfit_Massacre  
+Bio:             misfitxoxo : I make music and cs2 skins.   
+Account Created: 2018-04-11T17:36:49Z  
+Link Karma:      15839  
+Comment Karma:   25628  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-06T14:25:04Z  
+Score:           1849 points  
+Post Title:      This is not a normal reaction  
+:::::: Reddit User Comment: ======  
+they're always like "how could the germans let this happen" and then they let it happen to themselves. and they're proud of it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> All the "Nazi" word programming into Reddit minds, people can not study Russia Ukraine war topics in detail and fixate on 1930's Germany. Surkov won since March 2013.
+> 
+> QUOTE FROM NONFICTION BOOK FOLLOWS:
+> 
+> Hate Training Observations
+> 
+> On the other side of the religious divide stood the new Fundamentalists of Racial Purity and Christianity, whose leaders skillfully manipulated conformity enforcement mechanisms which impel us to pick on those who are different. Typical among these was a group called **Russian National Unity,** which claimed an army of 70,000, snapped up members at the age of nine, enrolled them in "military patriotic clubs," dressed them in fascist uniforms, **gave them the insignia of the swastika, taught them the Nazi salute,** drilled them in combat maneuvers, honed their marksmanship, and identified the target of their weapons in their anthem:
+> 
+>     we are going down the straight road
+>     to believe, desire, and dare
+>     death to the cosmopolitan dogs and Jews and masons!
+> 
+> National Unity's founder, karate coach Alexander Barkashov, quoted yet another tune when giving interviews on the dangers of world Jewry and of the United States:
+> 
+>     Plunge your knife in the vampire's throat  
+>     And the world will become good again.
+> 
+> Many parents welcomed National Unity's training for mass murder.
+> 
+> Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century   
+> Chapter: The **Kidnap of Mass Mind**  
+> Page: 201  
+> Howard Bloom   
+> Published: August 14, 2000
+> 
+> NOTE: I like to emphasize that this book was published before September 11, 2001 terrorism attacks on USA by Islamic / Saudi Arabians / Mecca fiction media empire followers. As it offers a great perspective of NYC research and thinking before 9/11 changed so many attitudes.
+>
+
+
+=============
+  
+## Reddit comment o3xf3xu
+
+    entry 15
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xf3xu/  
+Comment ID:      o3xf3xu  
+Author:          moonstars97  
+Bio:               
+Account Created: 2026-01-26T05:50:44Z  
+Link Karma:      1  
+Comment Karma:   2068  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T16:42:11Z  
+Score:           1501 points  
+Post Title:      Sheryl Crow calls for Trump’s impeachment and imprisonment over Epstein Files: “Who are we if we do not stand up for children who are knowingly being pedaled to rich leaders all over the world.”  
+:::::: Reddit User Comment: ======  
+The frightening part is this shouldn’t be a controversial take\- he should have been impeached about 12 times now but people’s willingness to overlook the HUMAN TRAFFICKING OF CHILDREN— there are more abusers and sick people than we are ready to admit.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 day Reddit account. Top upvoted popular comment.
+> 
+> Look at the forest for the trees. Neither Sheryl Crow's posting or the Reddit commenting community is point got follow Dr. Bandy X Lee's leadership. People are not citing nonfiction book learning and calling for comprehensive mutual understanding of our shared situation. The danger we are all in with this mass dehumanization ongoing event.
+>
+
+
+=============
+  
+## Reddit comment o3xfj5w
+
+    entry 16
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xfj5w/  
+Comment ID:      o3xfj5w  
+Author:          SugarCanDee  
+Bio:             Reddit please fix my status. I’m not NSFW. | Since November 2025 active : Beginner artist (pushing 20) who LOVES BoJack Horseman and Hell’s Kitchen
+|
+If I dislike a celebrity, ignore me.
+|
+Old alt was u/Traditional-Stick-21
+|
+Really not NSFW/I can’t show my profile pictures  
+Account Created: 2025-04-25T20:32:18Z  
+Link Karma:      87  
+Comment Karma:   67740  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T16:44:09Z  
+Score:           282 points  
+Post Title:      Sheryl Crow calls for Trump’s impeachment and imprisonment over Epstein Files: “Who are we if we do not stand up for children who are knowingly being pedaled to rich leaders all over the world.”  
+:::::: Reddit User Comment: ======  
+That’s right. Sheryl, I love you for this statement. Thank you for sharing your thoughts
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account, 2nd most popular upvoted.
+>
+
+
+=============
+  
+## Reddit comment o3xfph2
+
+    entry 17
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xfph2/  
+Comment ID:      o3xfph2  
+Author:          cranberrylimeade420  
+Bio:             I'm back to back with God, shaking the fucking universe. This is an army of two  
+Account Created: 2025-08-01T01:20:47Z  
+Link Karma:      3819  
+Comment Karma:   293883  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T16:44:59Z  
+Score:           254 points  
+Post Title:      Sheryl Crow calls for Trump’s impeachment and imprisonment over Epstein Files: “Who are we if we do not stand up for children who are knowingly being pedaled to rich leaders all over the world.”  
+:::::: Reddit User Comment: ======  
+she's right and she's right to say it! 
+
+i agree that everyone involved needs to be removed from office. no matter what their political alignment is. i hate when conservatives think they have a gotcha by going "heh, if you want to take down everyone in the Epstein files, what about BILL CLINTON??? checkmate libs"
+
+first of all idgaf about Bill Clinton. and even if it was a politician i liked, i would no longer like them if they were involved in this shit!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account. Commenting topic is the conditioned simulation of minds to respond about Clinton family.
+>
+
+
+=============
+  
+## Reddit comment o3xg03p
+
+    entry 18
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xg03p/  
+Comment ID:      o3xg03p  
+Author:          Severus-Snape-DaGod  
+Bio:             Snape  : The man of my dreams is a woman 💅🏼  
+Account Created: 2025-10-15T14:57:12Z  
+Link Karma:      57348  
+Comment Karma:   202671  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T16:46:22Z  
+Score:           170 points  
+Post Title:      Sheryl Crow calls for Trump’s impeachment and imprisonment over Epstein Files: “Who are we if we do not stand up for children who are knowingly being pedaled to rich leaders all over the world.”  
+:::::: Reddit User Comment: ======  
+He needs to be impeached (charged by the house) then removed (convicted by the senate). Then imprisoned for his crimes. His MAGA followers are so racist and hateful, they're okay with the president being a pedophile as long as they can get brown and black people out of the US.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o3xhbmj
+
+    entry 19
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xhbmj/  
+Comment ID:      o3xhbmj  
+Author:          hair-apparent  
+Bio:               
+Account Created: 2025-05-08T20:15:27Z  
+Link Karma:      51  
+Comment Karma:   2328  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T16:52:33Z  
+Score:           73 points  
+Post Title:      Sheryl Crow calls for Trump’s impeachment and imprisonment over Epstein Files: “Who are we if we do not stand up for children who are knowingly being pedaled to rich leaders all over the world.”  
+:::::: Reddit User Comment: ======  
+Our country is in a deep state of corrosion. The very fabric of our society is rotten from lack of accountability from our institutions. That goes for *all* political parties, the Epstein files have only proven what we all knew.
+
+Nixon should have gone to prison, setting a precedent for future presidents, but no. In the interest of “moving on” our leaders never pay for their crimes while their victims continue to suffer.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o3xhwci
+
+    entry 20
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xhwci/  
+Comment ID:      o3xhwci  
+Author:          sodaonmyheater  
+Bio:               
+Account Created: 2017-02-14T19:19:07Z  
+Link Karma:      737  
+Comment Karma:   56808  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T16:55:14Z  
+Score:           45 points  
+Post Title:      Sheryl Crow calls for Trump’s impeachment and imprisonment over Epstein Files: “Who are we if we do not stand up for children who are knowingly being pedaled to rich leaders all over the world.”  
+:::::: Reddit User Comment: ======  
+Genuine question because this drove me crazy the other day: “picture” with her and kid rock has been removed from her albums on streaming (Spotify and Apple Music) and I had to go find my actual physical copy of her greatest hits to make sure I wasn’t going crazy. It’s gone?
+
+I figured she pulled it because she was like “I’m not giving this pos royalty money” and this kind of doubles down on that but I found it so interesting.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> She started with Eric Clapton, which has turned into a big hate promoter. 
+> 
+> * "Based on available information, Sheryl Crow has not publicly condemned Eric Clapton regarding his past racist remarks or controversial views on COVID-19 vaccinations. Following their brief romantic relationship in the late 1990s, the two have remained on good terms, with Crow frequently expressing admiration for him, calling him a "good friend," and performing at his Crossroads Guitar Festival as recently as 2023. Despite the public controversy surrounding Clapton, Crow has not used her public platform to denounce him, instead collaborating with him as recently as her 2019 album Threads." - Google Search Summary, 2026-02-06 USA afternoon
+> 
+> * "Eric Clapton's history of controversial public statements is anchored by his infamous August 1976 concert at the Birmingham Odeon, where an inebriated Clapton launched into a racist tirade supporting far-right politician Enoch Powell. During the outburst, he repeatedly used slurs, urged the audience to “keep Britain white,” and claimed the country was becoming a "black colony". This event served as a primary catalyst for the founding of the Rock Against Racism movement. While his early 1960s career was defined by his obsession with Black American blues, critics have retrospectively examined this as a "colonialist" appropriation in light of his later rhetoric. Decades later, Clapton faced renewed backlash for his anti-lockdown and anti-vaccine positions during the COVID-19 pandemic, releasing songs like “Stand and Deliver” and “This Has Gotta Stop,” and suggesting that those following medical guidance were victims of "mass formation hypnosis". In later years, he admitted to being “a nasty person” and “full-tilt racist” during the 1970s, as well as confessing to domestic abuse against his former wife Pattie Boyd during that same era." - Google Search summary 2026-02-06 USA afternoon
+>
+
+
+=============
+  
+## Reddit comment o3xhrgf
+
+    entry 21
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xhrgf/  
+Comment ID:      o3xhrgf  
+Author:          thelastholdout  
+Bio:               
+Account Created: 2016-10-03T15:39:33Z  
+Link Karma:      7289  
+Comment Karma:   31942  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T16:54:35Z  
+Score:           31 points  
+Post Title:      Sheryl Crow calls for Trump’s impeachment and imprisonment over Epstein Files: “Who are we if we do not stand up for children who are knowingly being pedaled to rich leaders all over the world.”  
+:::::: Reddit User Comment: ======  
+Pedaled? Is that shade at Lance Armstrong?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Read the replies too. Reddit social community needs a Professor Marshall McLuhan lesson on James Joyce English.
+>
+
+
+=============
+  
+## Reddit comment o3xiho4
+
+    entry 22
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxmjch/sheryl_crow_calls_for_trumps_impeachment_and/o3xiho4/  
+Comment ID:      o3xiho4  
+Author:          Turbulent_Mushroom_2  
+Bio:               
+Account Created: 2020-12-30T13:37:43Z  
+Link Karma:      1371  
+Comment Karma:   7632  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T16:58:01Z  
+Score:           19 points  
+Post Title:      Sheryl Crow calls for Trump’s impeachment and imprisonment over Epstein Files: “Who are we if we do not stand up for children who are knowingly being pedaled to rich leaders all over the world.”  
+:::::: Reddit User Comment: ======  
+Every single person with a platform needs to be calling this out. Silence only benefits these monsters in the whitehouse.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We The People need to be calling on social media platforms IN A DIRECTION. In a PATH FORWARD. We need to be pointing and calling to Dr. Bandy X Lee's 2017 book and pick up from October 3, 2017 forward. We need to be calling out to We The People to follow Jen Senko's 2015 lead with nonfiction family stories about men being brainwashed by other men like { Epstein, Murdoch, Musk, Trump, Joe Rogan, Alex Jones, Rush Limbaugh, Putin }.
+>
+
+
+=============
+  
+## Reddit comment o3xlebf
+
+    entry 23
+
+Comment URL: https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xlebf/  
+Comment ID:      o3xlebf  
+Author:          fgwr4453  
+Bio:               
+Account Created: 2022-10-05T17:22:37Z  
+Link Karma:      4  
+Comment Karma:   123107  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T17:11:51Z  
+Score:           2940 points  
+Post Title:      GOP fast tracks monster voter suppression bill that could disenfranchise millions by requiring proof of citizenship at polls  
+:::::: Reddit User Comment: ======  
+That is a poll tax. Unless the documents required can be obtained for free (they aren’t), then this is already unconstitutional. It is a poll tax with extra steps.
+
+It also doesn’t make sense to prove it while registering and while voting.
+
+
+
+
+=============
+  
+## Reddit comment o3xh7g0
+
+    entry 24
+
+Comment URL: https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xh7g0/  
+Comment ID:      o3xh7g0  
+Author:          TuxAndrew  
+Bio:             Tux Slayer : I’m positive you can change my mind however sure of myself I seem.  
+Account Created: 2022-04-18T22:43:40Z  
+Link Karma:      34934  
+Comment Karma:   123948  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T16:52:01Z  
+Score:           827 points  
+Post Title:      GOP fast tracks monster voter suppression bill that could disenfranchise millions by requiring proof of citizenship at polls  
+:::::: Reddit User Comment: ======  
+GOP is desperate because of how bad they’re losing in recent elections.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Denial abounds on Reddit. People are so programmed into sports think logic of "winning"and "losers' by Putin and Trump messaging since March 2013. People need to lean mistakes. We can amend the USA Constitution if we get thinking in order. Hive mind PLURIBUS is essential comprehension that Reddit hive mind is programmed to be against. Surkov students won. People need to get rid of Levant mindsets the Clergy has fed to believers and non-believers alike. That there is a Devil leader and a Good Guy leader and following South Park Satan character is acceptable and normal. No, evil and good are not two choices. Evil is not a choice. Left vs. right, 2-choices binary logic is the mindsets to remove. We need to be making choices between 13 (Great Seal USA) GOOD IDEAS. Not between BAD idea vs. GOOD idea, 2 and only 2 choices.
+>
+
+
+=============
+  
+## Reddit comment o3xoyjc
+
+    entry 25
+
+Comment URL: https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xoyjc/  
+Comment ID:      o3xoyjc  
+Author:          Stereo_Jungle_Child  
+Bio:             Actual results may vary  
+Account Created: 2025-05-12T14:14:56Z  
+Link Karma:      190  
+Comment Karma:   101995  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T17:28:55Z  
+Score:           222 points  
+Post Title:      GOP fast tracks monster voter suppression bill that could disenfranchise millions by requiring proof of citizenship at polls  
+:::::: Reddit User Comment: ======  
+Face it. 
+
+Trump and the GOP will just simply refuse to accept the results of any election that they don't win. Full Stop. And they will use any rigging, intimidation, shenanigans, and fuckery that they can to subvert the electoral process. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account. Obligatory. People are NOT CALLING FOR CULT DEPROGRAMMING AND TO FOLLOW DR. BANDY X. LEE'S LEADERSHIP! Fox News cult addressing and fixing is not optional! We can't have 25% terrorism supporters, 12% terrorism supporters, 2% terrorism supporters, it needs to be much more near 0.0% terrorism supporters! Rupert Murdoch has shown us all how to create terrorism mindsets, Putin and Surkov defeated NATO!
+>
+
+
+=============
+  
+## Reddit comment o3xl9co
+
+    entry 26
+
+Comment URL: https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xl9co/  
+Comment ID:      o3xl9co  
+Author:          Pudddddin  
+Bio:               
+Account Created: 2025-02-07T12:38:51Z  
+Link Karma:      11  
+Comment Karma:   23523  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T17:11:12Z  
+Score:           401 points  
+Post Title:      GOP fast tracks monster voter suppression bill that could disenfranchise millions by requiring proof of citizenship at polls  
+:::::: Reddit User Comment: ======  
+I was told any voter ID law would just accept DLs at the polls over and over again by red hats
+
+You mean to tell me that was a LIE?? Shocking i tell you
+
+
+
+
+=============
+  
+## Reddit comment o3xnexo
+
+    entry 27
+
+Comment URL: https://old.reddit.com/r/law/comments/1qxmw2x/gop_fast_tracks_monster_voter_suppression_bill/o3xnexo/  
+Comment ID:      o3xnexo  
+Author:          Powie1965  
+Bio:               
+Account Created: 2017-11-28T17:56:27Z  
+Link Karma:      36  
+Comment Karma:   3914  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T17:21:30Z  
+Score:           89 points  
+Post Title:      GOP fast tracks monster voter suppression bill that could disenfranchise millions by requiring proof of citizenship at polls  
+:::::: Reddit User Comment: ======  
+Since I vote by mail will someone be coming to my house to check my ID?
+
+
+
+
+=============
+  
+## Reddit comment o3x6jsw
+
+    entry 28
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qxld8m/karoline_leavitt_gives_jawdropping_defense_of/o3x6jsw/  
+Comment ID:      o3x6jsw  
+Author:          returnofthecursed  
+Bio:             returnofthecursed :   
+Account Created: 2024-11-05T21:19:21Z  
+Link Karma:      1  
+Comment Karma:   12405  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-06T16:02:10Z  
+Score:           None  
+Post Title:      Karoline Leavitt Gives Jaw-Dropping Defense of Trump’s Racist Obama Video  
+:::::: Reddit User Comment: ======  
+This isn't normal. Trump is insane and his lickspittle sycophants like Leavitt are desperately trying to make it seem normal. The president is off his rocker, and not the funny version like Abe Simpson. He's got the fucking nukes, jesus fucking christ.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "not normal", "Insane"
+> 
+> Yes, it is normal Twitter and normal Reddit since at least Q4 2014. More than 11 years. People on Reddit can not recognize their own media enviornment spreading to other venues and media platforms, White House podium media channels. This is "White House Hyper Real" WHHR, as I tried to teach on this subreddit: https://old.reddit.com/r/WhiteHouseHyperReal April 24, 2017 - first year of Trump's first term in office. It is still there for learning. But Reddit fandom of Trump can't resisting making reaction comments instead of studying Surkov Hyper Reality governing methods.
+>
+
+
+=============
+  
+## Reddit comment o3x7f2a
+
+    entry 29
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qxld8m/karoline_leavitt_gives_jawdropping_defense_of/o3x7f2a/  
+Comment ID:      o3x7f2a  
+Author:          schwing710  
+Bio:               
+Account Created: 2023-03-07T03:56:55Z  
+Link Karma:      24545  
+Comment Karma:   119960  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-06T16:06:19Z  
+Score:           None  
+Post Title:      Karoline Leavitt Gives Jaw-Dropping Defense of Trump’s Racist Obama Video  
+:::::: Reddit User Comment: ======  
+Leavitt would go bobbing for apples in Trump’s soiled diaper to keep her job
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit end users, Reddit community, Reddit fandom would comment and measure each apple and turd. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Society_of_grading_and_ranking_turds.md
+>
+
+
+=============
+  
+## Reddit comment o3x6gg6
+
+    entry 30
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qxld8m/karoline_leavitt_gives_jawdropping_defense_of/o3x6gg6/  
+Comment ID:      o3x6gg6  
+Author:          PotatoeGuru  
+Bio:               
+Account Created: 2016-06-17T21:51:24Z  
+Link Karma:      98  
+Comment Karma:   28851  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-06T16:01:44Z  
+Score:           None  
+Post Title:      Karoline Leavitt Gives Jaw-Dropping Defense of Trump’s Racist Obama Video  
+:::::: Reddit User Comment: ======  
+This is LITERALLY because a six\-year old documentary about Michelle is TROUNCING that Melania abomination.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Gullible audience to how serious things are, Reddit. Thinks this was not planned back in year 2013 and is only due to current 2026 events.
+> 
+> * This is just a feedback loop of eating out of the Surkov student hands - and it was called out last year. October 19, 2024. "America's gullibility crisis" by Zachary Basu  https://www.axios.com/2024/10/19/musk-ackman-election-misinformation [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.” - October 19, 2024 - America’s gullibility crisis, Zachary Basu](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) ===:::
+> 
+> * Published January 2015, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+>
+
+
+=============
+  
+## Reddit comment o3y9pjh
+
+    entry 31
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qxq12k/dropkick_murphys_frontman_calls_out_nfl_for/o3y9pjh/  
+Comment ID:      o3y9pjh  
+Author:          ShredGuru  
+Bio:               
+Account Created: 2018-07-03T20:29:59Z  
+Link Karma:      297  
+Comment Karma:   595837  
+Comment Age:     56 minutes ago  
+Timestamp:       2026-02-06T19:07:30Z  
+Score:           96 points  
+Post Title:      Dropkick Murphys Frontman Calls Out NFL for Hypocritical Stance Toward Bad Bunny’s Super Bowl Performance: "The NFL... made everybody sit through a Charlie Kirk moment of silence"  
+:::::: Reddit User Comment: ======  
+Can't wait to see Kid Rock play his pedophile song...
+
+Actually I can probably wait forever to see that.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Cult fandom vs. cult fandom. Cult NFL vs. cult Reddit. Cult vs. cult. Entertainment media cults all.
+>
+
+
+=============
+  
+## Reddit comment o3ycavv
+
+    entry 32
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qxq12k/dropkick_murphys_frontman_calls_out_nfl_for/o3ycavv/  
+Comment ID:      o3ycavv  
+Author:          FuckChiefs_Raiders  
+Bio:               
+Account Created: 2017-02-12T03:15:23Z  
+Link Karma:      9659  
+Comment Karma:   170132  
+Comment Age:     45 minutes ago  
+Timestamp:       2026-02-06T19:20:05Z  
+Score:           45 points  
+Post Title:      Dropkick Murphys Frontman Calls Out NFL for Hypocritical Stance Toward Bad Bunny’s Super Bowl Performance: "The NFL... made everybody sit through a Charlie Kirk moment of silence"  
+:::::: Reddit User Comment: ======  
+It’s not. He’s misinformed. The NFL did not make all NFL teams do a moment of silence for Charlie Kirk. Some NFL teams didn’t do it. 
+
+This was a direct push from ownership.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People are not facing up that Trump is not a "politician" first. Trump is an entertainment actor playing Tony Clifton SNL NYC acts for fandoms.  Hating up a Tony Clifton character is not resisting a Tony Clifton performance. It is exactly how Tony Clifton acting works... hate is the very product of the hate orgy show.
+>
+
+
+=============
+  
+## Reddit comment o3y6a9o
+
+    entry 33
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qxq12k/dropkick_murphys_frontman_calls_out_nfl_for/o3y6a9o/  
+Comment ID:      o3y6a9o  
+Author:          MadFerIt  
+Bio:               
+Account Created: 2011-02-21T16:12:23Z  
+Link Karma:      2845  
+Comment Karma:   77751  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T18:51:10Z  
+Score:           233 points  
+Post Title:      Dropkick Murphys Frontman Calls Out NFL for Hypocritical Stance Toward Bad Bunny’s Super Bowl Performance: "The NFL... made everybody sit through a Charlie Kirk moment of silence"  
+:::::: Reddit User Comment: ======  
+The right is responsible for cancel culture long before they decided to give it that stupid name when it was finally directed towards their bigotry.
+
+They have always been the whiny babies crying over the smallest offence. And now they do it while supporting and defending a p3dophile president.
+
+EDIT: Looks like we have a bunch of those far\-right snowflakes in the comments whining about the e being replaced by a 3 in p3dophile as I've had comments shadow removed in the past. Here let's make them even more upset.. P3dophile p3dophile p3dophile p3dophile!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Right vs. left brain rot. 1-bit logic binary mindsets The deeper measure is fiction vs. nonfiction. Bible from Levant, science fiction fandom vs. Reddit meme fiction fandom. 9/11 Quran science fiction fandom vs. NYC Christian science fiction fandom. NFL team vs team. Levant team Quran vs. Levant team Bible, both science fiction fandom. Mosque media venue for fiction, Church media venue for fiction. Sunday NFL Bowl rectangle mind patterns of rectangle field programmable audience. I worked for the Seahawks owner and analyzed their private social media every day for 2.5 years when they were the richest people in the world in Mercer Island, Gates and Allan. Your e-mail that I ran at Paul Allen Group, Microsoft board of directors, tells more than people realize. Studying ESPN traffic patterns by hand was Starwave owner enlightening. 1997, 1998, 1999 to analyze the vibes in the office and internal Exchange Server Public Folders (intranet social media).
+> 
+> * “In fact, a 2015 study by Youyou, Kosinski and Stillwell showed that, using Facebook likes, a computer model reigned supreme in predicting human behaviour. With ten likes, the model predicted a person’s behaviour more accurately than one of their co-workers. With 150 likes, better than a family member. And with 300 likes, the model knew the person better than their own spouse.” ― Christopher Wylie, Mindf\*ck: Inside Cambridge Analytica’s **Plot to Break the World**
+> * * https://www.NYtimes.com/2015/01/20/science/facebook-knows-you-better-than-anyone-else.html January 20, 2015. Facebook Knows You Better Than Anyone Else. By Douglas Quenqua
+> 
+> * The EXPERIENCE MUSIC PROJECT Bellevue, Mythology of Woodstock 1969, Jimi Hendrix museum, reveals way more than you think to someone who goes to see Quadrophenia in Tacoma for their October Birthday gift from their girlfriend Tristan! LISTENING TO YOU! Monday, October 14, 1996. http://www.TheWhoLive.net/concert/index.php?id=851 ... LISTENING TO YOU! https://www.youtube.com/watch?v=Kf-D-LJ-5YA Tommy 1969. Deaf Dumb and Blind Autistic sensory overload-like input-output issues little boy Tom! 358,181 views April 24, 2020
+> 
+> * OPERA_A PARALLEL_QUADCORE QUADROPHENIA_MINDCORES https://www.youtube.com/watch?v=VstOmCQ2FIk "On Nov 2-3, 2013, The U.S. Army Orchestra and The U.S. Army Band Downrange combined to present a tribute to that iconic British rock band, The Who, at Brucker Hall on historic Fort Myer, Virginia. Video produced and edited by MSG Les Owen." 21,258 views March 18, 2014
+> * * QUADROPHENIA 1974 translate to: *In his 1953 essay ""James Joyce: Trivial and Quadrivial"", Marshall McLuhan explores Joyce's use of language as a multi-layered, pun-filled "crossroads of meaning". The term references the medieval Quadrivium (arithmetic, geometry, music, astronomy) to describe how Joyce's work functions as a complex, four-fold, or "mythic method".*
+> 
+> I was building social media systems in my parent's basement at age 15 and selling them. The Fortress BBS 219 area code. I was working training material for Telos Federal Systems in military networking of NAVY sonar drones at age 16 on DEC VAX/VMS systems. https://www.dcvintagewatches.com/product-page/cold-war-1988-magnavox-dropping-sonobuoys-anti-subwarfare-sonobuoy-advert Even before that, I was networking personal computers of POTS networks with my own dedicated 24-hour line peer to peer on 8-bit Commodore systems. IBM sold the entire world on OS/2 being the next big two-vendor operating system (IBM PC-DOS vs. Microsoft MS-DOS, two source code compatible sources like is done in CPU and other chip industries, license out fabrication to multiple vendors for support and supply chain diversity). Extended Edition and LAN Server from IBM were things Microsoft staff knew zero about. At Slater Steel in Fort Wayne https://www.facebook.com/groups/truefwhistory/posts/939014080082963/ and https://www.kpcnews.com/article_706065e4-d5e5-5a6f-b826-0b9304ccb35d.html , I was using DB2/2 on OS/2 to IBM AS/400 - all products Microsoft staff had no comprehensions of. I introduced PARTS on OS/2 and flew to Glendale California for training conferences. https://www.OS2world.com/wiki/index.php/Part_3:_Digitalk%27s_PARTS:_Parts_Assembly_and_Reuse_Tool_Set. At SAP I was was working with every variation of Unix and hardware vendor client/server for R/3 - all before Microsoft staff had TCP/IP experience. 
+> 
+> I did't just come from Microsoft BASIC 2.0 on a Commodore 64 and BASIC 7.0 on Commodore 128 (compiled with https://www.scribd.com/document/405779565/Blitz-BASIC-Compiler-for-the-Commodore-128-pdf Blitz). I came from Military Ada training on VAX/VMS, SAP R/3 on dozens of Unix platforms, from IBM AS/400. Even back in Fort Wayne, before SAP, I worked with RS/6000 server operations at Eagle Pitcher as a night operator and could do what I wanted with Unix. My university Purdue Fort Wayne, was a DEC VAX/VMS shop as was my high school, Snider High. As was my high school job at Telos, I had the free Microvax II system 1985 http://simh.trailing-edge.com/semi/uvax.html all night and weekends with 24 hour office access, my own office keys and root / sysadmin. It was a classroom system, all the Telos staff worked on-site at Magnavox https://www.upi.com/Archives/1990/10/11/Magnavox-guilty-of-defense-contract-spying/2019655617600/ so the training system was idle at night and weekends for me to study and any books I wanted to order, Telos paid for. I would sit there reading military industry tech magazines for minimum wage at night and weekends, take operating system books and trade journals home and read at high school.
+> 
+> All that before I had ever stepped foot in the Pacific Northwest / Redmond area. And 18 months leading the Microsoft servers call center in Garland Texas for Software Spectrum before I relocated to the Bellevue office of Egghead consulting https://www.Spokesman.com/stories/1996/apr/14/egghead-deal-paves-way-for-software-spectrum acquired by Software Spectrum consulting as the highest-level consultant working as a peer to Microsoft consulting. The existing Bellevue office staff were Lotus Notes IBM software guys, I got along great, we used Lotus Notes at SAP. I was an OS/2 published author. 
+> 
+> Thanksgiving 1996 I was settled in and we got a call from the big boys at MCS specifically requesting me to go visit Paul Allen, co-founder of Microsoft's, office. Bill Gates could have sent any number of Microsoft employees over to the founder's office... but they sent me because I had worked on an independent Exchange Server book and had taught staff at Microsoft for call center support (2 week course, 8 hour days, server at every desk, typically 15 to 20 students, solo teaching) in Redmond in February 1996 (my virgin trip to PNW, in final testing months, before June 11, 1996 release of Exchange Server) and had good teacher ratings by my Microsoft employee students.
+> 
+> I was sent to Atlanta during the Olympics teaching Georgia Pacific staff. It was the same two week course we used for support staff at Software Spectrum (and Microsoft employees in Redmond I had taught). I was there in Atlanta intermediate weekend Saturday, July 27, 1996 when the bomb went off, and my girlfriend (future wife) Tristan was freaked out calling me. Still remember those calls. Tristan and I relocated from Garland and Anna Texas to Kirkland Washington after my 18 months Garland call center agreement was over. August 1996 IIRC.
+> 
+> It was November 20 or so... a week or so before Thanksgiving 1996 and Paul Allen was still stuck on a pre-release version of Exchange Server since the June 11, 1996 release date. Nobody in Microsoft wanted to develop a pre-release to final release upgrade procedure. They telephoned my office and asked for consultation. I visited their office, reviewed their servers...  I said I could do it in the time Paul Allen was flying across the Atlantic ocean on Thanksgiving day when he didn't have TCP/IP or private connectivity on his private jets mid-ocean in 1996 yet. We upgraded that in 1997.... Vegas trade show trip to find the latest airline products.
+> 
+> Anyway... Thanksgiving gig went perfect. Shortly after, they offered me a job as a direct employee running Paul's internal messaging. Bypassing my Texas employer, BTW.
+> 
+> One thing about being professional paid **technical editor** and classroom teacher, which I got the paid gig for correcting a guy's book for free about IBM OS/2... there is no bullshiting technical writing. If the VAX/VMS manual says something works one way, and you have all night on Friday night at Telos on the MicroVAX II... you learn your reading comprehension. If the commands and programs don't run right, you didn't understand the English. RTFM. Finnegans Wake, James Joyce ;) But man, do you fucking get mental burning reading Reddit comments and it took Joyce 17 fucking years of metaphor to metaphor systems integration of Quran to Bible to Upanishads and looping the monomyths. Mental fucking burnout from context of Reddit subreddit to subreddit, time period to time period!!! Brain fucking damaging.
+> 
+> Programming languages are so fucking fragmented. Tower of Babel compilers. If you think reading my Finnegans Wake 1924 autistic English writing is hard, ha.
+>
+
+
+=============
+  
+## Reddit comment o3y5yf1
+
+    entry 34
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qxq12k/dropkick_murphys_frontman_calls_out_nfl_for/o3y5yf1/  
+Comment ID:      o3y5yf1  
+Author:          Commercial-Ladder966  
+Bio:               
+Account Created: 2025-10-31T22:19:33Z  
+Link Karma:      5  
+Comment Karma:   340  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T18:49:37Z  
+Score:           252 points  
+Post Title:      Dropkick Murphys Frontman Calls Out NFL for Hypocritical Stance Toward Bad Bunny’s Super Bowl Performance: "The NFL... made everybody sit through a Charlie Kirk moment of silence"  
+:::::: Reddit User Comment: ======  
+Are they seriously having a moment of silence for Charlie Kirk? lol
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account. Playing dumb, asking simple-thinking pattern mindset setting questions. "LOL" laugh track for Reddit media environment.
+>
+
+
+=============
+  
+## Reddit comment o3yrza7
+
+    entry 35
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxt0u0/jack_white_speaks_on_trumps_racist_post_about_the/o3yrza7/  
+Comment ID:      o3yrza7  
+Author:          VladtheInhaler999  
+Bio:             All those moments will be lost in time, like tears in rain.  
+Account Created: 2020-02-26T18:46:47Z  
+Link Karma:      163228  
+Comment Karma:   297967  
+Comment Age:     56 minutes ago  
+Timestamp:       2026-02-06T20:37:44Z  
+Score:           733 points  
+Post Title:      Jack White speaks on Trump’s racist post about the Obamas: “How is it possible we've given this evil man so much power?… Arrest this man. Impeach this man. 25th amendment this man. Indict this man. Jail this man. This longtime friend of pedophile epstein, who appears 40 thousand times in the files.”  
+:::::: Reddit User Comment: ======  
+I’m grateful Jack White is one of the few rock n roll stars. The ones who are not afraid to stand on business.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ANSWER to the post: How is it we are giving in to such an **obvious** evil man? Russia won an information war since March 2013 and the entire population is in self-denial of the NATO events going on and how obvious it all is that anti-NATO since Trump's Moscow visit November 8, 2013 is the agenda. And how avoidant everyone is to this December 20, 2013 public statement by the Kremlin: https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+> 
+> I thought Cold War Information Warriors were told to *keep their eye on the ball*... what fucking ball is everyone looking at while children and girls are fucked-over and manipulated every hour of every day in Russia and Ukraine? Since when to men on Reddit not care about girls across the ocean? Shit, in the 1960's The Beatles and The Who were swimming in girls across the ocean, so was The Beach Boys! https://en.wikipedia.org/wiki/The_Beach_Boys_On_Tour:_1968
+> 
+> Why the fuck are Reddit White Knights not defending Russian women and Russian girls from Putin? OPERA_A Pussy Riot - Punk Prayer - "Mother of God, Putin Put!" https://www.youtube.com/watch?v=1s-ZN2yZzWw  129,678 views August 18, 2012
+> 
+> I created this Subreddit or a similar one. https://old.reddit.com/r/PussyRiot - it is now banned March 26, 2022 .. my accounts all banned. Ukraine vs. Russia vs. Israel (October 7 Putin's birthday 2023) wars on Reddit. Maybe I had a alt Pussy Riot subreddit, too much brain damage from Reddit manipulation.
+>
+
+
+=============
+  
+## Reddit comment o3yrvcr
+
+    entry 36
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qxt0u0/jack_white_speaks_on_trumps_racist_post_about_the/o3yrvcr/  
+Comment ID:      o3yrvcr  
+Author:          sheyndl  
+Bio:               
+Account Created: 2018-12-23T05:33:53Z  
+Link Karma:      965  
+Comment Karma:   17884  
+Comment Age:     59 minutes ago  
+Timestamp:       2026-02-06T20:37:11Z  
+Score:           315 points  
+Post Title:      Jack White speaks on Trump’s racist post about the Obamas: “How is it possible we've given this evil man so much power?… Arrest this man. Impeach this man. 25th amendment this man. Indict this man. Jail this man. This longtime friend of pedophile epstein, who appears 40 thousand times in the files.”  
+:::::: Reddit User Comment: ======  
+He’s not wrong, but apparently Trump is untouchable. Putin must have some fascinating files on the Republicans in Congress.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit users always think blackmail, money, "documents" on every cult member. Fox News HDTV does not have document on every audience cult member. Mecca does not have documents on every Quran cult member. Reddit commenting section does not have blackmail on every Reddit cult member. Media ecology learning from Marshall McLuhan is essential to rescue USA population from this simplistic thinking about blackmail and "dirt" as the motivation for Trumpism and MAGA. The NATO Ukraine Canada Greenland Venezuela self-harm behavior is not driven by blackmail or bribes as much as mythological storytelling of the Rupert Murdoch and Surkov order!
+>
+
+
+=============
+  
+## Reddit comment o3y4kva
+
+    entry 37
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y4kva/  
+Comment ID:      o3y4kva  
+Author:          Moppermonster  
+Bio:             Grouch :   
+Account Created: 2019-10-25T16:02:10Z  
+Link Karma:      1441  
+Comment Karma:   783088  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T18:43:07Z  
+Score:           1572 points  
+Post Title:      Staffer Excuse Doesn't Fly  
+:::::: Reddit User Comment: ======  
+Amazing how a random staffer can just post things in Trumps name. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> To assume it is a human running the mindsets from the White House...
+> 
+> Hate messages just mysteriously appear on information systems.
+> 
+> * “a **peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again**. It is an improbable world. It is **a world in which the idea of human progress, as Bacon expressed it**, has been replaced by the idea of technological progress. The aim is **not to reduce ignorance, superstition, and suffering** but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will **lead to a better life**, but that is only the rhetorical residue of a vanishing technocracy. We are a culture **consuming itself with information**, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is **only now beginning to be understood that cultures may also suffer grievously from information glut**, information without meaning, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. year 1992.
+> 
+> Tweet glut commenting glut low-quality trash Reality TV fandoms. Postman sure can write in Finnegans Wake depth. The metaphors are great!
+>
+
+
+=============
+  
+## Reddit comment o3y42kk
+
+    entry 38
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y42kk/  
+Comment ID:      o3y42kk  
+Author:          PeterTheTruthSeeker  
+Bio:             Peter Jackson : An Ordinary Californian, in search of Peace in Oklahoma. History, Music Animals and Human rights.   Proudly an Anti-War Black.  
+Account Created: 2020-01-28T10:21:14Z  
+Link Karma:      408392  
+Comment Karma:   15433  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-06T18:40:43Z  
+Score:           629 points  
+Post Title:      Staffer Excuse Doesn't Fly  
+:::::: Reddit User Comment: ======  
+Blaming a staffer is so pathetic. Own your own racism. You posted it, it's on your account.
+
+
+
+
+=============
+  
+## Reddit comment o3y54du
+
+    entry 39
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y54du/  
+Comment ID:      o3y54du  
+Author:          sulris  
+Bio:               
+Account Created: 2012-04-25T03:44:51Z  
+Link Karma:      3736  
+Comment Karma:   68079  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-06T18:45:42Z  
+Score:           210 points  
+Post Title:      Staffer Excuse Doesn't Fly  
+:::::: Reddit User Comment: ======  
+Hmm. Amazing. Nothing about this excuse makes it better. The president exerts power through the people he appoints to government agencies. Should we trust his ability to appoint heads of agencies if he can’t appoint people capable of managing a social media feed? 
+
+“The president isn’t racist. He just surrounds himself with racists and puts them into positions of power”… well that also sounds like something a racist would do, doesn’t it?
+
+
+
+
+=============
+  
+## Reddit comment o3y72pp
+
+    entry 40
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y72pp/  
+Comment ID:      o3y72pp  
+Author:          GoldenHourLXXII  
+Bio:               
+Account Created: 2022-10-15T18:37:51Z  
+Link Karma:      6  
+Comment Karma:   1749  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T18:54:52Z  
+Score:           120 points  
+Post Title:      Staffer Excuse Doesn't Fly  
+:::::: Reddit User Comment: ======  
+This is incredible on two parts. 
+
+It shows how much anyone can just “impersonate” the fucking president, something that use to be literally impossible. But we know trump himself posted it testing the waters and when he didn’t get the big cheer he blames it on another. 
+
+Secondly imagine any other job if you grabbed your bosses account on social media and posted this. Fired within seconds to hours right? At this nazi house you get rewarded.
+
+
+
+
+=============
+  
+## Reddit comment o3y7ny9
+
+    entry 41
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y7ny9/  
+Comment ID:      o3y7ny9  
+Author:          kalel1980  
+Bio:             Kal : "Hell is empty and all the devils are here"  
+Account Created: 2013-08-15T23:11:10Z  
+Link Karma:      100364  
+Comment Karma:   1344343  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T18:57:39Z  
+Score:           56 points  
+Post Title:      Staffer Excuse Doesn't Fly  
+:::::: Reddit User Comment: ======  
+LOL this is how Trump tests the waters. Dude absolutely posted it. Gets HUGE backlash for stupid post, then deletes it and blames someone else, or Leavitt is out here saying that Trump likes to joke around and need to relax. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> LOL, Trump Fandom, Reddit media laugh track for Reddit fanatics.
+>
+
+
+=============
+  
+## Reddit comment o3y57wd
+
+    entry 42
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y57wd/  
+Comment ID:      o3y57wd  
+Author:          pizzaduh  
+Bio:               
+Account Created: 2024-01-31T07:59:06Z  
+Link Karma:      1052  
+Comment Karma:   95313  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-06T18:46:10Z  
+Score:           81 points  
+Post Title:      Staffer Excuse Doesn't Fly  
+:::::: Reddit User Comment: ======  
+"Lol, my little brother had my phone."
+
+
+
+
+=============
+  
+## Reddit comment o3y7pvk
+
+    entry 43
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y7pvk/  
+Comment ID:      o3y7pvk  
+Author:          Chazkuangshi  
+Bio:               
+Account Created: 2015-04-02T07:21:43Z  
+Link Karma:      7699  
+Comment Karma:   117693  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T18:57:54Z  
+Score:           40 points  
+Post Title:      Staffer Excuse Doesn't Fly  
+:::::: Reddit User Comment: ======  
+Remember when Trump said that if it's coming from his Twitter, it's an official Presidential order?  
+ So why the hell is some rando staffer supposedly able to post with his Twitter account?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Remember remember recall December 31, 2014 BBC broadcast from Adam Curtis? "Everything we're told by journalists and **politicians is confusing and contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - New Years Eve 2014 before Trump ran for office on June 16, 2015.
+>
+
+
+=============
+  
+## Reddit comment o3y7wm2
+
+    entry 44
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y7wm2/  
+Comment ID:      o3y7wm2  
+Author:          Pssfoot  
+Bio:               
+Account Created: 2025-12-02T22:21:20Z  
+Link Karma:      1  
+Comment Karma:   1148  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-06T18:58:47Z  
+Score:           12 points  
+Post Title:      Staffer Excuse Doesn't Fly  
+:::::: Reddit User Comment: ======  
+Remember the post where he dumps shit on American citizens?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o3y9dkd
+
+    entry 45
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qxpyxm/staffer_excuse_doesnt_fly/o3y9dkd/  
+Comment ID:      o3y9dkd  
+Author:          Sansred  
+Bio:             SANSd20 :   
+Account Created: 2014-10-19T20:00:28Z  
+Link Karma:      2754  
+Comment Karma:   49477  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T19:05:54Z  
+Score:           10 points  
+Post Title:      Staffer Excuse Doesn't Fly  
+:::::: Reddit User Comment: ======  
+For the sake of the argument, let's say it was a staffer that did this. What does that say about the way things are done that this staffer thought that this would be ok.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ANSWER: What does that say about the techniques of media engagement the White House is using? What does that say about Reddit comment creators (AKA, Trump Fandom) constantly commenting and avoiding serious nonfiction comparative politics and comparative religion?
+> 
+> * "what Putin **will do next** — that he’s **unpredictable** and thus dangerous. We’re rendered stunned, spun, and flummoxed by the Kremlin’s weaponization of absurdity and unreality.” - year 2014. September 9, 2014
+> https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+> 
+> Reddit fandoms of Trump will compare subreddit to subreddit, from /r/MurderByWords to /r/Conservative - but will not compare Kremlin to White House. Will not look at September 9, 2014 article on The Atlantic - which is way before November 2016 election day... CONTEXT BLINDNESS is what the Internet Research Agency induced in USA population. Recency bias. SEE_ALSO Media Ecology, author went to Neil Postman's university, New York University! "Context Blindness: Digital Technology and the Next Stage of Human Evolution (Understanding Media Ecology, 10)" – January 25, 2022 by Eva Berger
+>
+
+
+=============
+  
+## Reddit comment o3xnafm
+
+    entry 46
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staffer_for_his_racist/o3xnafm/  
+Comment ID:      o3xnafm  
+Author:          CouchCorrespondent  
+Bio:               
+Account Created: 2021-04-16T20:25:39Z  
+Link Karma:      30144  
+Comment Karma:   250787  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-06T17:20:55Z  
+Score:           None  
+Post Title:      Trump Frantically Blames ‘Staffer’ for His Racist Obama Video  
+:::::: Reddit User Comment: ======  
+Bullshit.
+
+He pushes the envelope to see if it gets the response he wants.
+
+If it doesn't, he blames someone else.
+
+He's a cowardly racist.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit chants "coward". Trump is incredibly brave and persistent. Trump is aggressive. Trump is hostile. He isn't a coward to media camera and spotlight at all. Reddit users hide their real names, real faces, real workplace names, real cities... If you want to see cowardly use of media, see the people afraid to quote real nonfiction sources. Trump is incredibly media brave. Stop thinking he is afraid of attention and bad publicity.
+> 
+> Trump understands NYC Edward Bernays. Trump understands NYC Manhattan Neil Postman. Fred Trump understood.
+> 
+> * Shared by Irshad Salim: “We are completely immune to advertising, do you know why? It’s all good news.” “Why do we find real news to be bad news? Because it tells the truth… I suggest that the reason we like bad news is (that) **it gives us a huge Survivor emotion**… we’re glad we’re not them there…” -Marshall McLuhan Kenneth Allsop interviews the world’s leading media theorist, Marshall McLuhan – the author of The Mechanical Bride, The Gutenberg Galaxy, Understanding Media, and The Medium is The Massage – about his theories of mass communication. Originally broadcast 19 August, 1971: https://despardes.com/marshall-mcluhan-on-good-news-bad-news-advertising/
+> 
+> Reddit audiences posting and shit-posting and shit-commenting get peer with Trump... "it gives us a huge Survivor emotion" That's the CORE of democracy. ANYONE can become Internet famous for shit-posting a meme. And Reddit users feel as described August 19, 1971: "it gives us a huge Survivor emotion"
+> 
+> * "The sense of this, it seemed to me, might be that from above or below, or from any point of the compass, the creative Word might be heard, which is the great thesis of democracy. Democracy assumes **that anybody from any quarter can speak**, and speak truth, because his mind is not cut off from the truth. All he has to do is clear out his passions and then speak." - 1988, Power Of Myth. https://www.GreatSealUSA.com/
+> 
+> Anyone can post a shit-post on the Internet!!! And the more FICTION it is, the more Reddit will front-page the bullshit shit-postings. Reddit is **a cult venue** of Trump bullshit media / content.
+>
+
+
+=============
+  
+## Reddit comment o3xolbo
+
+    entry 47
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staffer_for_his_racist/o3xolbo/  
+Comment ID:      o3xolbo  
+Author:          No-Post4444  
+Bio:             AltruisticArthur :   
+Account Created: 2024-07-17T08:59:10Z  
+Link Karma:      3038  
+Comment Karma:   120454  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-06T17:27:11Z  
+Score:           None  
+Post Title:      Trump Frantically Blames ‘Staffer’ for His Racist Obama Video  
+:::::: Reddit User Comment: ======  
+It honestly perplexes me how this demented asshat is able to avoid responsibility for EVERYTHING he does. Every crime he's committed, every time he's raped children, every gaffe he's made, every wild declaration he's made, every time he has defied the Constitution, every time he has openly demonstrated how much a of a sick, demented and narcissistic fascist he is...he NEVER gets held accountable for it. He is never properly called out for it. And the worst thing is that one\-third of America is actively willing to help him avoid taking even an iota of responsibility for his actions.
+
+It's genuinely depressing and disgusting to think about sometimes.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1353" height="1122" alt="image" src="https://github.com/user-attachments/assets/10076666-86d4-403c-bbc6-2cc7a3a1b931" />
+> 
+> It is perplexing to people who have not read the 1988 book "The Power of Myth" backwards and forwards. People who do not learn and study the United States of America Free Masons symbolism in the Great Seal of the United States of America. www.GreatSealUSA.com website I created for education! We have an urgent and overdue education crisis of media ecology and comparative mythology!
+> 
+> * "There is no question but that Hitler belongs in the category of the truly mystic medicine man. As somebody commented about him at the last Nürnberg party congress, since the time of Mohammed nothing like it has been seen in this world. His body does not suggest strength. The outstanding characteristic of his physiognomy is its dreamy look. I was especially struck by that when I saw pictures taken of him in the Czechoslovakian crisis; there was in his eyes the look of a seer. This markedly **mystic characteristic of Hitler's is what makes him do things which seem to us illogical, inexplicable, and unreasonable**. ... So you see, Hitler is a medicine man, a spiritual vessel, a demi-deity or, even better, **a myth**." - 
+> During an interview with H. R. Knickerbocker, first published in Hearst's International Cosmopolitan (**January 1939**), in which Dr. Carl G. Jung was asked to diagnose Adolf Hitler, Benito Mussolini, and Joseph Stalin.
+> 
+> OPERA_A "It honestly perplexes me how this demented asshat is able to avoid responsibility for EVERYTHING he does." - EVERYTHING, eh? NOTHING is True from Trump, eh? https://www.youtube.com/watch?v=9iKCELeoFGM BUT LISTEN: EVERYTHING YOU LOVE IS ABOUT TO DISAPPEAR! 224,822 views April 16, 2020
+> 
+> Social post { https://autistics.life/@RoundSparrow/116026130625526226 https://bsky.app/profile/roundsparrow.bsky.social/post/3me7ykagsws2t }
+>
+
+
+=============
+  
+## Reddit comment o3xnlc1
+
+    entry 48
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staffer_for_his_racist/o3xnlc1/  
+Comment ID:      o3xnlc1  
+Author:          Late-Dingo-8567  
+Bio:               
+Account Created: 2021-03-23T16:05:12Z  
+Link Karma:      13  
+Comment Karma:   57963  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-06T17:22:22Z  
+Score:           None  
+Post Title:      Trump Frantically Blames ‘Staffer’ for His Racist Obama Video  
+:::::: Reddit User Comment: ======  
+I thought the outrage was fake, the press secretary just told me that, why did they take the video down then?
+
+
+
+
+=============
+  
+## Reddit comment o3xn7d9
+
+    entry 49
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qxnovk/trump_frantically_blames_staffer_for_his_racist/o3xn7d9/  
+Comment ID:      o3xn7d9  
+Author:          Intelligent-Creme933  
+Bio:               
+Account Created: 2025-11-26T19:51:05Z  
+Link Karma:      1  
+Comment Karma:   408  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-06T17:20:31Z  
+Score:           None  
+Post Title:      Trump Frantically Blames ‘Staffer’ for His Racist Obama Video  
+:::::: Reddit User Comment: ======  
+worst of the worst us president
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o3yvi1f
+
+    entry 50
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3yvi1f/  
+Comment ID:      o3yvi1f  
+Author:          McGrawHell  
+Bio:               
+Account Created: 2024-12-08T07:38:04Z  
+Link Karma:      1736  
+Comment Karma:   140721  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T20:55:29Z  
+Score:           2908 points  
+Post Title:      US to Fund MAGA-Aligned Groups in Europe Amid Free Speech Disputes  
+:::::: Reddit User Comment: ======  
+Your tax dollars at work, folks.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Your Trump fandom typical comment to enable and normalize the situation, folks. People who will not turn to leaders like Jen Senko and Dr. Bandy X Lee in leading an intellectual anti-brainwashing rescue.
+>
+
+
+=============
+  
+## Reddit comment o3z21xx
+
+    entry 51
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3z21xx/  
+Comment ID:      o3z21xx  
+Author:          eeyores_gloom1785  
+Bio:               
+Account Created: 2024-12-03T20:23:09Z  
+Link Karma:      15  
+Comment Karma:   53155  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-06T21:28:01Z  
+Score:           243 points  
+Post Title:      US to Fund MAGA-Aligned Groups in Europe Amid Free Speech Disputes  
+:::::: Reddit User Comment: ======  
+\*\*terrorists\*\*
+
+because thats what they do at home too
+
+
+
+
+=============
+  
+## Reddit comment o3yx9rb
+
+    entry 52
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3yx9rb/  
+Comment ID:      o3yx9rb  
+Author:          Vv4nd  
+Bio:               
+Account Created: 2020-08-18T20:24:41Z  
+Link Karma:      25571  
+Comment Karma:   348056  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T21:04:19Z  
+Score:           380 points  
+Post Title:      US to Fund MAGA-Aligned Groups in Europe Amid Free Speech Disputes  
+:::::: Reddit User Comment: ======  
+Not saying someone should, but it would be really, really funny if people scammed the the fucking hell out of this fund.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fandom of scams and scammers. Thinks they are being sarcastic, in real harsh reality, they are hate-watching fandom. Cultists don't see the contradiction of "holy wars" where they claim the cult is about love while they wreck out-groups.
+>
+
+
+=============
+  
+## Reddit comment o3z51y9
+
+    entry 53
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3z51y9/  
+Comment ID:      o3z51y9  
+Author:          Fuzzy-Shape-1601  
+Bio:               
+Account Created: 2026-01-08T07:57:57Z  
+Link Karma:      1  
+Comment Karma:   1454  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-06T21:42:55Z  
+Score:           None  
+Post Title:      US to Fund MAGA-Aligned Groups in Europe Amid Free Speech Disputes  
+:::::: Reddit User Comment: ======  
+it's called "Foreign Influence" and it's a crime in many countries
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o3yvsyu
+
+    entry 54
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qxtka2/us_to_fund_magaaligned_groups_in_europe_amid_free/o3yvsyu/  
+Comment ID:      o3yvsyu  
+Author:          OllyDee  
+Bio:             I make music as OllyDee / 0scill8/ The Oscillator  
+Account Created: 2015-12-14T18:54:49Z  
+Link Karma:      8426  
+Comment Karma:   160309  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T20:56:59Z  
+Score:           677 points  
+Post Title:      US to Fund MAGA-Aligned Groups in Europe Amid Free Speech Disputes  
+:::::: Reddit User Comment: ======  
+The last thing we need is you bellends meddling with our democracy. Fuck off.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Start promoting Dr. Bandy X Lee's nonfiction books and leadership. The whole world wide web of Earth needs to take on mental health crisis of USA MAGA cultists (cults of hate, followers of hate leadership, including Reddit fandoms who can't admit their shit-commenting attraction to Trump shit-postings).
+>
+
+
+=============
+  
+## Reddit comment o3z4kbk
+
+    entry 55
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qxt34b/jack_white_goes_off_on_sick_deranged_president/o3z4kbk/  
+Comment ID:      o3z4kbk  
+Author:          fdesouche  
+Bio:               
+Account Created: 2013-05-07T18:44:23Z  
+Link Karma:      1151  
+Comment Karma:   73607  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-06T21:40:29Z  
+Score:           11 points  
+Post Title:      Jack White Goes Off on ‘Sick, Deranged’ President Trump for Posting Racist Video of the Obamas as Apes: “How is it possible we’ve given this evil man so much power?”  
+:::::: Reddit User Comment: ======  
+And another 3rd are okayish with this evil 3rd.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 100% of Americans are avoiding Dr. Bandy X Lee's nonfiction books. Why aren't the magical Reddit free thinkers actually doing cult deprogramming of the cult MAGA?
+>
+
+
+=============
+  
+## Reddit comment o3yuwh1
+
+    entry 56
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qxt34b/jack_white_goes_off_on_sick_deranged_president/o3yuwh1/  
+Comment ID:      o3yuwh1  
+Author:          JeffSteinMusic  
+Bio:             therealjeffstein : Musician/attorney. I write/record originals in one-man-band format and I enjoy making tribute cover videos of artists I love and admire. YT channel for that = @ therealjeffstein  
+Account Created: 2022-03-08T02:19:07Z  
+Link Karma:      1464  
+Comment Karma:   48454  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T20:52:30Z  
+Score:           65 points  
+Post Title:      Jack White Goes Off on ‘Sick, Deranged’ President Trump for Posting Racist Video of the Obamas as Apes: “How is it possible we’ve given this evil man so much power?”  
+:::::: Reddit User Comment: ======  
+“How is it possible?”
+
+Rhetorical question, I know, but, 32% of America’s free\-willed grown\-ass adults who outright voted for this, and another 37% of America’s free\-willed grown\-ass adults who couldn’t be bothered to vote at all to prevent it.
+
+It’s not like this is the first time he’s been blatantly racist. He was peddling birtherism *fifteen freaking years ago* and he’s gotten an increasing number of votes and an increased share of the popular vote each time he’s been on the ballot in the decade since.
+
+We have a societal problem, and it will not be going away with Donald Trump.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "He was peddling birtherism fifteen freaking years ago"
+> 
+> How: TWITTER. July 6, 2011 Twitter. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 You need to learn media ecology and Reddit is a cult of Trump hate messaging. Back and forth TCP/IP feedback loops of Trump hate messages, Truth Social to Reddit message mindsets. Twitter to Reddit. Tweet-thinking all over Reddit. CULTS OF MEDIA. Celebrity TV star, FICTION Reality TV!
+>
+
+
+=============
+  
+## Reddit comment o3yx118
+
+    entry 57
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qxt34b/jack_white_goes_off_on_sick_deranged_president/o3yx118/  
+Comment ID:      o3yx118  
+Author:          willise414  
+Bio:             QM Resident :   
+Account Created: 2019-01-04T14:36:42Z  
+Link Karma:      260  
+Comment Karma:   1895  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T21:03:06Z  
+Score:           16 points  
+Post Title:      Jack White Goes Off on ‘Sick, Deranged’ President Trump for Posting Racist Video of the Obamas as Apes: “How is it possible we’ve given this evil man so much power?”  
+:::::: Reddit User Comment: ======  
+Trump allowed the degenerate Americans who used to hide in the dark alley to become mainstream. They were always there, but he’s given them a voice. 
+
+This is who America is now and it will take a generation to rid itself of this stain.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This is every topic of every hour of every day on Reddit and society in USA. Avoidance of intelligent leaders who write and teach nonfiction. Dr. Bandy X Lee avoided. Any serious learning from books is ignored in favor of commenting shit-comments on Reddit and Bluesky and everywhere shit-postings. Avoided Neil Postman and Marshall McLuhan education.
+>
+
+
+=============
+  
+## Reddit comment o3wxnxd
+
+    entry 58
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1qxkbmm/black_maga_are_so_lost/o3wxnxd/  
+Comment ID:      o3wxnxd  
+Author:          ZeMadDoktore  
+Bio:               
+Account Created: 2024-08-15T20:00:34Z  
+Link Karma:      387  
+Comment Karma:   131561  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-06T15:19:39Z  
+Score:           2503 points  
+Post Title:      Black MAGA are so lost!  
+:::::: Reddit User Comment: ======  
+The White House itself acknowledged the post. So is MAGA now calling MAGA liars?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Feedback loops of feedback loops. Every media system is looping. Reddit has screenshots of Twitter discussing White House podium media. It's never-ending Trump media. The KING OF ALL MEDIA ATTRACTION. The monomyth patterns are churning and churning. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/working/Grim_Blunt/Donald_Trump_SuperStar.md#king-of-pop
+>
+
+
+=============
+  
+## Reddit comment o3wzevg
+
+    entry 59
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1qxkbmm/black_maga_are_so_lost/o3wzevg/  
+Comment ID:      o3wzevg  
+Author:          Captain_Albern  
+Bio:               
+Account Created: 2015-06-27T19:06:52Z  
+Link Karma:      28631  
+Comment Karma:   141197  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-06T15:28:14Z  
+Score:           430 points  
+Post Title:      Black MAGA are so lost!  
+:::::: Reddit User Comment: ======  
+No doubt followed by "So what if he did"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Destabilized Reality.
+> 
+> * New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+>
+
+
+=============
+  
+## Reddit comment o3z04sx
+
+    entry 60
+
+Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qxt9o3/no_wonder_the_toddler_is_unhinged_once_again_the/o3z04sx/  
+Comment ID:      o3z04sx  
+Author:          roararoarus  
+Bio:               
+Account Created: 2019-10-02T01:42:00Z  
+Link Karma:      2070  
+Comment Karma:   502432  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T21:18:31Z  
+Score:           434 points  
+Post Title:      No wonder the toddler is unhinged once again. The Obamas are competent, classy, loving, Harvard and Princeton graduates, loved by many, not on the Epstein files, got the Nobel Peace Prize, and gave us a steady economy to boot! Repost this if you agree they are AMAZING!  
+:::::: Reddit User Comment: ======  
+Is it too much to ask to have a decent human being in the White House?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> One-line we the people... passive. Brain rot audience on Reddit. Trivializing the Twitter-think commenting mindsets of an Entertainer TV star.
+>
+
+
+=============
+  
+## Reddit comment o3z1pbw
+
+    entry 61
+
+Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1qxt9o3/no_wonder_the_toddler_is_unhinged_once_again_the/o3z1pbw/  
+Comment ID:      o3z1pbw  
+Author:          Same_Woodpecker_2847  
+Bio:             oasisdude7 :   
+Account Created: 2020-10-31T00:33:34Z  
+Link Karma:      1  
+Comment Karma:   8193  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-06T21:26:19Z  
+Score:           161 points  
+Post Title:      No wonder the toddler is unhinged once again. The Obamas are competent, classy, loving, Harvard and Princeton graduates, loved by many, not on the Epstein files, got the Nobel Peace Prize, and gave us a steady economy to boot! Repost this if you agree they are AMAZING!  
+:::::: Reddit User Comment: ======  
+Every time I see something like this I’m astounded that we went from these wonderful people to the complete and utter garbage we have now.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> But not astounded enough to rescue people by teaching nonfiction cult deprogramming. Or so astounded that you no longer can engage nonfiction learning of cult deprogramming and educate and teach fellow Americans how to resist Putin's war against NATO with memes and messages. Why is nobody discussing Dr. Bandy X Lee's nonfiction books... to rescue hearts and minds from self-harm of USA...
+>
+
+
+=============
+  
+## Reddit comment o3yslqg
+
+    entry 62
+
+Comment URL: https://old.reddit.com/r/law/comments/1qxt2xf/us_moves_to_deport_5yearold_detained_in_minnesota/o3yslqg/  
+Comment ID:      o3yslqg  
+Author:          Comrade-Conquistador  
+Bio:             Hey, it's that one guy.  
+Account Created: 2020-11-01T17:26:31Z  
+Link Karma:      2818  
+Comment Karma:   283559  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-06T20:40:55Z  
+Score:           5220 points  
+Post Title:      US moves to deport 5-year-old detained in Minnesota  
+:::::: Reddit User Comment: ======  
+Imagine dedicating this much time and manpower to traumatizing a child. 
+
+Wait...Nvm, I forgot what kind of regime we're under.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1354" height="420" alt="image" src="https://github.com/user-attachments/assets/e2b60ab9-638c-4c8b-968b-72415ab7ba84" />
+> 
+> Imagine a society full of people, millions and millions of people on smartphones, with free time and spare time devoted to commenting about MAGA, Trump, ICE over and over and over that scroll off a screen to be replaced every 25 minutes with a fresh set of comments about the same situation for year after year after year... and nobody saying this is a mental health crisis of MOB MENTALITY and COPYCAT behavior of ADDICTION to low-effort commenting on CURRENT EVENTS FIXATED COMMENTING OR ANY RE-ARRANGED VARIATION OF THESE PHRASES. It isn't just me here on GitHub, anyone with social following could observe that crowds of people are flocking online to Trump ICE content. And the same people avoid NONFICTION learning and teaching. And avoid mental health topics from Dr. Bandy X Lee about Trump...
+> 
+> CONTEXT ASSERTION, IMPORTANT INFORMATION: 
+> 
+> Russia and the **Menace of Unreality**   
+> How Vladimir Putin is revolutionizing information warfare   
+> Peter Pomerantsev   
+> September 9 2014, 3:42 PM ET   
+> 
+> “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests — and then amplify the message through his total control of television.”
+> 
+> Translated from 2013 Russia to USA 2026: I.C.E. raids are very little violence and a lot of showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Reddit is amplifying media from all over the Internet. September 9, 2014: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+> 
+> Peter Pomerantsev books on paper since year 2014, NOBODY on Reddit quoting the most relevant nonfiction books!!!
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mea5xln6xs2n https://autistics.life/@RoundSparrow/116026511479637054 }
+>
+
+
+=============
+  
+## Reddit comment o3yvgvx
+
+    entry 63
+
+Comment URL: https://old.reddit.com/r/law/comments/1qxt2xf/us_moves_to_deport_5yearold_detained_in_minnesota/o3yvgvx/  
+Comment ID:      o3yvgvx  
+Author:          Frank_Zahon  
+Bio:             A Queen City purest  
+Account Created: 2022-05-05T12:19:11Z  
+Link Karma:      9184  
+Comment Karma:   38591  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-06T20:55:19Z  
+Score:           1150 points  
+Post Title:      US moves to deport 5-year-old detained in Minnesota  
+:::::: Reddit User Comment: ======  
+The level of malice these people possess is absolutely disturbing
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Disturbs Reddit audiences into Twitter-thinking reaction mindsets.
+>
+
+
+=============
+  
+## Reddit comment o3zjm64
+
+    entry 64
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxwlor/gp/o3zjm64/  
+Comment ID:      o3zjm64  
+Author:          ThisIsDadLife  
+Bio:               
+Account Created: 2015-10-27T16:57:39Z  
+Link Karma:      47090  
+Comment Karma:   245771  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-06T22:58:19Z  
+Score:           None  
+Post Title:      G🧒P  
+:::::: Reddit User Comment: ======  
+The people who are antivax to “protect the children” are the same people turning a blind eye to child rape.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Factual evidence that Twitter was used to mentally manipulate parents into harming children. August 24, 2018 public disclosure. Johns Hopkins University is world famous. World News coverage. https://www.bbc.com/news/world-us-canada-45294192 
+> 
+> But since it is not low-effort commenting, everyone is avoiding the BBC link, I repeat: https://www.bbc.com/news/world-us-canada-45294192
+>
+
+
+=============
+  
+## Reddit comment o3zu49k
+
+    entry 65
+
+Comment URL: https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o3zu49k/  
+Comment ID:      o3zu49k  
+Author:          Lonely_Noyaaa  
+Bio:             Lonely Noyaaa :   
+Account Created: 2023-08-24T06:22:51Z  
+Link Karma:      8940  
+Comment Karma:   71352  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-06T23:58:25Z  
+Score:           860 points  
+Post Title:      MAGA-friendly ‘Rock The Country’ event in Anderson canceled after bands drop out, politics cited  
+:::::: Reddit User Comment: ======  
+
+> Organizers blamed coordinated attacks and"cancel culture for the cancellations.
+
+No, bands just don't want their names attached to your fascist bullshit. That's called consequences and not cancel culture. Maybe try not being terrible people next time.
+
+
+
+
+=============
+  
+## Reddit comment o3zsnw4
+
+    entry 66
+
+Comment URL: https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o3zsnw4/  
+Comment ID:      o3zsnw4  
+Author:          ValiumBlues  
+Bio:               
+Account Created: 2024-07-18T14:45:18Z  
+Link Karma:      791  
+Comment Karma:   27357  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-06T23:50:02Z  
+Score:           454 points  
+Post Title:      MAGA-friendly ‘Rock The Country’ event in Anderson canceled after bands drop out, politics cited  
+:::::: Reddit User Comment: ======  
+All of Kid Rock’s 31 fans are going to rage\-fuck their cousins tonight.
+
+
+
+
+=============
+  
+## Reddit comment o3zxuer
+
+    entry 67
+
+Comment URL: https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o3zxuer/  
+Comment ID:      o3zxuer  
+Author:          movealongnowpeople  
+Bio:               
+Account Created: 2019-10-07T12:38:16Z  
+Link Karma:      541  
+Comment Karma:   170038  
+Comment Age:     45 minutes ago  
+Timestamp:       2026-02-07T00:19:55Z  
+Score:           None  
+Post Title:      MAGA-friendly ‘Rock The Country’ event in Anderson canceled after bands drop out, politics cited  
+:::::: Reddit User Comment: ======  
+The lineup was fucking hilarious. Kid Rock and Jason Aldean were the headliners. The artists that cancelled were Shinedown, Ludacris, Morgan Wade and Carter Faith, and Creed.
+
+Youth pastors circa 2004 are *absolutely quaking*.
+
+
+
+
+=============
+  
+## Reddit comment o401e0j
+
+    entry 68
+
+Comment URL: https://old.reddit.com/r/news/comments/1qxxmfe/magafriendly_rock_the_country_event_in_anderson/o401e0j/  
+Comment ID:      o401e0j  
+Author:          Cosmonaut_Cockswing  
+Bio:             Bruh. : Buy me a beer.  
+Account Created: 2017-04-27T13:58:33Z  
+Link Karma:      2290  
+Comment Karma:   123916  
+Comment Age:     25 minutes ago  
+Timestamp:       2026-02-07T00:40:21Z  
+Score:           None  
+Post Title:      MAGA-friendly ‘Rock The Country’ event in Anderson canceled after bands drop out, politics cited  
+:::::: Reddit User Comment: ======  
+I dislike that the article refers to MAGA as "counter culture". Like facism, capitalism, and white supremacy have literally always been just normal mainstream American cultural history.
+
+
+
+
+=============
+  
+## Reddit comment o4040dl
+
+    entry 69
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o4040dl/  
+Comment ID:      o4040dl  
+Author:          DubSket  
+Bio:               
+Account Created: 2012-04-23T21:46:55Z  
+Link Karma:      14831  
+Comment Karma:   356389  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T00:55:43Z  
+Score:           None  
+Post Title:      United States right now is like…(seen in Yucca Valley, California)  
+:::::: Reddit User Comment: ======  
+I love how MAGA's only defense at this point is "well other people are bad too!"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It works too. Cult mindsets of loyalty to badness itself.
+>
+
+
+=============
+  
+## Reddit comment o4026qz
+
+    entry 70
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o4026qz/  
+Comment ID:      o4026qz  
+Author:          MrLongWalk  
+Bio:               
+Account Created: 2012-12-11T00:25:22Z  
+Link Karma:      14539  
+Comment Karma:   494178  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T00:44:59Z  
+Score:           None  
+Post Title:      United States right now is like…(seen in Yucca Valley, California)  
+:::::: Reddit User Comment: ======  
+And Trumpers wonder why we look down on them.
+
+
+
+
+=============
+  
+## Reddit comment o40ddj0
+
+    entry 71
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o40ddj0/  
+Comment ID:      o40ddj0  
+Author:          N0rt4t3m  
+Bio:               
+Account Created: 2017-01-08T04:23:32Z  
+Link Karma:      76  
+Comment Karma:   9000  
+Comment Age:     51 minutes ago  
+Timestamp:       2026-02-07T01:53:14Z  
+Score:           None  
+Post Title:      United States right now is like…(seen in Yucca Valley, California)  
+:::::: Reddit User Comment: ======  
+I live near there. Lots of brain dead Trumpers in Yucca.
+
+
+
+
+=============
+  
+## Reddit comment o409cyz
+
+    entry 72
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o409cyz/  
+Comment ID:      o409cyz  
+Author:          ehrgeiz91  
+Bio:               
+Account Created: 2012-08-30T05:03:14Z  
+Link Karma:      3801  
+Comment Karma:   99293  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T01:28:22Z  
+Score:           None  
+Post Title:      United States right now is like…(seen in Yucca Valley, California)  
+:::::: Reddit User Comment: ======  
+How is “like your (‘re) not!” Even a comeback? Do they know ANY response besides DARVO?
+
+
+
+
+=============
+  
+## Reddit comment o409h1n
+
+    entry 73
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o409h1n/  
+Comment ID:      o409h1n  
+Author:          ThatShadyJack  
+Bio:               
+Account Created: 2014-12-08T17:05:07Z  
+Link Karma:      7679  
+Comment Karma:   80270  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T01:29:04Z  
+Score:           None  
+Post Title:      United States right now is like…(seen in Yucca Valley, California)  
+:::::: Reddit User Comment: ======  
+It’s par for the course for trumpies to have a poor grasp of their own native language
+
+
+
+
+=============
+  
+## Reddit comment o40kq13
+
+    entry 74
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o40kq13/  
+Comment ID:      o40kq13  
+Author:          old_french_whore  
+Bio:               
+Account Created: 2011-05-19T22:55:57Z  
+Link Karma:      1  
+Comment Karma:   48932  
+Comment Age:     7 minutes ago  
+Timestamp:       2026-02-07T02:38:48Z  
+Score:           None  
+Post Title:      United States right now is like…(seen in Yucca Valley, California)  
+:::::: Reddit User Comment: ======  
+Yes and no. There are certainly a lot of conservative desert dwellers who live there full time, but there are also a considerable number of more left leaning folks who own second homes there, artists, woo woo hippies, local and international tourists due to Joshua Tree National Park. The park itself attracts more than 3 million visitors per year, while the town of Yucca Valley only has around 22,000 full time residents. Hence, you tend to see a lot of culture clash stuff like this sign, or a truck decked out in MAGA stickers parked next to a Prius with a pride flag and a dreamcatcher hanging from the rear view. 
+
+There’s literally a vegan bakery across the street from the gun store.
+
+
+
+
+=============
+  
+## Reddit comment o40a3n7
+
+    entry 75
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxz5do/united_states_right_now_is_likeseen_in_yucca/o40a3n7/  
+Comment ID:      o40a3n7  
+Author:          squeamishkevin  
+Bio:               
+Account Created: 2020-08-15T14:37:12Z  
+Link Karma:      93  
+Comment Karma:   4805  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T01:32:59Z  
+Score:           None  
+Post Title:      United States right now is like…(seen in Yucca Valley, California)  
+:::::: Reddit User Comment: ======  
+The problem with these Trump supporters are that they confuse being loyal to Trump and being loyal to America being the same thing... and lack of education, why is the proper use of you're like solving Rubik's cube to these ones.
+
+
+
+
+=============
+  
+## Reddit comment o403zmt
+
+    entry 76
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o403zmt/  
+Comment ID:      o403zmt  
+Author:          Southern_Gur_4736  
+Bio:             Sascha von Bornheim : Official account of the German writer Sascha von Bornheim.  
+Account Created: 2024-04-30T16:50:40Z  
+Link Karma:      59936  
+Comment Karma:   21461  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T00:55:36Z  
+Score:           None  
+Post Title:      DHS seeks "Expedited Deportation" for Liam Conejo Ramos, 5-year old Ecuadorian boy and his father  
+:::::: Reddit User Comment: ======  
+Source: [https://www.mprnews.org/story/2026/02/05/liam\-conejo\-ramos\-dhs\-requests\-expedited\-deportation\-proceedings\-for\-family](https://www.mprnews.org/story/2026/02/05/liam-conejo-ramos-dhs-requests-expedited-deportation-proceedings-for-family)
+
+I'm sure he is totally a risk to Homeland Security, I mean he's in a pic with radical leftist superterrorist Ilhan Omar, right?
+
+/s
+
+
+
+
+=============
+  
+## Reddit comment o404z9u
+
+    entry 77
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o404z9u/  
+Comment ID:      o404z9u  
+Author:          smulligan04031989  
+Bio:             GrailForever :   
+Account Created: 2020-08-28T02:37:49Z  
+Link Karma:      6580  
+Comment Karma:   12554  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T01:01:35Z  
+Score:           None  
+Post Title:      DHS seeks "Expedited Deportation" for Liam Conejo Ramos, 5-year old Ecuadorian boy and his father  
+:::::: Reddit User Comment: ======  
+Disgusting. DHS is pissed these two got away and that the DHS got terrible press for it.
+
+
+
+
+=============
+  
+## Reddit comment o404i7t
+
+    entry 78
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o404i7t/  
+Comment ID:      o404i7t  
+Author:          RxAffliction  
+Bio:               
+Account Created: 2014-11-17T14:43:07Z  
+Link Karma:      5197  
+Comment Karma:   5763  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T00:58:43Z  
+Score:           None  
+Post Title:      DHS seeks "Expedited Deportation" for Liam Conejo Ramos, 5-year old Ecuadorian boy and his father  
+:::::: Reddit User Comment: ======  
+Disgusting, disgraceful, when is it enough God damn it!
+
+
+
+
+=============
+  
+## Reddit comment o4077s6
+
+    entry 79
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o4077s6/  
+Comment ID:      o4077s6  
+Author:          warrant2k  
+Bio:             World'sOkayestDM :   
+Account Created: 2016-06-22T14:59:01Z  
+Link Karma:      59059  
+Comment Karma:   203037  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T01:15:12Z  
+Score:           None  
+Post Title:      DHS seeks "Expedited Deportation" for Liam Conejo Ramos, 5-year old Ecuadorian boy and his father  
+:::::: Reddit User Comment: ======  
+They want more rage bait to distract from the other stuff they are doing. 
+
+And to distract from the Epstein files.
+
+
+
+
+=============
+  
+## Reddit comment o4062v3
+
+    entry 80
+
+Comment URL: https://old.reddit.com/r/pics/comments/1qxzl5a/dhs_seeks_expedited_deportation_for_liam_conejo/o4062v3/  
+Comment ID:      o4062v3  
+Author:          PoliticalMilkman  
+Bio:             PoliticalMilkman :   
+Account Created: 2011-05-05T03:37:10Z  
+Link Karma:      14077  
+Comment Karma:   99659  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T01:08:14Z  
+Score:           None  
+Post Title:      DHS seeks "Expedited Deportation" for Liam Conejo Ramos, 5-year old Ecuadorian boy and his father  
+:::::: Reddit User Comment: ======  
+You can’t reason with subhuman fascists.
+
+
+
+
+=============
+  
+## Reddit comment o40v75a
+
+    entry 81
+
+Comment URL: https://old.reddit.com/r/news/comments/1qy00tq/border_patrol_boss_gregory_bovino_tossed_from_las/o40v75a/  
+Comment ID:      o40v75a  
+Author:          kstargate-425  
+Bio:               
+Account Created: 2025-04-27T02:46:55Z  
+Link Karma:      12  
+Comment Karma:   12632  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-07T03:46:00Z  
+Score:           244 points  
+Post Title:      Border Patrol boss Gregory Bovino tossed from Las Vegas bar  
+:::::: Reddit User Comment: ======  
+Its insane how many of the current regime will be disbarred after this is over. Blondi would have been as shes been before the FL bar three times but they keep refusing to do it because they dont want to set a precedent of disbarring a sitting AG. 
+
+Then we have the DoJ entering fraudulent evidence in 35\+ separate cases that judges remarked on in just the first 9 months besides all the malicious prosecution and other bs they keep doing for Trumps revenge tour that will have so many of them unable to practice law ever again.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account.
+> 
+> Messaging "insane". Is the whole message promoting social denial of power?
+>
+
+
+=============
+  
+## Reddit comment o40goj7
+
+    entry 82
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40goj7/  
+Comment ID:      o40goj7  
+Author:          c_c_c__combobreaker  
+Bio:             combobreaker :   
+Account Created: 2014-12-17T12:33:48Z  
+Link Karma:      3606  
+Comment Karma:   973767  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-07T02:13:27Z  
+Score:           768 points  
+Post Title:      Trump faces backlash over racist video portraying the Obamas as apes  
+:::::: Reddit User Comment: ======  
+It's racist regardless of how some conservatives want to justify it. They just don't care.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes, they care. Trump is an entertainer. Fiction storytelling is Putin and Trump's system. Fandoms of fiction on Reddit and all over the USA care that their fiction entertainment is attracting audiences to comment upon it. Fandom vs. fandom. It's content for the cults of celebrity. People on Reddit will not see their own attraction to bad guys in fiction storytelling.
+>
+
+
+=============
+  
+## Reddit comment o40i4pp
+
+    entry 83
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40i4pp/  
+Comment ID:      o40i4pp  
+Author:          Nonamanadus  
+Bio:               
+Account Created: 2012-12-10T21:46:32Z  
+Link Karma:      14263  
+Comment Karma:   155320  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-07T02:22:25Z  
+Score:           335 points  
+Post Title:      Trump faces backlash over racist video portraying the Obamas as apes  
+:::::: Reddit User Comment: ======  
+That should be a career ending move but hey we are talking about a pedo who instigated an insurrection.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Hate-watching of content has taken over every area of society. If anyone is recorded and uploaded on camera acting odd or unusual or stressed out, it's content for video distribution Reddit. Trump is a celebrity and actor doing acting and popular as a hate subject. The audience is the problem. Fandoms giving up power to machine addictions of delivery format and delivery venue are the problem. Hate is the mind-altering substance that attracts We The People to give up power and wealth to an attractive source of content creation, Trump and his supporting actors. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o40e77r
+
+    entry 84
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40e77r/  
+Comment ID:      o40e77r  
+Author:          tinyhorsesinmytea  
+Bio:               
+Account Created: 2017-12-30T06:35:16Z  
+Link Karma:      205  
+Comment Karma:   326832  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-07T01:58:19Z  
+Score:           1366 points  
+Post Title:      Trump faces backlash over racist video portraying the Obamas as apes  
+:::::: Reddit User Comment: ======  
+It will. His racist supporters will like him even more!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> All fandoms now in USA 2026 prize hate. People in year 2012 and earlier often prized education, learning, understanding and not just attracted to hate. But now it is all one common attraction. Hate vs. hate. Fandom vs. fandom. Hate-watchers of Reddit got their prized hate content and can mock and hate other fandoms.
+>
+
+
+=============
+  
+## Reddit comment o40finw
+
+    entry 85
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qy0wc3/trump_faces_backlash_over_racist_video_portraying/o40finw/  
+Comment ID:      o40finw  
+Author:          takofire  
+Bio:               
+Account Created: 2013-05-27T20:08:24Z  
+Link Karma:      12585  
+Comment Karma:   98050  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-07T02:06:20Z  
+Score:           1550 points  
+Post Title:      Trump faces backlash over racist video portraying the Obamas as apes  
+:::::: Reddit User Comment: ======  
+I don't think we've ever had a president with such poor decorum. When he's not insulting everyone who isn't bending the knee, he's literally shitting his diapers on TV. I honestly don't understand how someone can listen to Trump and think "yeah, this guy should control our nukes" when he can't even legally own a gun because he's a convicted felon. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We didn't have the Apple iPhone before year 2007. We didn't have Reddit before year 2005. Trump was an old white guy that got on Twitter July 6, 2011. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 That's what changed. Reddit is what changed. Twitter is what hanged. The abandonment of Neil Postman and Marshall McLuhan understandings of high-speed information systems is what changed. People avoiding nonfiction learning, including Dr. Bandy X Lee, is what changed. "The media" is what changed, the medium, Reddit is what changed, Tweeting is what changed. Mindsets that seek speedy reactions and shit-talking.
+>
+
+
+=============
+  
+## Reddit comment o40eh94
+
+    entry 86
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40eh94/  
+Comment ID:      o40eh94  
+Author:          CommitteeStatus  
+Bio:             Committee Status :   
+Account Created: 2020-06-28T04:03:08Z  
+Link Karma:      1459  
+Comment Karma:   25771  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-07T02:00:01Z  
+Score:           20 points  
+Post Title:      That tells you about the social medias  
+:::::: Reddit User Comment: ======  
+Reddit still has em' up.
+
+
+
+
+=============
+  
+## Reddit comment o40kszo
+
+    entry 87
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40kszo/  
+Comment ID:      o40kszo  
+Author:          _RockOfAegis_  
+Bio:               
+Account Created: 2023-10-10T09:16:46Z  
+Link Karma:      91  
+Comment Karma:   962  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-07T02:39:19Z  
+Score:           13 points  
+Post Title:      That tells you about the social medias  
+:::::: Reddit User Comment: ======  
+No shit big tech companies including but not limited to google, apple, meta, amazon, microsoft, HP, micron, palantir and hundreds of other tech companies, private entities, funds and foundations have donated to dementia dons campaign, inauguration, ballroom and memecoin. These tech companies are either using the Trump admins grift to enrich themselves at the taxpayers expense or they are scared of the rise of socialism within the democratic party.
+
+
+
+
+=============
+  
+## Reddit comment o40ld05
+
+    entry 88
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1qy0vgw/that_tells_you_about_the_social_medias/o40ld05/  
+Comment ID:      o40ld05  
+Author:          The3mbered0ne  
+Bio:               
+Account Created: 2019-11-18T18:40:27Z  
+Link Karma:      19791  
+Comment Karma:   113613  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-07T02:42:44Z  
+Score:           3 points  
+Post Title:      That tells you about the social medias  
+:::::: Reddit User Comment: ======  
+They ARE his regime, the government is becoming more oligarchical, think about how much an algorithm affects elections, it's what Cambridge Analytica was all about.
+
+
+
+
+=============
+  
+## Reddit comment o41h0b5
+
+    entry 89
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41h0b5/  
+Comment ID:      o41h0b5  
+Author:          ihatethiscountry76  
+Bio:             If you didn't vote for Kamala in 2024, I have no interest in talking to you  
+Account Created: 2024-11-06T12:35:55Z  
+Link Karma:      1196596  
+Comment Karma:   73637  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-07T06:33:16Z  
+Score:           200 points  
+Post Title:      No wonder the toddler is unhinged once again. The Obamas are competent, classy, loving, Harvard and Princeton graduates, loved by many, not on the Epstein files, got the Nobel Peace Prize, and gave us a steady economy to boot! Repost this if you agree they are AMAZING!  
+:::::: Reddit User Comment: ======  
+To become president, Obama had to be the best in everything he did.
+
+To become president, trump just had to be an awful human being.
+
+we went from obama to trump because people couldn't bring themselves to vote for a woman...twice
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Denial of Ukraine war, denial that lies and falsehoods are all over Reddit, denial of so much to fixate on the story that Trump tells... it is TRUMP's talking point that black people are the problem. And Reddit people have put that into their minds. It is the POPULATION that can't stop fucking talking about god damn Trump / ICE / MAGA and turn THE POPULATION attention to Dr. Bandy X Lee nonfiction serious books.
+>
+
+
+=============
+  
+## Reddit comment o41m5ry
+
+    entry 90
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41m5ry/  
+Comment ID:      o41m5ry  
+Author:          Iceprincess1282  
+Bio:               
+Account Created: 2019-01-30T05:48:17Z  
+Link Karma:      40  
+Comment Karma:   4095  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-07T07:19:58Z  
+Score:           12 points  
+Post Title:      No wonder the toddler is unhinged once again. The Obamas are competent, classy, loving, Harvard and Princeton graduates, loved by many, not on the Epstein files, got the Nobel Peace Prize, and gave us a steady economy to boot! Repost this if you agree they are AMAZING!  
+:::::: Reddit User Comment: ======  
+Me too! Why can’t we have a nice family like them back in office again! So normal, good kids, had pets so huge green flag, and was just a normal family! He was great as a president! So since trump says he running again does that mean Obama can run again? If so pls pls pls sir help this country out!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> To understand why Trump has so much power, this is part of the reason. Cult behavior so that only Obama can rescue. Kamala Harris or thousands of other qualified leaders can't do the job, only icons people already are locked into. The whole point of a Vice President replacing a President and such is that the job is a job. But people have used "the media", media systems, to become cult members and team-sports "winner takes all" logic. Millions of people can work at restaurants and run them successfully all over the USA. But people can't imagine 2000 or 3000 people qualified to be a good governor of California or leader of USA. We are a nation of 0.34 billion out of a planet o 8 billion people. Yet, our thinking is narrow and small-minded ideas.
+>
+
+
+=============
+  
+## Reddit comment o41x2vn
+
+    entry 91
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41x2vn/  
+Comment ID:      o41x2vn  
+Author:          Used-Hold1358  
+Bio:               
+Account Created: 2025-07-29T01:10:03Z  
+Link Karma:      1  
+Comment Karma:   1266  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T09:04:21Z  
+Score:           -2 points  
+Post Title:      No wonder the toddler is unhinged once again. The Obamas are competent, classy, loving, Harvard and Princeton graduates, loved by many, not on the Epstein files, got the Nobel Peace Prize, and gave us a steady economy to boot! Repost this if you agree they are AMAZING!  
+:::::: Reddit User Comment: ======  
+Except for all the country’s he bombed.. the whistle blowers he prosecuted and the financial gangsters he bailed out. Don’t get me wrong Obama is leagues better than trump but don’t pretend Obama was a saint. He was a charismatic well spoken mask on the same corporate corrupt system.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account
+>
+
+
+=============
+  
+## Reddit comment o41hwym
+
+    entry 92
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1qy64za/no_wonder_the_toddler_is_unhinged_once_again_the/o41hwym/  
+Comment ID:      o41hwym  
+Author:          Local_Cheek_2981  
+Bio:               
+Account Created: 2020-11-12T22:07:31Z  
+Link Karma:      278  
+Comment Karma:   5252  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-07T06:41:29Z  
+Score:           24 points  
+Post Title:      No wonder the toddler is unhinged once again. The Obamas are competent, classy, loving, Harvard and Princeton graduates, loved by many, not on the Epstein files, got the Nobel Peace Prize, and gave us a steady economy to boot! Repost this if you agree they are AMAZING!  
+:::::: Reddit User Comment: ======  
+Why can’t we see Obama without someone mentioning drone strikes. It doesn’t excuse it but he’s not even the president or like, a diddler?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> A Reddit user that does not comprehend information warfare taking place on Reddit. A failure to teach media ecology from Marshall McLuhan and Neil Postman to a society. People fail to see patterns in media and thinking changes in year 2013 to favor simple-think Tweet-length commenting and to avoid serious nonfiction learning.
+>
+
+
+=============
+  
+## Reddit comment o42492s
+
+    entry 93
+
+Comment URL: https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox_news_today_saying_hes/o42492s/  
+Comment ID:      o42492s  
+Author:          Biscuits4u2  
+Bio:               
+Account Created: 2020-06-28T20:06:14Z  
+Link Karma:      10638  
+Comment Karma:   591005  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-07T10:15:53Z  
+Score:           2 points  
+Post Title:      MRW Mike Tyson was on Fox News today saying he's 100% for Trump and that Trump is a "genuine person"  
+:::::: Reddit User Comment: ======  
+Nah Tyson has always been a dirtbag. He just got a pass from most people because he was the champ.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Mike Tyson is a fame-seeking celebrity who admires Trump's celebrity. The reason Reddit is talking about both people is because of their celebrity. And Fox News knows how to brew celebrity into the minds of audiences, including celebrity fandoms on Reddit. This is all media ecology topics of Neil Postman and Marshall McLuhan that Reddit society is not self-aware of... and acting compulsively towards pro-violence anti-diplomacy Mike Tyson
+> 
+> Instead of promoting brain-damage causing fight as cool and popular, culture needs to look at the ignorance celebration that powers MAGA and the cult of Fox News ignorance. Comedy and amusement and watching videos of men avoiding the public library is kind of Trump breeding ground of the mind. Physical and power domination over women.
+> 
+> * “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business.
+>
+
+
+=============
+  
+## Reddit comment o4139i6
+
+    entry 94
+
+Comment URL: https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox_news_today_saying_hes/o4139i6/  
+Comment ID:      o4139i6  
+Author:          zx7  
+Bio:             zx7 : I don't drink, fight or fuck; but these days, I find myself wanting to do all three.
+
+-Anis Mojgani  
+Account Created: 2013-02-18T22:43:22Z  
+Link Karma:      6472  
+Comment Karma:   111227  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-07T04:42:54Z  
+Score:           60 points  
+Post Title:      MRW Mike Tyson was on Fox News today saying he's 100% for Trump and that Trump is a "genuine person"  
+:::::: Reddit User Comment: ======  
+He IS a convicted rapist.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit audience has to be reminded as there is so much male brainwashing going n to normalize rape that people don't even recognize how common famous people who are shit leaders are around.
+>
+
+
+=============
+  
+## Reddit comment o40tdbf
+
+    entry 95
+
+Comment URL: https://old.reddit.com/r/reactiongifs/comments/1qy2ivs/mrw_mike_tyson_was_on_fox_news_today_saying_hes/o40tdbf/  
+Comment ID:      o40tdbf  
+Author:          madmanz123  
+Bio:               
+Account Created: 2007-08-20T14:25:43Z  
+Link Karma:      457  
+Comment Karma:   50760  
+Comment Age:     10 hours ago  
+Timestamp:       2026-02-07T03:33:47Z  
+Score:           348 points  
+Post Title:      MRW Mike Tyson was on Fox News today saying he's 100% for Trump and that Trump is a "genuine person"  
+:::::: Reddit User Comment: ======  
+I never understood the popularity/rehab of his image. Yes, in many ways he was a tragic figure... but yeah. Also fucking this.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Understand that bad guys are considered awesome and cool to men. It isn't just Elon Musk, Donald Trump, Putin that are super-cool to men as role models for children. Vince Gilligan's February 15, 2025 WGA speech about Walter White being seen as a cool awesome character.... Trump plays a character. Boxing is done in a rectangle. Simple mindsets. Andy Kaufman is one of the few to try and get people woke, but the LOL reactions are what most people do.
+>
+
+
+=============
+  
+## Reddit comment o411m2w
+
+    entry 96
+
+Comment URL: https://old.reddit.com/r/HistoryUncovered/comments/1qy0rmg/on_october_10_2008_senator_john_mccain_did_the/o411m2w/  
+Comment ID:      o411m2w  
+Author:          PaintAdventurous8787  
+Bio:               
+Account Created: 2023-08-10T02:23:09Z  
+Link Karma:      1  
+Comment Karma:   834  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-07T04:30:54Z  
+Score:           24 points  
+Post Title:      On October 10, 2008, Senator John McCain did the right thing and told his fellow Republicans they did not need to fear Obama and that "He is a decent family man"  
+:::::: Reddit User Comment: ======  
+Sadly yes. Ita been taken over by the insane Trump cult.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> But that does not explain why all the supposedly "SANE PEOPLE" in "the other party" can not stop commenting about Trump every day and every hour of those days on social media computer systems. Over and over, for over a decade, commenting about how fat, ugly, orange, dumb, stupid, idiot Donald Trump is. WHY ARE SOCIAL MEDIA USERS NOT EDUCATING PEOPLE? Why are NONFICTION BOOKS that explain what is going on in detail and verbose rich complex understanding IGNORED in favor of short-commenting shit-talk messages like the Reddit comment I am highlighting and sharing here on GitHub?
+> 
+> What the fuck does orange cosmetic makeup have to do with the evils and poor thinking of Donald Trump? it's superficial and banal, just like REDDIT COMMENTING IS. Judging people based on shallow surface concerns is the crisis! Skin color of black! Skin color of brown! Spoken language of Spanish or English or even how I, as an autistic, compose my fucking paragraphs and the word choices I make!
+> 
+> WHY ARE SOCIAL MEDIA USERS NOT ASSERTING AND QUOTING Dr. Bandy X Lee? If ONLY MAGA is insane by media mania of high-speed Twitter and Reddit, why are REDDIT USERS not wanting to TREAT PEOPLE who are "INSANE"? Why are people not teaching serious and detailed cult deprogramming and how to address the crisis of Fox News HDTV media mind patterns and mental outcomes?
+>
+
+
+=============
+  
+## Reddit comment o42gvaa
+
+    entry 97
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42gvaa/  
+Comment ID:      o42gvaa  
+Author:          Theferael_me  
+Bio:               
+Account Created: 2021-07-18T21:50:37Z  
+Link Karma:      85095  
+Comment Karma:   252745  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T12:12:07Z  
+Score:           None  
+Post Title:      From Epstein to Bezos, the ruling class is rotten to the core  
+:::::: Reddit User Comment: ======  
+The Epstein scandal has just shown the entire world that everything is geared towards protecting the rich. Absolute parasites.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And I was there when it all started. 1996 Bellevue Washington. Microsoft Exchange Server 4.0 release. I was a published author, lifelong expert in social media. Hired to work for the co-founder of Microsoft as a Principal consultant from Software Spectrum in Garland, Texas (where I worked on the book and got certified as a MCSE and certified instructor for Microsoft Exchange). I was $250.00 an hour billable ($532/hour inflation adjusted 2026) in Bellevue, Washington working as a salaried employee for Software Spectrum Consulting in 1996. After doing a critical job for Paul Allen's personal intranet private social media... I was hired as an insider to work 10 doors down from Paul Allen and Vern Raburn (another legend in the industry, Lotus 1-2-3). I managed owner social networks to the NBA Portland Trailblazers, I managed the new owner integration with NFL Seattle Seahawks and met personally in the offices of Coach Mike Hologram and his IT staff. I was on call 24 hours a day as the in-house media systems / information systems expert for all the holdings for 2.5 years. These were no ordinary years. 1997 / 1998 / 1999 when Bill Gates and Paul Allen were DOUBLING WEALTH in a SINGLE YEAR! They could have hired any number of Microsoft employees or ex-employees to have Edward Snowden level access to Paul Allen's private messages and travel records of message access. But they hired me at age 27. 
+> 
+> Allen did not want Gates-loyal people having his personal messages and communications records at the Edward Snowden level. SEE_ALSO https://www.CNET.com/home/smart-home/paul-allen-gates-ballmer-tried-to-rip-me-off/ - I came with Telos Federal Systems (Pentagon military industrial complex) VAX/VMS age 16 Fort Wayne, Snider High School VAX/VMS, Purdue University at Fort Wayne VAX/VMS background, IBM AS/400 Slater Steel Fort Wayne DB/2 OS/2, Fort Wayne OS/2 Users Group founder, SAP R/3 (IBM Unix, Sun Unix, HP-UX Unix) on my work history. I was not a Microsoft insider and had never worked for any employee in the PNW. I was under employment of Garland Texas (DFW area). All my published books were as third-party, from major industry-independent book companies, not from insider Microsoft knowledge.
+> 
+> Can you imagine if Paul Allen's private e-mail between the Trailblazers, Microsoft Board of Directors, or Seattle Seahawks had been leaked out of the insecure and poor version 1.0 release of a Microsoft Server product? My name would have been on the front page of Seattle Times in a heartbeat! Just imagine the ridicule of having a Microsoft co-founder sports team owner e-mails leaked because of how shitty and poorly designed Exchange Server network security was and how inexperienced Microsoft was at enterprise security! Competitors to Microsoft Redmond at Novell Utah https://en.wikipedia.org/wiki/Novell and big iron producers and Unix Sun and OpenBSD / Linux would have LOVED to see the Trailblazers, Seahawks, Paul Allen have a private message leak / breach about purchasing the team and hiring players! Sports fanatics are ruthless for leaks.
+> 
+> Microsoft Exchange Server was a security nightmare and people poorly understood the very unique product https://www.SecurityArchitecture.com/is-clintons-use-of-a-private-email-server-a-big-deal-or-not/ , and I was sitting on the publicized bragging Seattle pot of gold of all pots of sports-team gold in 1997. I did not have a single friend or known co-worker  in Seattle, I was a TOTAL outsider, only my girlfriend from Texas who moved with me. Who I was supporting, she was unemployed her first year in Kirkland. She had lost her house in a fire in Texas which broke her relationship with her step-mother and was starting her life over.
+> 
+> * "Paul Allen continued to serve as a key member of the Microsoft Board of Directors, a position he held from 1990 until 2000. While holding this board seat, he focused on outside investments, founding Vulcan Productions in 1997 and purchasing the NFL's Seattle Seahawks that same year." - Google Search Summary,
+> 
+> REPEATING_REPEATER REPHRASING_REPEATING Paul Allen had connections to Microsoft-experienced people from all over the world. He hired me, a complete outsider the very year the wealth went CRAZY with a unproven in the field product. Exchange Serve 1.0 / 4.0 flagship! Because I didn't take shit from billionaires, no matter who the fuck you were, and no Bill Gates lackey was going to fuck-over Paul Allen because my Telos Federal Systems Apprentice job-creation (Fort Wayne branch, Santa Monica California HQ in 1986) background was fact-checked. I was a zero-bullshit mature 27 year old. IBM had made me their HIGHEST LEVEL Social Media ambassador, "Team OS/2 Gold Ambassador" at an Indy 500 weekend ceremony. I was not Bill Gates loyal. Again, again, see: 1982 behind-back screwing-over history https://www.Forbes.com/sites/frederickallen/2011/03/30/bill-gates-tried-to-screw-paul-allen-whats-the-surprise/ - THAT is why they hired an computer industry outsider whose father ran a Pepsi canning plant and had zero connections to the software and tech industry insiders.
+>
+
+
+=============
+  
+## Reddit comment o42gq7g
+
+    entry 98
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42gq7g/  
+Comment ID:      o42gq7g  
+Author:          FBS351  
+Bio:               
+Account Created: 2021-06-04T16:05:42Z  
+Link Karma:      489  
+Comment Karma:   12121  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T12:10:55Z  
+Score:           None  
+Post Title:      From Epstein to Bezos, the ruling class is rotten to the core  
+:::::: Reddit User Comment: ======  
+It always has been. Read about the robber barons of the 19th century. The "deflowering" of young women was practically a sport amongst them. The vast majority of them are raised with privilege, and they have no concept of accountability. For the rest, well, being a complete sociopath can be a huge advantage in your climb to the top.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Conquest.
+>
+
+
+=============
+  
+## Reddit comment o42g2eq
+
+    entry 99
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42g2eq/  
+Comment ID:      o42g2eq  
+Author:          glitchvariable  
+Bio:             Ella : Hey I am Ella, I’m sweet but also a little savage 😏💋  
+Account Created: 2026-01-06T05:41:23Z  
+Link Karma:      2384  
+Comment Karma:   1183  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T12:05:26Z  
+Score:           None  
+Post Title:      From Epstein to Bezos, the ruling class is rotten to the core  
+:::::: Reddit User Comment: ======  
+It's not just one bad apple\-it's an orchard of rotten fruit. Time to start questioning every billionaire's 'philanthropy' as a PR shield.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. Sport-washing Jody Allen is going big tomorrow. Cults of apps, cults of sports, etc
+>
+
+
+=============
+  
+## Reddit comment o42lm6o
+
+    entry 100
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42lm6o/  
+Comment ID:      o42lm6o  
+Author:          Adventurous_Test_296  
+Bio:             Dr. Scott  : Theologian, Social Science and Cultural Observer. Love one another.   
+Account Created: 2021-06-07T15:59:07Z  
+Link Karma:      1  
+Comment Karma:   7545  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T12:49:30Z  
+Score:           None  
+Post Title:      From Epstein to Bezos, the ruling class is rotten to the core  
+:::::: Reddit User Comment: ======  
+Now that the "ruling class" is known, it should be incumbent upon the rest of us to divest ourselves from everything that enriches them, and gives them more leverage over everyone else.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> I'm so fucking sick of this Reddit commenting bullshit that has wrecked the world. The most anti-woke people in the world when it comes to Finneagns Wake, Woke!
+> 
+> * "McLuhan was profoundly influenced by James Joyce, using Finnegans Wake as a framework for understanding the "electric age" as a return to tribalism, famously declaring that Joyce understood the new media environment better than anyone. Neil Postman, in turn, was a "critical heir" to McLuhan, building on media ecology to analyze the cultural, social, and educational effects of technology, often extending McLuhan’s analysis of television into the realms of politics and education." - Google Search summary 2026-02-07 morning USA, Saturday morning.
+> 
+> Reddit tech addicts are in the manipulated mindsets and can not see the NATO forest for the USA trees. The billionaire Putin put Surkov fiction authoring in charge, leaping ahead of everything Neil Postman and McLuhan have done. Nobody is **media woke** to the situaiton except Peter P! And Peter P does not invoke { Rick Roderick, Howard Bloom, Joseph Campbell, Bill Moyers, Marshall McLuhan, Neil Postman }!!!
+> 
+> * “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992
+> 
+> I had the fucking time in my office in Bellevue to read this nonfiction shit and think about the 1st richest person in the world in Redmond communicating to the 3rd richest person in the world in Bellevue! I was sitting on the Microsoft Board of Directors private messaging!
+>
+
+
+=============
+  
+## Reddit comment o42iajh
+
+    entry 101
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42iajh/  
+Comment ID:      o42iajh  
+Author:          VelvetteWhisper  
+Bio:               
+Account Created: 2025-12-23T23:30:35Z  
+Link Karma:      1  
+Comment Karma:   815  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T12:23:48Z  
+Score:           None  
+Post Title:      From Epstein to Bezos, the ruling class is rotten to the core  
+:::::: Reddit User Comment: ======  
+"Ruling class" is just a polite way to say organized crime with better PR private jets, public apathy, and a justice system that charges parking tickets faster than sex trafficking
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. REPEATING_REPEATER observe the absence of any off-Reddit links, author names, quotes form nonfiction books, etc, etc. Twitter-length tiny short thinking patterns about the leaders of the entire planet of over 8 billion people. Disposable messaging that disposes of all nonfiction serious thinking.
+>
+
+
+=============
+  
+## Reddit comment o42iix2
+
+    entry 102
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42iix2/  
+Comment ID:      o42iix2  
+Author:          NegotiationSea7008  
+Bio:             Forgot to edit name : 57F. Escaping Elon. 
+England. Football. LFC. Rugby League. St Helens. Rugby Union. Harlequins. INFJ. Cornwall. Art. Guild Wars 2. Sims4.  
+Account Created: 2020-09-07T10:30:51Z  
+Link Karma:      3452  
+Comment Karma:   153350  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-07T12:25:39Z  
+Score:           None  
+Post Title:      From Epstein to Bezos, the ruling class is rotten to the core  
+:::::: Reddit User Comment: ======  
+Interesting article about the combination of money, influence and misogyny [Sex and snacks, but no seat at the table: the role of women in Epstein’s sordid men’s club](https://www.theguardian.com/us-news/ng-interactive/2026/feb/07/sex-and-snacks-but-no-seat-at-the-table-the-role-of-women-in-epsteins-sordid-mens-club)
+
+
+
+
+=============
+  
+## Reddit comment o42myjo
+
+    entry 103
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42myjo/  
+Comment ID:      o42myjo  
+Author:          Automatic-Doubt-4874  
+Bio:               
+Account Created: 2025-12-19T03:55:07Z  
+Link Karma:      1  
+Comment Karma:   550  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-07T12:59:04Z  
+Score:           None  
+Post Title:      From Epstein to Bezos, the ruling class is rotten to the core  
+:::::: Reddit User Comment: ======  
+I read the opening paragraph before hitting the paywall and names were named: Lutnick, Gates, Thiel, Musk. . . Guess who was shockingly omitted whose names appears literally 10’s of thousands of times? Come ON! Impeach the bastard for starters and lock him up for life. This is absolutely crazy making.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. Woman, what I would give for fucking server-side browser strings, IP addresses, and all content click reading traffic from these accounts out of webserver logs.
+>
+
+
+=============
+  
+## Reddit comment o42i7bs
+
+    entry 104
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42i7bs/  
+Comment ID:      o42i7bs  
+Author:          reddittorbrigade  
+Bio:             reddit :   
+Account Created: 2024-07-19T19:19:51Z  
+Link Karma:      124  
+Comment Karma:   557928  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-07T12:23:05Z  
+Score:           None  
+Post Title:      From Epstein to Bezos, the ruling class is rotten to the core  
+:::::: Reddit User Comment: ======  
+American government is composed of pedophiles where they are glorified .
+
+In other countries, anyone connected with Epstein is vilified.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> That is why I am so fucking deeply emotional over the Reddit PLUR1BUS Apple TV+ December 2025 / January 2026 fandom. "Vilified". Walter White and Saul Goodman fandom on the Internet cesspool. Compulsive society-wide dehumanizing with science systems of chemistry (including mental health chemicals, blue meth symbolism) and media systems cesspool worshiping. Reddit is an anti-compassion pro-tech science chemistry (Walter White) mind-fucking center.
+> 
+> * Writers Guild of America. Vince Gilligan speech. February 15, 2025 https://youtu.be/TkteSxVIM1A?t=648 ... 10:48 there's no simple answer for how we might change that. Though, if there were, I bet it would have something to do with climbing up out of the cesspool that is social media and actually listening to each other. 11:07 But I don't know how to make that happen. So, I'll stick to my wheelhouse. As a writer speaking to a room full of writers, I have a proposal...
+>
+
+
+=============
+  
+## Reddit comment o42n8tf
+
+    entry 105
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyc2a9/from_epstein_to_bezos_the_ruling_class_is_rotten/o42n8tf/  
+Comment ID:      o42n8tf  
+Author:          Ncav2  
+Bio:               
+Account Created: 2020-08-28T21:43:43Z  
+Link Karma:      148  
+Comment Karma:   67295  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-07T13:01:00Z  
+Score:           None  
+Post Title:      From Epstein to Bezos, the ruling class is rotten to the core  
+:::::: Reddit User Comment: ======  
+This is how the elites operate. Major transgressions such as raping young kids and murder are ways they can blackmail each other and build absolute trust and cohesion with one another. You’re less likely to deviate if someone has dirt on you.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> OPERA_A The Who Quad: "You've been screwed AGAIN!" "I am a man who looks aftre the pigs" (Billionaires) - 1973. "Dirty Jobs" https://youtu.be/L0bqmIBczJI?t=19 - We Saw Quad... Monday October 14, 1996 outside my work, wasn't EMP sponsored, my future wife gifted it for my birthday as a date as she knew I was huge fan of The Who in the car and at home. 55,020 views October 23, 2008 - shared song video over social networks to Tunisia and Algeria in Q1 2010 during Arab Spring 2010.
+>
+
+
+=============
+  
+## Reddit comment o43suef
+
+    entry 106
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43suef/  
+Comment ID:      o43suef  
+Author:          nomnomnomind  
+Bio:               
+Account Created: 2026-01-07T11:23:39Z  
+Link Karma:      1  
+Comment Karma:   3248  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T16:46:39Z  
+Score:           3271 points  
+Post Title:      ‘No One Should Have a Copyright on Vance Being Booed’: Video From Olympics Blocked on X  
+:::::: Reddit User Comment: ======  
+Snowflakes, cowards.. all of them
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. Top-upvoted most popular message.
+> 
+> As for the posting topic: Nina Paley - Copyright is Brain Damage. Copyright cartel of Bill Gates 1976 wealth and power to conceal. https://en.wikipedia.org/wiki/An_Open_Letter_to_Hobbyists 
+> 
+> Block-happy behaviors, Bluesky book burning behaviors, Reddit ban-happy behaviors (with ICE no-identity admins and mods, police corporate state).. social media January 2026 values fueled by billionaire bombardment of "The Little Guy" via cloud computing empires. Strategic bombing, targeted bombing, space-based cloud computing mindsets.
+>
+
+
+=============
+  
+## Reddit comment o43u0j1
+
+    entry 107
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43u0j1/  
+Comment ID:      o43u0j1  
+Author:          Jeansus_  
+Bio:               
+Account Created: 2020-12-10T16:32:10Z  
+Link Karma:      863  
+Comment Karma:   21323  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T16:52:25Z  
+Score:           1295 points  
+Post Title:      ‘No One Should Have a Copyright on Vance Being Booed’: Video From Olympics Blocked on X  
+:::::: Reddit User Comment: ======  
+I missed the first hour of the opening ceremonies so I missed the booing, when I went to watch the replay on Peacock \- the entire section of time is muted aside from the music playing in the background. No boos, no commentators discussing the boos, no sounds but the faint background music.
+
+
+
+
+=============
+  
+## Reddit comment o43udi7
+
+    entry 108
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43udi7/  
+Comment ID:      o43udi7  
+Author:          WishTonWish  
+Bio:             Spelling counts. :   
+Account Created: 2024-03-01T12:18:32Z  
+Link Karma:      427  
+Comment Karma:   26762  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T16:54:12Z  
+Score:           391 points  
+Post Title:      ‘No One Should Have a Copyright on Vance Being Booed’: Video From Olympics Blocked on X  
+:::::: Reddit User Comment: ======  
+Free speech absolutism... 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3-word reactionary logic polarity Tweet-thinking short-message mind patterns. YES, we know that, when are you going to turn to serious nonfiction, Reddit? Media ecology: Neil Postman, Marshall McLuhan, etc.
+>
+
+
+=============
+  
+## Reddit comment o43tjsm
+
+    entry 109
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43tjsm/  
+Comment ID:      o43tjsm  
+Author:          LadyTalah  
+Bio:             Beltalowda.  
+Account Created: 2022-12-15T13:40:57Z  
+Link Karma:      3725  
+Comment Karma:   123292  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T16:50:07Z  
+Score:           519 points  
+Post Title:      ‘No One Should Have a Copyright on Vance Being Booed’: Video From Olympics Blocked on X  
+:::::: Reddit User Comment: ======  
+God, just…the smallest dicks in the universe.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit tech fandom turns serious Reddit media systems topic into physical male mindset, as programmed, into male vs. male dick measuring mindsets. ANYTHING but follow WOMAN Jen Senko leadership about media brainwashing. ANYTHING but follow WOMAN Dr. Bandy X Lee's leadership about egomania leading men.
+>
+
+
+=============
+  
+## Reddit comment o43weqm
+
+    entry 110
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43weqm/  
+Comment ID:      o43weqm  
+Author:          Greg-Abbott  
+Bio:             THIS EDIBLE AIN'T SHIT :   
+Account Created: 2020-01-25T15:11:05Z  
+Link Karma:      13112  
+Comment Karma:   261856  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T17:04:07Z  
+Score:           185 points  
+Post Title:      ‘No One Should Have a Copyright on Vance Being Booed’: Video From Olympics Blocked on X  
+:::::: Reddit User Comment: ======  
+"But all the celebrities I follow are on there! How will I follow celebrity news if I delete my account?"  
+ I've heard this one quite a few times
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Where is better? and WHY is other better? Reddit. ha. Secretly disappeared messages as I have documented here on this GitHub. Extremely serious disappeared messages about Russia topics.
+>
+
+
+=============
+  
+## Reddit comment o43uutx
+
+    entry 111
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43uutx/  
+Comment ID:      o43uutx  
+Author:          Jiminyfingers  
+Bio:               
+Account Created: 2013-10-28T22:20:27Z  
+Link Karma:      29535  
+Comment Karma:   143708  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T16:56:32Z  
+Score:           57 points  
+Post Title:      ‘No One Should Have a Copyright on Vance Being Booed’: Video From Olympics Blocked on X  
+:::::: Reddit User Comment: ======  
+What are they afraid of? I mean do they expect anything else: Vance in particular has repeatedly shit on Europe, there should be no surprise he is as popular as a fart in a lift over here
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> They are afraid they won't get Reddit to keep commenting in reactions to every ACTION that is being done. They are afraid people will escape the Reddit commenting fixation and actually turn to a serious nonfiction book. They are afraid Reddit will self-examine values through the teachings of Marshall McLuhan / University of Toronto education.
+> 
+> * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+>
+
+
+=============
+  
+## Reddit comment o43tu0i
+
+    entry 112
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyikta/no_one_should_have_a_copyright_on_vance_being/o43tu0i/  
+Comment ID:      o43tu0i  
+Author:          taydraisabot  
+Bio:             🍬🍭 Taydra 🧀🫕  : PARMIGIANO REGGIANO!!  
+Account Created: 2019-03-09T01:07:26Z  
+Link Karma:      73912  
+Comment Karma:   204904  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T16:51:32Z  
+Score:           76 points  
+Post Title:      ‘No One Should Have a Copyright on Vance Being Booed’: Video From Olympics Blocked on X  
+:::::: Reddit User Comment: ======  
+NBC has always been weird with DMCA takedowns of their Olympics coverage. That’s nothing new, unfortunately.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Media ecology discussion. No off-Reddit links or quotes from nonfiction sources.
+>
+
+
+=============
+  
+## Reddit comment o43llcu
+
+    entry 113
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43llcu/  
+Comment ID:      o43llcu  
+Author:          boolee2112  
+Bio:             Boolee  : Just trying my best.  
+Account Created: 2023-01-08T19:11:34Z  
+Link Karma:      44817  
+Comment Karma:   62085  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T16:11:03Z  
+Score:           568 points  
+Post Title:      X actively took down videos of JD Vance being booed in the Winter Olympics.  
+:::::: Reddit User Comment: ======  
+Free Speech 🤣
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trumpism cult on Reddit. Banal short messages of Right-Wing talking points being repeated over and over in feedback loops with Twitter. This is a Twitter topic posting, Tweet screen shot, over and over and over it goes in looping parroting of tiny-short. Most-popular upvoted comment. People who will do ANYTHING on Reddit but wake the fuck up and turn to Marshall McLuhan's books and teachings and rescue people from the Kremlin information warfare since March 2013. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o43ows2
+
+    entry 114
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43ows2/  
+Comment ID:      o43ows2  
+Author:          Pretend_Meet_88  
+Bio:               
+Account Created: 2020-11-28T15:38:40Z  
+Link Karma:      2595  
+Comment Karma:   1926  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T16:27:23Z  
+Score:           272 points  
+Post Title:      X actively took down videos of JD Vance being booed in the Winter Olympics.  
+:::::: Reddit User Comment: ======  
+Really don't understand why people keep using Twitter. Between how much Elon's doge cost us, the algorythm being proven to not be the "free speech town square", grok's child porn
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ~~Everything is Public Relations~~   
+> ~~Everything is PR~~   
+> Media Woke: Everything is Media Ecology, ecosystems of Twitter vs. Redddit, Subreddit vs. Subreddit, fiter-bubble vs. filter-bubble, subscribe list vs. subscribe list, parallel threading comment chain vs. hour later comment chain; Kremlin ground zero echo booms of March 2013 Saint Petersburg Internet Research Agency.. Surkov MonoMyth implosions and explosions. Mind-blowing patterns. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+>
+
+
+=============
+  
+## Reddit comment o43lm4r
+
+    entry 115
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qyhkr0/x_actively_took_down_videos_of_jd_vance_being/o43lm4r/  
+Comment ID:      o43lm4r  
+Author:          Pitiful-MobileGamer  
+Bio:             🇨🇦Carhauler :   
+Account Created: 2024-02-19T13:29:18Z  
+Link Karma:      26947  
+Comment Karma:   145850  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T16:11:09Z  
+Score:           113 points  
+Post Title:      X actively took down videos of JD Vance being booed in the Winter Olympics.  
+:::::: Reddit User Comment: ======  
+The Olympics are pretty famous for keeping their intellectual property on their platforms.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Every nation pays huge money for travel, lodging, training, teaching, supporting, coaching for years and years and then hands it over to national legal systems and strangles the content with for-profit corporations. The copyright worshiping lords of Reddit who want information to be personalized instead of Wiki and FAQ... don't grasp the power media systems have over their lives. a WORLD SPORTS EVENT should be PUBLIC DOMAIN FOR ALL!
+> 
+> Instead, it is licensed away in little clips and bits and photos for money.
+>
+
+
+=============
+  
+## Reddit comment o440502
+
+    entry 116
+
+Comment URL: https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o440502/  
+Comment ID:      o440502  
+Author:          kylogram  
+Bio:             DazedAtmosphere  :   
+Account Created: 2014-02-04T18:03:08Z  
+Link Karma:      7564  
+Comment Karma:   67227  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T17:22:36Z  
+Score:           676 points  
+Post Title:      Epstein revelations have toppled top figures in Europe while US fallout is more muted  
+:::::: Reddit User Comment: ======  
+That's because our Epstein\-Trump problem is the latter half.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> That's because Reddit fandom of Trump and Reddit fandom of Epstein entertainment systems can't follow a WOMAN named Dr. Bandy X Lee **who published a nonfiction compilation book on October 3, 2017 that every damn person with tech social media skills to comment should be quoting on Reddit over and over and repeating again and again!!!***
+> 
+> She fucking compiled 27 different writing authors into one book for Reddit community to quote. But people can not stop the compulsive mockery to Trump / ICE / MAGA / Putin / Musk to turn to a woman GenX leader. Is her GenX laugh too much like GenX Kamala Harris laugh for Reddit? Are all 27 authors not good enough for Reddit? Or does REDDIT SOCIETY have a fucking nonfiction engagement issue?
+> 
+> * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+> ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [**27** Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o441p5a
+
+    entry 117
+
+Comment URL: https://old.reddit.com/r/law/comments/1qyjhmz/epstein_revelations_have_toppled_top_figures_in/o441p5a/  
+Comment ID:      o441p5a  
+Author:          No1CouldHavePredictd  
+Bio:             No one could have predicted...  
+Account Created: 2024-11-08T04:06:33Z  
+Link Karma:      8027  
+Comment Karma:   47352  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T17:30:21Z  
+Score:           323 points  
+Post Title:      Epstein revelations have toppled top figures in Europe while US fallout is more muted  
+:::::: Reddit User Comment: ======  
+Muted is a strange way to say non\-existent.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Shallow commenting on Reddit. Superficial. Banal. Word-choice concerned. ANYTHING but ... Dr. Bandy X Lee quoting. ANYTHING to spend free time on Reddit with low-effort shit-commenting and shit-posting about USA and Epstein situation. Addicts to shit-commenting can't escape to Dr Bandy X Lee's nonfiction and start building a massive mental health backlash, turn the tide, towards science thinking and away from meme-think Twitter-length short message Reddit commenting!
 >
