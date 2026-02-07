@@ -798,3 +798,234 @@ Post Title:      [ Removed by moderator ]
 No, don’t ban a medicine saving the lives of morbidly obese people. It’s not the faults of the people who use it correctly under the supervision of a reputable a doctor. Unless the doctor is being bribed no reputable doctor would give it to a non diabetic with a healthy BMI. To ban things because celebs with eating disorders are getting thinner is insane. Don’t punish the millions of people who are obese and finally being able to lose weight for vain rich girls who cheat the system.
 
 
+
+
+=============
+  
+## Reddit comment o3yj3lg
+
+    entry 34
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qxrxgq/what_does_this_mean/o3yj3lg/  
+Comment ID:      o3yj3lg  
+Author:          Final-Charge-5700  
+Bio:               
+Account Created: 2021-12-04T02:26:42Z  
+Link Karma:      1  
+Comment Karma:   2819  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-06T19:53:29Z  
+Score:           1562 points  
+Post Title:      what does this mean?  
+:::::: Reddit User Comment: ======  
+The claim sounds damning, like a muckraking headline or clickbait. It makes her sound like maybe she's not smart, but no one can explain Trinity.
+
+It's a joke because you can define the trinity, but there's almost no way to explain the Holy Trinity without committing heresy. That's why they describe it as a Divine mystery.
+
+Furthermore we wouldn't expect a Pop Star like Sabrina Carpenter to have the answer, making the accusation itself is even more absurd.
+
+Its actually kind of funny.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Science fiction paradox. Language paradox. Bible verse "1 John 4:20" answers it, you ain't *seen* jack shit, buddy. You have seen humans walking around, you ain't seen fucking God. Roman 11:32 ++
+>
+
+
+=============
+  
+## Reddit comment o3wi4rh
+
+    entry 35
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wi4rh/  
+Comment ID:      o3wi4rh  
+Author:          XxCarlxX  
+Bio:             XxCeegeexX :   
+Account Created: 2018-01-21T12:37:14Z  
+Link Karma:      2953  
+Comment Karma:   48106  
+Comment Age:     11 hours ago  
+Timestamp:       2026-02-06T13:59:45Z  
+Score:           3219 points  
+Post Title:      How long does it take to see a doctor and get medication at a Chinese hospital?  
+:::::: Reddit User Comment: ======  
+I had toothache today, called dentist at 9am, got appointment for 11:10 am.
+
+Had a few procedures carried out, as i work i had to pay the £33 charge. 
+
+UK, 
+
+
+
+
+=============
+  
+## Reddit comment o3wpg1t
+
+    entry 36
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wpg1t/  
+Comment ID:      o3wpg1t  
+Author:          raynjamin  
+Bio:               
+Account Created: 2009-11-19T14:29:24Z  
+Link Karma:      282  
+Comment Karma:   10331  
+Comment Age:     10 hours ago  
+Timestamp:       2026-02-06T14:38:12Z  
+Score:           658 points  
+Post Title:      How long does it take to see a doctor and get medication at a Chinese hospital?  
+:::::: Reddit User Comment: ======  
+I just paid $4300 for my daughter to have a 5 minute endoscopy, on top of another $1700 that I had to pay last year when she had an emergency. Completely emptied out any health savings account money we had. Without insurance these would have cost me over $40,000\. MURICA
+
+
+
+
+=============
+  
+## Reddit comment o3wu1ub
+
+    entry 37
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wu1ub/  
+Comment ID:      o3wu1ub  
+Author:          barneyrbbl  
+Bio:               
+Account Created: 2020-03-08T17:46:21Z  
+Link Karma:      13  
+Comment Karma:   4059  
+Comment Age:     10 hours ago  
+Timestamp:       2026-02-06T15:01:39Z  
+Score:           3057 points  
+Post Title:      How long does it take to see a doctor and get medication at a Chinese hospital?  
+:::::: Reddit User Comment: ======  
+Reading these comments from Americans, i believe it would be quicker And cheaper to travel to China for medical help than use your own medical care.
+
+
+
+
+=============
+  
+## Reddit comment o3wftv1
+
+    entry 38
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wftv1/  
+Comment ID:      o3wftv1  
+Author:          DaftSunk  
+Bio:               
+Account Created: 2026-01-23T08:45:41Z  
+Link Karma:      1  
+Comment Karma:   5901  
+Comment Age:     11 hours ago  
+Timestamp:       2026-02-06T13:47:25Z  
+Score:           10.1k points  
+Post Title:      How long does it take to see a doctor and get medication at a Chinese hospital?  
+:::::: Reddit User Comment: ======  
+The important takeaway of this video isn't how that China is amazing. 
+
+This kind of experience, to a somewhat lesser degree, is basically universal all over the globe. It might not take 19minutes and cost 12usd, but perhaps 60minutes and cost 25usd.
+
+The important takeaway is how China and THE WHOLE WORLD differs from the madness that is the US health care system!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Madness.
+>
+
+
+=============
+  
+## Reddit comment o3wpqaq
+
+    entry 39
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qxhlp5/how_long_does_it_take_to_see_a_doctor_and_get/o3wpqaq/  
+Comment ID:      o3wpqaq  
+Author:          John_Knox28  
+Bio:               
+Account Created: 2019-08-14T18:51:40Z  
+Link Karma:      137  
+Comment Karma:   2288  
+Comment Age:     10 hours ago  
+Timestamp:       2026-02-06T14:39:41Z  
+Score:           68 points  
+Post Title:      How long does it take to see a doctor and get medication at a Chinese hospital?  
+:::::: Reddit User Comment: ======  
+My father in law is Chinese and is currently having cancer treatment in China. This video is VERY misleading with its implications. You’ll notice how she was asked if she wanted “Normal” or “Expert” care. That’s a REALLY important distinction. China’s medical system is cheap and quick, so it’s fine for minor illnesses. Anything significant though and you’re screwed unless you are very rich or happen to personally know the doctor treating you at the hospital. My father in law is poor but luckily his doctor is a childhood friend of his, so he gets disproportionately adequate care despite being poor. Nursing in China is considered a bad job; for people who aren’t smart enough to go to a good school, so the quality of nurses is very bad. Bribes are important for proper care, just like in China’s education system. Don’t bribe your doctor enough and you’re taking a major risk that they won’t prioritize you. My wife has spent a lot of money on “gifts” to send back to China for my mother in law to give to the staff treating my FIL. Hospitals don’t provide food for patients, so my MIL has to spend two hours a day riding the bus back and forth to bring him food. My wife went to visit him recently and pretty much everyday someone at their small hospital was told that they wouldn’t receive lifesaving medical care because they were too poor to afford it. All around very depressing stuff. There’s a reason China’s ultra wealthy seek medical care overseas if they are able to do so.
+
+TLDR: China is alright for minor illnesses, but unless you’re extremely rich or lucky, for anything serious it is not a good medical system
+
+
+
+
+=============
+  
+## Reddit comment o3z3a9a
+
+    entry 40
+
+Comment URL: https://old.reddit.com/r/AITAH/comments/1qxtuqb/aitah_for_leaving_wife_at_home_after_she_revealed/o3z3a9a/  
+Comment ID:      o3z3a9a  
+Author:          Adorable_Strength319  
+Bio:               
+Account Created: 2021-03-12T18:16:17Z  
+Link Karma:      1160  
+Comment Karma:   84431  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-06T21:34:08Z  
+Score:           3373 points  
+Post Title:      AITAH for leaving wife at home after she revealed that she was going to wear white to my brother's wedding?  
+:::::: Reddit User Comment: ======  
+So, in your first paragraph, do you mean that your wife has worn white to someone else's wedding BEFORE this time? Man, you need to rethink who you're married to. And she's this mad over you not being in the wedding party? I hope you don't have kids. You need to do a Homer\-Simpson\-back\-into\-the\-hedge meme out of your marriage. 
+
+
+
+
+=============
+  
+## Reddit comment o3z2fxk
+
+    entry 41
+
+Comment URL: https://old.reddit.com/r/AITAH/comments/1qxtuqb/aitah_for_leaving_wife_at_home_after_she_revealed/o3z2fxk/  
+Comment ID:      o3z2fxk  
+Author:          jmlozan  
+Bio:               
+Account Created: 2015-05-27T13:10:06Z  
+Link Karma:      686  
+Comment Karma:   32621  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-06T21:29:57Z  
+Score:           398 points  
+Post Title:      AITAH for leaving wife at home after she revealed that she was going to wear white to my brother's wedding?  
+:::::: Reddit User Comment: ======  
+NTA, do you enjoy being married to such a shithead?
+
+
+
+
+=============
+  
+## Reddit comment o402tvc
+
+    entry 42
+
+Comment URL: https://old.reddit.com/r/nextfuckinglevel/comments/1qxz8o3/50_cent_using_a_whole_door_dash_super_bowl_ad_to/o402tvc/  
+Comment ID:      o402tvc  
+Author:          ColoRadBro69  
+Bio:               
+Account Created: 2022-03-07T23:32:35Z  
+Link Karma:      1887  
+Comment Karma:   169883  
+Comment Age:     46 minutes ago  
+Timestamp:       2026-02-07T00:48:44Z  
+Score:           None  
+Post Title:      50 Cent using a whole Door Dash Super Bowl ad to continue to troll Floyd Mayweather, Ja Rule, and Diddy  
+:::::: Reddit User Comment: ======  
+50 is the kind of troll people will be talking about thousands of years from now, like Diogenes.
+
+
