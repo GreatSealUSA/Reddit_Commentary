@@ -9525,3 +9525,418 @@ Post Title:      Tony Hawk debunks the viral rumor he had one of his weddings on
 At first I thought wow Tony Hawk renewed his vows a lot, cute. Then I googled and saw that he in fact did not. Then I saw the photos of his wives and I'm sorry but they look like the same person. What a rollercoaster!
 
 
+
+
+=============
+  
+## Reddit comment o3z6w6q
+
+    entry 349
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_opening_ceremony_as/o3z6w6q/  
+Comment ID:      o3z6w6q  
+Author:          fortycoats2020  
+Bio:             Arcadianfox :   
+Account Created: 2020-02-01T23:46:21Z  
+Link Karma:      1399  
+Comment Karma:   6528  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-06T21:52:03Z  
+Score:           1976 points  
+Post Title:      USA booed at Winter Olympics opening ceremony as JD Vance watches on | Other | Sport | Express.co.uk  
+:::::: Reddit User Comment: ======  
+It looked more like the crowd cheered for the athletes but when the camera cut to Vance the crowd booed then
+
+
+
+
+=============
+  
+## Reddit comment o3zb4sf
+
+    entry 350
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_opening_ceremony_as/o3zb4sf/  
+Comment ID:      o3zb4sf  
+Author:          Foxy_Cuttee  
+Bio:             Luna 💕 : your favourite bad decision 💕 reddit gets special treatment 🎀 DM me “Reddit” on OF and I’ll record your private little teaser just for you  
+Account Created: 2025-02-20T09:29:10Z  
+Link Karma:      3398  
+Comment Karma:   4440  
+Comment Age:     49 minutes ago  
+Timestamp:       2026-02-06T22:13:22Z  
+Score:           217 points  
+Post Title:      USA booed at Winter Olympics opening ceremony as JD Vance watches on | Other | Sport | Express.co.uk  
+:::::: Reddit User Comment: ======  
+JD vance looks like one of the guys that would say something creepy to you at the club
+
+
+
+
+=============
+  
+## Reddit comment o3za4tb
+
+    entry 351
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qxuxgk/usa_booed_at_winter_olympics_opening_ceremony_as/o3za4tb/  
+Comment ID:      o3za4tb  
+Author:          baeb66  
+Bio:               
+Account Created: 2009-01-30T21:32:17Z  
+Link Karma:      84102  
+Comment Karma:   1020146  
+Comment Age:     55 minutes ago  
+Timestamp:       2026-02-06T22:08:14Z  
+Score:           103 points  
+Post Title:      USA booed at Winter Olympics opening ceremony as JD Vance watches on | Other | Sport | Express.co.uk  
+:::::: Reddit User Comment: ======  
+The Israeli athletes got booed as well.
+
+
+
+
+=============
+  
+## Reddit comment o3z2h8w
+
+    entry 352
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1qxuhpf/vp_jd_vance_and_wife_usha_get_bood_at_the_olympics/o3z2h8w/  
+Comment ID:      o3z2h8w  
+Author:          ClintBruno  
+Bio:               
+Account Created: 2024-10-15T14:07:40Z  
+Link Karma:      7653  
+Comment Karma:   67432  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-06T21:30:08Z  
+Score:           1767 points  
+Post Title:      VP JD Vance and wife Usha get boo'd at the Olympics  
+:::::: Reddit User Comment: ======  
+People despise you, conservatives.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Hate is what Reddit is fandom for, video postings on Reddit of hate-watching content of JD Vance hate leadership.
+>
+
+
+=============
+  
+## Reddit comment o3zwmn2
+
+    entry 353
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qxx3wg/france_uncovers_russian_disinformation_campaign/o3zwmn2/  
+Comment ID:      o3zwmn2  
+Author:          Guy_GuyGuy  
+Bio:               
+Account Created: 2018-11-27T05:42:30Z  
+Link Karma:      5057  
+Comment Karma:   93687  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T00:12:55Z  
+Score:           None  
+Post Title:      France uncovers Russian disinformation campaign falsely linking Macron to Epstein  
+:::::: Reddit User Comment: ======  
+12 years before Donald Trump entered the Republican primary in 2015, Republicans started a conspiracy theory that Obama wasn't born in the US and demanded his birth certificate. When he provided it and the Hawaii Department of Health confirmed its authenticity, they made up reasons why it was fake.
+
+You're dealing with a third of the United States that already know what they want to believe or not believe about any given sentence before they've even finished reading it.
+
+
+
+
+=============
+  
+## Reddit comment o3zq6tq
+
+    entry 354
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qxx3wg/france_uncovers_russian_disinformation_campaign/o3zq6tq/  
+Comment ID:      o3zq6tq  
+Author:          TailungFu  
+Bio:             KungFuPanda :   
+Account Created: 2023-01-11T12:21:03Z  
+Link Karma:      268175  
+Comment Karma:   61134  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-06T23:35:40Z  
+Score:           56 points  
+Post Title:      France uncovers Russian disinformation campaign falsely linking Macron to Epstein  
+:::::: Reddit User Comment: ======  
+Lol, the european public isn't as guillable, try american
+
+
+
+
+=============
+  
+## Reddit comment o41gtal
+
+    entry 355
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41gtal/  
+Comment ID:      o41gtal  
+Author:          NightOfTheLivingHam  
+Bio:               
+Account Created: 2012-06-12T15:38:17Z  
+Link Karma:      4726  
+Comment Karma:   534924  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T06:31:30Z  
+Score:           985 points  
+Post Title:      Limp Bizkit's Wes Borland On Backlash For Calling Out Trump Supporters: "Y'all Hating Me For Not Wanting Hatred In The World Is Wild"  
+:::::: Reddit User Comment: ======  
+Never thought I would be in the timeline where limp bizkit would be a voice of morality
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The posting title says it all, that being against hate is now considered bad. And social media society (USA nation) thinks this is all great entertainment to comment about. Nothing gets people to wake up that hate is being prized. People follow Trump's hate leadership.
+>
+
+
+=============
+  
+## Reddit comment o41ij8z
+
+    entry 356
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41ij8z/  
+Comment ID:      o41ij8z  
+Author:          gyarrrrr  
+Bio:               
+Account Created: 2012-04-17T17:47:58Z  
+Link Karma:      1757  
+Comment Karma:   127779  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T06:47:01Z  
+Score:           374 points  
+Post Title:      Limp Bizkit's Wes Borland On Backlash For Calling Out Trump Supporters: "Y'all Hating Me For Not Wanting Hatred In The World Is Wild"  
+:::::: Reddit User Comment: ======  
+This is very much a “your boos mean nothing to me, I’ve seen what makes you cheer” situation.
+
+
+
+
+=============
+  
+## Reddit comment o41jwun
+
+    entry 357
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41jwun/  
+Comment ID:      o41jwun  
+Author:          T3hArchAngel_G  
+Bio:             ArchAngel_G : A mostly serious person, keeping my finger on the pulse of the world.  
+Account Created: 2014-12-01T16:26:02Z  
+Link Karma:      108  
+Comment Karma:   15648  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T06:59:28Z  
+Score:           29 points  
+Post Title:      Limp Bizkit's Wes Borland On Backlash For Calling Out Trump Supporters: "Y'all Hating Me For Not Wanting Hatred In The World Is Wild"  
+:::::: Reddit User Comment: ======  
+More and more people are fed up with The Right.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Short-message Twitter-think. Programmed right vs. left brain rot. The problem is hate. The subject is hate. Hate upon the right is hate. It does not matter who goes first with hate, the brain rot is hate messaging of a fandom to artist. Cult to cult hate, hate vs. hate, cult of hate vs cult of hate.
+>
+
+
+=============
+  
+## Reddit comment o41qg63
+
+    entry 358
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41qg63/  
+Comment ID:      o41qg63  
+Author:          Correct_Chemical5179  
+Bio:               
+Account Created: 2021-06-12T19:34:26Z  
+Link Karma:      2567  
+Comment Karma:   57839  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T08:00:31Z  
+Score:           8 points  
+Post Title:      Limp Bizkit's Wes Borland On Backlash For Calling Out Trump Supporters: "Y'all Hating Me For Not Wanting Hatred In The World Is Wild"  
+:::::: Reddit User Comment: ======  
+Hate is all the world has ever seen lately
+
+
+
+
+=============
+  
+## Reddit comment o41p3oi
+
+    entry 359
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41p3oi/  
+Comment ID:      o41p3oi  
+Author:          hueythecat  
+Bio:               
+Account Created: 2011-07-21T04:23:00Z  
+Link Karma:      1763  
+Comment Karma:   63363  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T07:47:48Z  
+Score:           6 points  
+Post Title:      Limp Bizkit's Wes Borland On Backlash For Calling Out Trump Supporters: "Y'all Hating Me For Not Wanting Hatred In The World Is Wild"  
+:::::: Reddit User Comment: ======  
+More surprising how silent most of those with voices have been so far.
+
+
+
+
+=============
+  
+## Reddit comment o41lctn
+
+    entry 360
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41lctn/  
+Comment ID:      o41lctn  
+Author:          chazooka  
+Bio:               
+Account Created: 2010-12-15T21:44:25Z  
+Link Karma:      6777  
+Comment Karma:   7021  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T07:12:31Z  
+Score:           21 points  
+Post Title:      Limp Bizkit's Wes Borland On Backlash For Calling Out Trump Supporters: "Y'all Hating Me For Not Wanting Hatred In The World Is Wild"  
+:::::: Reddit User Comment: ======  
+Not just Wes \- Fred Durst co\-starred in a wonderful movie that’s an allegory for finding out you may be trans: [I Saw The TV Glow](https://youtu.be/kymDzCgPwj0). Was super surprised and delighted to see him there.
+
+
+
+
+=============
+  
+## Reddit comment o41rx0o
+
+    entry 361
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qy6fg1/limp_bizkits_wes_borland_on_backlash_for_calling/o41rx0o/  
+Comment ID:      o41rx0o  
+Author:          Pleasant_Tap_701  
+Bio:               
+Account Created: 2020-10-03T20:12:13Z  
+Link Karma:      1  
+Comment Karma:   42  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T08:14:26Z  
+Score:           3 points  
+Post Title:      Limp Bizkit's Wes Borland On Backlash For Calling Out Trump Supporters: "Y'all Hating Me For Not Wanting Hatred In The World Is Wild"  
+:::::: Reddit User Comment: ======  
+Fans of the band not even aware of the members backgrounds either. Wes went to Art school. John Otto and Sam Rivers were in Jazz school together when they met Wes. Creative people like this generally come from creative backgrounds and families and don’t hold right wing views.
+
+
+
+
+=============
+  
+## Reddit comment o43h3vc
+
+    entry 362
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qygw1t/pentagon_says_its_cutting_ties_with_woke_harvard/o43h3vc/  
+Comment ID:      o43h3vc  
+Author:          shagieIsMe  
+Bio:               
+Account Created: 2014-07-20T01:49:17Z  
+Link Karma:      7305  
+Comment Karma:   157056  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T15:49:05Z  
+Score:           2747 points  
+Post Title:      Pentagon says it's cutting ties with "woke" Harvard, discontinuing military training and fellowships  
+:::::: Reddit User Comment: ======  
+They're also cutting ties with Scouting.
+
+[https://www.usatoday.com/story/news/politics/2026/02/05/boy\-scouting\-america\-pentagon\-threat\-dei/88525092007/](https://www.usatoday.com/story/news/politics/2026/02/05/boy-scouting-america-pentagon-threat-dei/88525092007/)
+
+Apparently, the core values of... (let me check on this)... helping others, being moral, and [all that other stuff](https://www.scouting.org/about/faq/question10/) is incompatible with the current administration.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Blocking. Book-burning of entire university systems. Just like Bluesky social media users, block-happy, book-burning mindsets of systemic thinking.
+>
+
+
+=============
+  
+## Reddit comment o43eqno
+
+    entry 363
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qygw1t/pentagon_says_its_cutting_ties_with_woke_harvard/o43eqno/  
+Comment ID:      o43eqno  
+Author:          Cute-Beyond-8133  
+Bio:             Skylar  : i make memes when i am not Busy with law school   
+Account Created: 2021-05-21T07:45:59Z  
+Link Karma:      52689  
+Comment Karma:   346929  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T15:37:30Z  
+Score:           3222 points  
+Post Title:      Pentagon says it's cutting ties with "woke" Harvard, discontinuing military training and fellowships  
+:::::: Reddit User Comment: ======  
+Woke.
+
+Harvard
+
+You can have one you can't have both
+
+> Starting with the 2026\-27 academic year, the Pentagon will discontinue graduate\-level professional military education, fellowships and certificate programs, the statement said.
+
+Because that's exactly what you want right ?
+Less Ivy league educated officers from fricking Harvard.
+
+Litarly the global standard for a Top tier university.
+
+Do you feel safer yet ?
+
+Are you tired of winning?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Notice the insincere "playing dumb" mockery questioning. People can not resist their programmed compulsive mocking at the total mockery. It just goes on and on, hour after hours, nearly 11 full years of MAGA mindsets and Trumpism thinking on Reddit. High-speed media reaction mindsets. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o43kd1q
+
+    entry 364
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qygw1t/pentagon_says_its_cutting_ties_with_woke_harvard/o43kd1q/  
+Comment ID:      o43kd1q  
+Author:          PaleRun4706  
+Bio:               
+Account Created: 2024-10-18T14:58:44Z  
+Link Karma:      1  
+Comment Karma:   2849  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T16:04:59Z  
+Score:           308 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+It is so crazy when you consider how many republicans and high ranking military personnel have been students. They just want to feed the anti\-intellectualism that is so popular among mouth breathers.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Crazy"
+> 
+> Anything to halt, stop, ponder. And turn to nonfiction books from Dr. Bandy X Lee on the topic of mental health, "crazy". Reddit fandom of commenting is so addicted to writing, nonfiction reading and quoting is out of the question in programmed mindsets.
+>
