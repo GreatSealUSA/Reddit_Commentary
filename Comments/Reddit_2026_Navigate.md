@@ -39,3 +39,10 @@ Reddit comments:
 3. [February 2026 2026-02-01 General Reddit society / media enviornment](Reddit_2026-01/Reddit_commentary_2026-02-01_General_out.md)
 
 Yes, we are putting February into the pile so far.
+
+&nbsp;
+
+# Some year 2025 lookback
+
+1. [Year 2025 Reddit comments revisited in year 2026](Reddit_2026-01/Reddit_Best_of_2025_out.md)
+

@@ -9938,5 +9938,466 @@ It is so crazy when you consider how many republicans and high ranking military 
 > :::::: Analysis_Thoughts Commentary: ======  
 > "Crazy"
 > 
-> Anything to halt, stop, ponder. And turn to nonfiction books from Dr. Bandy X Lee on the topic of mental health, "crazy". Reddit fandom of commenting is so addicted to writing, nonfiction reading and quoting is out of the question in programmed mindsets.
+> Anything *NOT to* halt, stop, ponder. And turn to nonfiction books from Dr. Bandy X Lee on the topic of mental health, "crazy". Reddit fandom of commenting is so addicted to writing, nonfiction reading and quoting is out of the question in programmed mindsets.
+>
+
+
+=============
+  
+## Reddit comment o44j8k5
+
+    entry 365
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qylx9w/at_a_preolympics_presser_us_figure_skating_champ/o44j8k5/  
+Comment ID:      o44j8k5  
+Author:          CraigGregory  
+Bio:               
+Account Created: 2025-01-13T02:40:36Z  
+Link Karma:      121  
+Comment Karma:   22648  
+Comment Age:     58 minutes ago  
+Timestamp:       2026-02-07T18:56:46Z  
+Score:           889 points  
+Post Title:      At a pre-Olympics presser, US figure skating champ Amber Glenn spoke out against the Trump regime's attacks on queer people like her, as well as other communities. Today, she posted that she'll limit her time on social media after getting "hate/threats", but vows to continue speaking out.  
+:::::: Reddit User Comment: ======  
+Americans threatening their own athletes. How American
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit top-voted comment in February 2026... a one-sentence Twitter-length message. ANYTHING but assert, quote, and encourage people to confront the hate issue with Dr. Bandy X Lee's leadership since publishing her October 3, 2017 book of 27 professionals on mental health of the situation...
+>
+
+
+=============
+  
+## Reddit comment o44kqb0
+
+    entry 366
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qylx9w/at_a_preolympics_presser_us_figure_skating_champ/o44kqb0/  
+Comment ID:      o44kqb0  
+Author:          AlmostThere4321  
+Bio:             I ain't reading all that; free Palestine :   
+Account Created: 2024-12-28T00:27:45Z  
+Link Karma:      2139  
+Comment Karma:   136453  
+Comment Age:     52 minutes ago  
+Timestamp:       2026-02-07T19:04:15Z  
+Score:           206 points  
+Post Title:      At a pre-Olympics presser, US figure skating champ Amber Glenn spoke out against the Trump regime's attacks on queer people like her, as well as other communities. Today, she posted that she'll limit her time on social media after getting "hate/threats", but vows to continue speaking out.  
+:::::: Reddit User Comment: ======  
+Queen shit.
+
+Imagine getting death threats for denouncing a pdf fascist
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Note this comment creator's user profile is pro-TLDR, won't read serious and deep nonfiction content.
+>
+
+
+=============
+  
+## Reddit comment o44klp8
+
+    entry 367
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qylx9w/at_a_preolympics_presser_us_figure_skating_champ/o44klp8/  
+Comment ID:      o44klp8  
+Author:          STRAYDUP420  
+Bio:               
+Account Created: 2016-09-19T04:51:38Z  
+Link Karma:      18  
+Comment Karma:   -100  
+Comment Age:     55 minutes ago  
+Timestamp:       2026-02-07T19:03:36Z  
+Score:           49 points  
+Post Title:      At a pre-Olympics presser, US figure skating champ Amber Glenn spoke out against the Trump regime's attacks on queer people like her, as well as other communities. Today, she posted that she'll limit her time on social media after getting "hate/threats", but vows to continue speaking out.  
+:::::: Reddit User Comment: ======  
+Using your light \& platform for spreading inclusivity \& love is how we get through this darkness.
+
+Way to be, Amber. Lead by example, take notes from her!
+
+
+
+
+=============
+  
+## Reddit comment o44hfbb
+
+    entry 368
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qylihr/orban_declares_ukraine_enemy_of_hungary/o44hfbb/  
+Comment ID:      o44hfbb  
+Author:          AyeMatey  
+Bio:               
+Account Created: 2010-09-19T23:31:07Z  
+Link Karma:      31853  
+Comment Karma:   63486  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T18:47:49Z  
+Score:           3586 points  
+Post Title:      Orban declares Ukraine 'enemy' of Hungary  
+:::::: Reddit User Comment: ======  
+So of course Donald Trump supports Mr Orban
+
+Is anyone else noticing the pattern here?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ANSWER: Yes. I've noticed a pattern here on Reddit commenting section of banal "playing dumb" question engagement technique of social media. Reddit social media top-voted comment. https://infoMedia.com/blog/the-power-of-a-question-in-social-media-marketing/
+> 
+> I also witness absence of any alarm or call to intellectual arms against Putin's information warfare. That serious shit and use of spare time and free time is unwelcome and avoided - that's what I notice.
+> 
+> * From September 9, 2014 - **more than a decade** - we could have kept repeating it and defeated Putin's takeover of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - we should NOW be repeating it every 47 hours over and over, keep repeating, again and again!
+> 
+> ANSWER: Yes. I've noticed a pattern here on Reddit commenting section of banal "playing dumb" question engagement technique of social media. Reddit social media top-voted comment. https://infoMedia.com/blog/the-power-of-a-question-in-social-media-marketing/
+>
+
+
+=============
+  
+## Reddit comment o44eyuk
+
+    entry 369
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1qylihr/orban_declares_ukraine_enemy_of_hungary/o44eyuk/  
+Comment ID:      o44eyuk  
+Author:          supercyberlurker  
+Bio:             I've been on the net a long long time and that isn't a flex or a confession.  
+Account Created: 2016-03-17T01:42:05Z  
+Link Karma:      1625  
+Comment Karma:   2403501  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T18:35:42Z  
+Score:           1574 points  
+Post Title:      Orban declares Ukraine 'enemy' of Hungary  
+:::::: Reddit User Comment: ======  
+Orban will harm Hungary more than Ukraine ever possibly could.
+
+
+
+
+=============
+  
+## Reddit comment o44oftn
+
+    entry 370
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tweet_for_absolutely_zero_reason/o44oftn/  
+Comment ID:      o44oftn  
+Author:          outsidehere  
+Bio:               
+Account Created: 2023-07-06T12:34:33Z  
+Link Karma:      1  
+Comment Karma:   228664  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T19:23:03Z  
+Score:           818 points  
+Post Title:      Reposting an old tweet for absolutely zero reason  
+:::::: Reddit User Comment: ======  
+Yeah honestly as soon as the "p\*do guy" thing during the rescue of those boys, I knew he was one of those
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World Hate Leadership. Twitter hate leadership.
+>
+
+
+=============
+  
+## Reddit comment o44qcaf
+
+    entry 371
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tweet_for_absolutely_zero_reason/o44qcaf/  
+Comment ID:      o44qcaf  
+Author:          seriousbangs  
+Bio:               
+Account Created: 2017-03-29T03:35:55Z  
+Link Karma:      3994  
+Comment Karma:   400787  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T19:32:56Z  
+Score:           227 points  
+Post Title:      Reposting an old tweet for absolutely zero reason  
+:::::: Reddit User Comment: ======  
+Yeah, we all know. That's the problem.
+
+Anyone who cares already doesn't like Musk and billionaires.
+
+A depressingly large percentage of the population has no issues with grown men raping 13\-14 year old girls. 
+
+That's the main takeaway I've gotten from this. 
+
+
+
+
+=============
+  
+## Reddit comment o44ou2k
+
+    entry 372
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qymjgz/reposting_an_old_tweet_for_absolutely_zero_reason/o44ou2k/  
+Comment ID:      o44ou2k  
+Author:          Lavs1985  
+Bio:               
+Account Created: 2019-06-15T21:40:27Z  
+Link Karma:      1757  
+Comment Karma:   39584  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T19:25:06Z  
+Score:           117 points  
+Post Title:      Reposting an old tweet for absolutely zero reason  
+:::::: Reddit User Comment: ======  
+This is disgusting. Full stop. But there is an element of this that’s funny for the part of how Elmo was BEGGING to join the party only to be told he’s not cool enough to belong. Him and Trump want SO BADLY to be loved and accepted…
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Funny to mock owners of media systems all day and night using media systems. Entertainment engagement. 
+> 
+> Why is Reddit commenting section not constantly repeating Dr. Bandy X Lee's nonfiction book since it was published October 3, 2017? Is 27 professionals not good enough for Reddit comment creators to quote and point at? Or is Reddit commenting users fixated on billionaire white men to comment about over and over and over with free time and spare time?
+>
+
+
+=============
+  
+## Reddit comment o45axlr
+
+    entry 373
+
+Comment URL: https://old.reddit.com/r/quilting/comments/1qyppfs/we_know_what_we_saw/o45axlr/  
+Comment ID:      o45axlr  
+Author:          TwoGroundbreaking265  
+Bio:               
+Account Created: 2024-06-13T00:13:41Z  
+Link Karma:      107  
+Comment Karma:   921  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T21:23:24Z  
+Score:           54 points  
+Post Title:      We Know What We Saw  
+:::::: Reddit User Comment: ======  
+A friend is using Red Bubble to raise some money for The Bond Between to care for pets impacted by the kidnappings. The money gets periodically deposited in their account and they send that amount to the org.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> **Witnessing Hate Affairs**
+> 
+> Social post { https://autistics.life/@RoundSparrow/116032060979032918 https://bsky.app/profile/roundsparrow.bsky.social/post/3mecmquhbbc2x }
+>
+
+
+=============
+  
+## Reddit comment o4a9og9
+
+    entry 374
+
+Comment URL: https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4a9og9/  
+Comment ID:      o4a9og9  
+Author:          Nuclear-Jester  
+Bio:               
+Account Created: 2025-07-30T07:25:10Z  
+Link Karma:      3694  
+Comment Karma:   113057  
+Comment Age:     51 minutes ago  
+Timestamp:       2026-02-08T17:35:25Z  
+Score:           None  
+Post Title:      Federal statement on Jeffrey Epstein's death dated day before he was found dead  
+:::::: Reddit User Comment: ======  
+Mmmh, and the FBI just denied the dude traficked girls
+
+For some reason, i find this suspicious
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> UK World News site posting on Reddit media. 6 month Reddit account is top comment, most-upvoted popular.
+>
+
+
+=============
+  
+## Reddit comment o4aajtw
+
+    entry 375
+
+Comment URL: https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aajtw/  
+Comment ID:      o4aajtw  
+Author:          fsactual  
+Bio:               
+Account Created: 2021-11-23T22:46:25Z  
+Link Karma:      3701  
+Comment Karma:   101372  
+Comment Age:     49 minutes ago  
+Timestamp:       2026-02-08T17:39:40Z  
+Score:           None  
+Post Title:      Federal statement on Jeffrey Epstein's death dated day before he was found dead  
+:::::: Reddit User Comment: ======  
+They’re just fucking with us now. They’re laughing about this.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit is the laughing amplifiers. Reddit audience gets their laughs at Putin and Trump Reality TV governing, "Surkov Governing", and eats it up. Trump and others play Tony Clifton antics of "playing dumb" to the Reddit fandom and the Reddit fandom does what happens in Clifton performances - mocks back at Clifton the character as { moron, dumb, idiot, stupid, terrible }. Surkov won since March 2013, NATO lost.
+>
+
+
+=============
+  
+## Reddit comment o4ac6l9
+
+    entry 376
+
+Comment URL: https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4ac6l9/  
+Comment ID:      o4ac6l9  
+Author:          cassy_supernova  
+Bio:               
+Account Created: 2022-03-06T18:30:21Z  
+Link Karma:      1630  
+Comment Karma:   26219  
+Comment Age:     43 minutes ago  
+Timestamp:       2026-02-08T17:47:29Z  
+Score:           None  
+Post Title:      Federal statement on Jeffrey Epstein's death dated day before he was found dead  
+:::::: Reddit User Comment: ======  
+White House press corp start doing your job.
+
+"Mr. President. Why did your DOJ draft a statement about Jeffrey Epstein's death the day before he died?"
+
+"Mr. President, now that the whole world knows you are a child rapist, are you going to resign?"
+
+Stop sanewashing this monster. Do your job.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "sanewashing". Reddit consumer is blind to Neil Postman NYU NYC teaching from Manhattan. The 1985 book, decades and decades ago, explaining comedy-washing amusement-washing that the Reddit comments are doing constantly. Reddit is the problem, elevating the White House and Kremlin to Gods of Comedy Jokes. Reddit is the milking factory of "LOL cows". Neil Postman was correct in year 1985 about the meme stupor behaviors of Reddit fandom to reactionary commenting.
+>
+
+
+=============
+  
+## Reddit comment o4aa1zv
+
+    entry 377
+
+Comment URL: https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aa1zv/  
+Comment ID:      o4aa1zv  
+Author:          Prestigious-Key-1886  
+Bio:               
+Account Created: 2025-08-09T18:46:53Z  
+Link Karma:      1  
+Comment Karma:   9426  
+Comment Age:     57 minutes ago  
+Timestamp:       2026-02-08T17:37:15Z  
+Score:           None  
+Post Title:      Federal statement on Jeffrey Epstein's death dated day before he was found dead  
+:::::: Reddit User Comment: ======  
+Don’t be suspicious don’t be suspicious
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Chanting simplistic game-loop rituals of Reddit fandom to White House antics. Half-year old Reddit account. Twitter-bird singing little slogans and meme patterns to follow the leaders, reacting to White House and federal statements. Meme addicts gone wild, going wild in the audience like they are cheering on a money-winning Game Show. All conditioned and manipulated by the billionaire media systems. In a simulation of resistance that is in true true real reality a fandom of racing to notifications about Kremlin and White House antics. High-speed information system gamers on Reddit.
+>
+
+
+=============
+  
+## Reddit comment o4aamhi
+
+    entry 378
+
+Comment URL: https://old.reddit.com/r/news/comments/1qzf47y/federal_statement_on_jeffrey_epsteins_death_dated/o4aamhi/  
+Comment ID:      o4aamhi  
+Author:          hmr0987  
+Bio:             Embolism9620 :   
+Account Created: 2018-01-05T23:32:11Z  
+Link Karma:      235  
+Comment Karma:   112593  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T17:40:02Z  
+Score:           1284 points  
+Post Title:      Federal statement on Jeffrey Epstein's death dated day before he was found dead  
+:::::: Reddit User Comment: ======  
+It’s starting to look like this Epstein guy might not have killed himself.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="936" height="1274" alt="image" src="https://github.com/user-attachments/assets/7ec35aa2-8445-4188-bd29-f537f832410d" />
+> 
+> THE **SURKOV STUDENTS** HAVE WON!!! BIGGEST RFK / JFK / RFK JR / TRUMP-PUTIN WIN IN MEDIA SYSTEMS HISTORY!!!  SYMBOLISM GUMBO OF WORLD WIDE ISLAND IN THE OCEAN, LEVANT MONOMYTH EDEN ISLAND ITSELF!
+> 
+> * 1993, that is 1985 + 8. Count the years since years since 1983, reel in those years. Duke University. Texan Rick Roderick.
+> * * "I mean, **my kids will have live in more of it than I** will ever see. So I am trying to understand it and think about it as much as I can, and a sense you get is one that resembles vertigo. How many of you have seen Vertigo, the great Alfred Hitchcock movie? You know, that ***sort of sickly sense*** that you are twisting above… sort of, abysmally too much of something. This seems to me a fine, sort of, mood characterisation for the postmodern trajectory. A sense of vertigo before **all this information**.
+> Well if theses like the ones that I just described that Baudrillard holds are true… But of course **the word “true” will no longer apply**, because we will be in a setting in which **you won’t want the true**, you will want the truer than true. You won’t even… The **false won’t even be a good enough lie for you**, you’ll want the lie better than a lie. I mean, the truer than true explanation. You won’t just want Oliver Stone‘s film about JFK. **You’ll want the film about how Oliver Stone himself participated in the plot to cover up the real assassins by making the film JFK**. They want the truth about the truth about the truth and all the way down, interminably. Vertigo. That’s ***the sense you get looking down that chain of bizarre stories***."
+> 
+> Social post { https://autistics.life/@RoundSparrow/116036508190937116 https://bsky.app/profile/roundsparrow.bsky.social/post/3meelym3scs2q }
+>
+
+
+=============
+  
+## Reddit comment o49oupg
+
+    entry 379
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qzc102/election_interference_france_isnt_happy_with_musk/o49oupg/  
+Comment ID:      o49oupg  
+Author:          ReturnOfSeq  
+Bio:               
+Account Created: 2022-05-12T23:00:27Z  
+Link Karma:      24861  
+Comment Karma:   285562  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T15:53:53Z  
+Score:           337 points  
+Post Title:      Election Interference? France isn’t happy with Musk!  
+:::::: Reddit User Comment: ======  
+USA **COULD** have as well. Should have, even.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The programmed (billionaire programming) mindset of USA on Reddit... is that... "USA" means The Government. Not **"We The People" USA**. There is no PLURIBUS leading concept in the current February 2026 Reddit hive mind that 0.34 billion people are responsible for the nation's behavior. That in a democracy, every minute of every day, we represent. Even those too young, even non-voters.
+> 
+> ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments: 
+> 
+> 1. <img width="1614" height="175" alt="image" src="https://github.com/user-attachments/assets/9520d506-4df3-4c63-aa34-104a71d2702a" />
+> * "The Brainwashing of My Dad" 🎬 film and 📕 book"
+> * 1,328 followers
+> 2. Why are there so few followers of a woman, a baby boomer woman in a red state of Arizona? Why on Reddit do you constantly see commenting about "braindead", "brainwashed", "cult"... and everyone is not using social media to link this Bluesky account? Why only 1,328 followers on 2026-02-08 noonish in USA?
+> 
+> 3. <img width="893" height="178" alt="image" src="https://github.com/user-attachments/assets/1a22fb09-7b92-4a35-b21e-35c3f53ab270" />
+> * "Bandy X Lee, MD, MDiv"
+> * 3,144 followers
+> 
+> 4. Why are women leaders of society, government and non-government alike, Kamala Harris - not followed by the masculine tech-love machine-love Reddit community?
+> 
+> 5. <img width="946" height="182" alt="image" src="https://github.com/user-attachments/assets/47f24fb0-7298-483d-8c10-681894a353ab" />
+> * "Alexandria Ocasio-Cortez"
+> * 2,201,124 followers
+> * Why is AOC, Alexandria Ocasio-Cortez - a TLA -  a legend in her own time, not pointing her fandom and Bluesky media audience to nonfiction of book of... Dr. Bandy X Lee's 27 participants in her October 3, 2017 book over and over and over since year 2017? Why is AOC not using Bluesky media to promote Jen Senko right on Bluesky?
+> 
+> ASK YOURSELF THESE QUESTIONS OVER AND OVER as you read the millions of Bluesky and Reddit comments... on Super Bowl Microsoft founder Paul Allen Seattle Seahawks tech male super-medical players sports icon USA NFL public dream... USA society biggest media event day... why are Jen Senko nonfiction and Dr. Bandy X. Lee nonfiction - not promoted by people with spare time and free time on Reddit commenting and Bluesky commenting... WHY?
+> 
+> <img width="946" height="182" alt="image" src="https://github.com/user-attachments/assets/71bc94e0-1bd8-4e0e-a627-35af9a8f77a7" />
+> 
+> Alexandria Ocasio-Cortez. 2,201,124 followers. WHY does nobody recognize this as a media ecology crisis? The topic of Neil Postman? "The Brainwashing of My Dad" 🎬 film and 📕 book" 1,328 followers
+> 
+> Obligatory **Sunday Church** recall from year 1968. A man who **USA** Atlanta, Georgia born - was not a GOVERNMENT representative... a man OUTSIDE GOVERNMENT. Like February 2026 the woman Jen Senko with only 1,328 followers, outside government. Like the woman Dr. Bandy X Lee with 27 people in her book... outside government.
+> 
+> * " And somehow this warm glow we feel when we are praised or when our name is in print is something of the **vitamin A to our ego**. Nobody is unhappy when they are praised, even if they know they don't deserve it and even if they don't believe it. The only unhappy people about praise is when that praise is going too much toward somebody else. But everybody likes to be praised because of this real drum major instinct."
+> 
+> OPERA_A We found The Rats on Reddit and Bluesky, the population of Reddit and BLuesky, who won't follow Jen Senko and Dr. Bandy X Lee and fall for Putin's masculine macho bullshit. September 1982. https://www.youtube.com/watch?v=gxv4g1jATks 1,351 views  June 26, 2013 - listen to the opening lyrics. Year 2026 is the "Streets of the future"...
 >
