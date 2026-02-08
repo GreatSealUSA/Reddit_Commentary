@@ -441,9 +441,9 @@ Post Title:      White House responds to backlash over ‘racist’ post depicti
 > 
 > * https://youtu.be/08R1kPdfrHA?t=2407 "Art is more worth than truth" "that of James Joyce"... "proper and improper art" ... *commercial art*. White House art work, images created by the White House!!! https://youtu.be/08R1kPdfrHA?t=2527 "or politics". Surkovian.
 > 
-> * **"A Grand Symptom"** https://youtu.be/08R1kPdfrHA?t=2585 "One Great Virtue", "Mythological Meaningful"
+> * **"A Grand Symptom"** https://youtu.be/08R1kPdfrHA?t=2585 "One Great Virtue", "Mythologically Meaningful"
 > 
-> OPERA_A I hope to match... "One Great Virtue", "Mythological Meaningful" - with this track for you! https://www.youtube.com/watch?v=RziQ-kZdVJU Guru player. USA year 250, We The People were Children Once, PLAYING WITH TOYS!  Meme toys, Great Seal of the United States of America. 8,691 views  March 17, 2013
+> OPERA_A I hope to match... "One Great Virtue", "Mythologically Meaningful" - with this track for you! https://www.youtube.com/watch?v=RziQ-kZdVJU Guru player. USA year 250, We The People were Children Once, PLAYING WITH TOYS!  Meme toys, Great Seal of the United States of America. 8,691 views  March 17, 2013
 > :::: *Cover of "Low Spark of High Heeled Boys" for the Theme Music Group.  Theme: Title Tracks.  Yes, I finger-sync nearly as badly as I lip-sync.  By the time I got to the video, I just wanted to get it DONE.* ::: By that a gun that didn't make any noise... but it wasn't the bullet that laid him to rest... it was the piano playing of Steve Winwood fandom!
 > 
 > Social post { https://autistics.life/@RoundSparrow/116024765554492125 https://bsky.app/profile/roundsparrow.bsky.social/post/3me7f5aesqs22 }
@@ -3419,7 +3419,7 @@ That's because our Epstein\-Trump problem is the latter half.
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-> That's because Reddit fandom of Trump and Reddit fandom of Epstein entertainment systems can't follow a WOMAN named Dr. Bandy X Lee **who published a nonfiction compilation book on October 3, 2017 that every damn person with tech social media skills to comment should be quoting on Reddit over and over and repeating again and again!!!***
+> That's because Reddit fandom of Trump and Reddit fandom of Epstein entertainment systems can't follow a WOMAN named Dr. Bandy X Lee **who published a nonfiction compilation book on October 3, 2017 that every damn person with tech social media skills to comment should be quoting on Reddit over and over and repeating again and again!!!**
 > 
 > She fucking compiled 27 different writing authors into one book for Reddit community to quote. But people can not stop the compulsive mockery to Trump / ICE / MAGA / Putin / Musk to turn to a woman GenX leader. Is her GenX laugh too much like GenX Kamala Harris laugh for Reddit? Are all 27 authors not good enough for Reddit? Or does REDDIT SOCIETY have a fucking nonfiction engagement issue?
 > 
@@ -3452,4 +3452,1951 @@ Muted is a strange way to say non\-existent.
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
 > Shallow commenting on Reddit. Superficial. Banal. Word-choice concerned. ANYTHING but ... Dr. Bandy X Lee quoting. ANYTHING to spend free time on Reddit with low-effort shit-commenting and shit-posting about USA and Epstein situation. Addicts to shit-commenting can't escape to Dr Bandy X Lee's nonfiction and start building a massive mental health backlash, turn the tide, towards science thinking and away from meme-think Twitter-length short message Reddit commenting!
+>
+
+
+=============
+  
+## Reddit comment o43uhny
+
+    entry 118
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyip1z/nsa_detected_phone_call_between_foreign/o43uhny/  
+Comment ID:      o43uhny  
+Author:          moderatenerd  
+Bio:               
+Account Created: 2015-09-03T13:57:45Z  
+Link Karma:      70406  
+Comment Karma:   240879  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T16:54:45Z  
+Score:           None  
+Post Title:      NSA detected phone call between foreign intelligence and a person close to Trump  
+:::::: Reddit User Comment: ======  
+I am thinking this is the tip of the iceberg and hopefully in a few years Trump will be proven as a traitor to the country.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> I cry uncle.
+>
+
+
+=============
+  
+## Reddit comment o43v0u8
+
+    entry 119
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qyip1z/nsa_detected_phone_call_between_foreign/o43v0u8/  
+Comment ID:      o43v0u8  
+Author:          2HDFloppyDisk  
+Bio:               
+Account Created: 2019-07-31T02:48:13Z  
+Link Karma:      17423  
+Comment Karma:   416260  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T16:57:20Z  
+Score:           None  
+Post Title:      NSA detected phone call between foreign intelligence and a person close to Trump  
+:::::: Reddit User Comment: ======  
+Nothing to see here, just Tulsi the traitor conspiring with a foreign government.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Hyperbanal commenting on Reddit systems. See: https://Old.Reddit.com/r/HyperBanalisation/ What to see here: Reddit mind-fucking with Twitter-thinking short-length messaging to audience that none of this is serious. No need for We The People to take over where the NSA / CIA is failing. No call for intellectual defense of USA by militia. No call for unarmed uprising of peace and nonfiction education. No call for counter-brainwashing counter-intelligence counter-Surkov counter-cult Fox News HDTV deprogram television programming, how does one describe this... road...
+> 
+> * "Well I don’t know how much further we can go down this road but in any case, ah, the road according to Baudrillard is an endless set..." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+>
+
+
+=============
+  
+## Reddit comment o449exs
+
+    entry 120
+
+Comment URL: https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o449exs/  
+Comment ID:      o449exs  
+Author:          blackadder1620  
+Bio:               
+Account Created: 2017-02-01T00:49:12Z  
+Link Karma:      26851  
+Comment Karma:   174367  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T18:08:28Z  
+Score:           895 points  
+Post Title:      Epstein revelations have toppled top figures in Europe while US fallout is more muted  
+:::::: Reddit User Comment: ======  
+the epstein list seems more like a hiring list to this admin.
+
+
+
+
+=============
+  
+## Reddit comment o446fkj
+
+    entry 121
+
+Comment URL: https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o446fkj/  
+Comment ID:      o446fkj  
+Author:          B-Z_B-S  
+Bio:             I don't hide my profile. That's my social media philosophy. Feel free to judge me based on my comments. Reddit is where we define our appearance and how we want to be seen.  
+Account Created: 2025-10-15T01:35:29Z  
+Link Karma:      339  
+Comment Karma:   227473  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T17:53:50Z  
+Score:           1038 points  
+Post Title:      Epstein revelations have toppled top figures in Europe while US fallout is more muted  
+:::::: Reddit User Comment: ======  
+The difference is that the leader of the United States is the most prominent figure in the Epstein Files. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account. Highly upvoted popular.
+>
+
+
+=============
+  
+## Reddit comment o445xy6
+
+    entry 122
+
+Comment URL: https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o445xy6/  
+Comment ID:      o445xy6  
+Author:          bonfireball  
+Bio:             Bonfireball : "Knowledge Forbidden? why would their Lord envy them that? can it be sin to know? Can it be death"  
+Account Created: 2018-11-09T08:34:08Z  
+Link Karma:      2190  
+Comment Karma:   13938  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T17:51:25Z  
+Score:           1199 points  
+Post Title:      Epstein revelations have toppled top figures in Europe while US fallout is more muted  
+:::::: Reddit User Comment: ======  
+Because the rest of the world still has at least a shred of integrity left, while the U.S sold it to a dementia ridden fascist and his cronies
+
+
+
+
+=============
+  
+## Reddit comment o449bna
+
+    entry 123
+
+Comment URL: https://old.reddit.com/r/news/comments/1qykcmm/epstein_revelations_have_toppled_top_figures_in/o449bna/  
+Comment ID:      o449bna  
+Author:          Ok-Run2845  
+Bio:             NowhereToGo-NowhereToReturn : My name is Diogo Montoyo Pollo. You grilled my father. Prepare to fry.  
+Account Created: 2021-05-02T03:41:27Z  
+Link Karma:      724  
+Comment Karma:   61728  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T18:08:01Z  
+Score:           41 points  
+Post Title:      Epstein revelations have toppled top figures in Europe while US fallout is more muted  
+:::::: Reddit User Comment: ======  
+Just today, i remarked this in another post. The majority of the responses were "all the world is the same".
+
+The (voluntary?) blindness of some people is discouraging. Nothing will improve if they think that their politics, government and judicial silence is the normal, average reaction to a massive pedophilic ring.
+
+
+
+
+=============
+  
+## Reddit comment o43uevc
+
+    entry 124
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qyi6ou/man_83_sentenced_to_life_in_prison_for_murder_of/o43uevc/  
+Comment ID:      o43uevc  
+Author:          TheyCallMeMrMaybe  
+Bio:               
+Account Created: 2016-11-22T06:34:26Z  
+Link Karma:      27642  
+Comment Karma:   519016  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-07T16:54:23Z  
+Score:           4803 points  
+Post Title:      Man, 83, Sentenced To Life In Prison For Murder Of Uber Driver  
+:::::: Reddit User Comment: ======  
+Decades of conservative media brainwashing will do that to anyone who grew up huffing leaded exhaust fumes \& leaded paint.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> On Reddit: "conservative media leads to violence". maybe sometimes even "Clergy of Quran leads to 9/11 violence"...but never "video gaming leads to violence". Magazine media, sure. Gaming media, never. Despite noting in gaming to prevent hate preaching media content payloads. Comparative Mythology and being bamboozled by the rich using fiction storytelling and massive intellectual property puppeting of the mind... uneducated, unable to explain. People who think gaming away real-identity with jokes and memes is a fun video game. Surkov won since March 2013, using Reddit, Twitter, Facebook, etc.
+> 
+> * January 3, 2026 — "Russia **systematically uses video games** as a tool for state propaganda, youth militarization, and gamer recruitment." https://theukrainianreview.info/how-the-kremlin-uses-video-games-for-propaganda-militarization-and-recruitment-of-youth/
+> 
+> People who love machines more than human beings.
+> 
+> * Original US Release: October 15, 1940. US General Release/Premiere: October 31, 1940. Director/Star: Charlie Chaplin. "don’t give yourselves to brutes - men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle, use you as cannon fodder. Don’t give yourselves to these unnatural men - **machine men with machine minds and machine hearts! You are not machines!** You are not cattle! You are men! You have the **love of humanity** in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power" https://www.CharlieChaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+> 
+> Often those /r/All meme machines, screen games of hate-prizing rewards of humiliating others with information systems.
+>
+
+
+=============
+  
+## Reddit comment o43sogf
+
+    entry 125
+
+Comment URL: https://old.reddit.com/r/videos/comments/1qyi6ou/man_83_sentenced_to_life_in_prison_for_murder_of/o43sogf/  
+Comment ID:      o43sogf  
+Author:          UnderwaterB0i  
+Bio:               
+Account Created: 2021-10-13T13:55:54Z  
+Link Karma:      5128  
+Comment Karma:   141506  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-07T16:45:50Z  
+Score:           2032 points  
+Post Title:      Man, 83, Sentenced To Life In Prison For Murder Of Uber Driver  
+:::::: Reddit User Comment: ======  
+Elderly people are so susceptible to this stuff. I wish we had better containment around these phone/email scams. I know that’s not the main story here, but it’s definitely part of it.
+
+
+
+
+=============
+  
+## Reddit comment o44olyv
+
+    entry 126
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44olyv/  
+Comment ID:      o44olyv  
+Author:          Heliocentrist  
+Bio:             Some stupid with a space gun :   
+Account Created: 2013-03-30T00:48:28Z  
+Link Karma:      110166  
+Comment Karma:   345309  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T19:23:56Z  
+Score:           220 points  
+Post Title:      Repeated excuse, same audience  
+:::::: Reddit User Comment: ======  
+people are saying Young Intern's name appears in the Epstein files 38,000 times 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mecl4pkeac2x https://autistics.life/@RoundSparrow/116031941850685472 }
+>
+
+
+=============
+  
+## Reddit comment o44nohn
+
+    entry 127
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44nohn/  
+Comment ID:      o44nohn  
+Author:          totallyclips  
+Bio:               
+Account Created: 2008-09-25T11:28:30Z  
+Link Karma:      47727  
+Comment Karma:   123271  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T19:19:10Z  
+Score:           80 points  
+Post Title:      Repeated excuse, same audience  
+:::::: Reddit User Comment: ======  
+The 79yr old intern who should be interned is a lying sack of shit
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> October 22, 2015 - people keep blaming "dementia", and this strategic media behavior goes back decades.
+>
+
+
+=============
+  
+## Reddit comment o44n6ot
+
+    entry 128
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44n6ot/  
+Comment ID:      o44n6ot  
+Author:          Bulky-Internal8579  
+Bio:             MichiganGuy :   
+Account Created: 2020-12-26T20:40:37Z  
+Link Karma:      74  
+Comment Karma:   496957  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T19:16:40Z  
+Score:           140 points  
+Post Title:      Repeated excuse, same audience  
+:::::: Reddit User Comment: ======  
+No one with a brain cell believes him, but we don’t have much in the way of journalists or politicians who hold him accountable, so we wait and wait for better post\-Trump days and support the ACLU, Pro Publica and worthy politicians and organizations committed to a better world in the meantime.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+> ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+>
+
+
+=============
+  
+## Reddit comment o44r3m6
+
+    entry 129
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44r3m6/  
+Comment ID:      o44r3m6  
+Author:          northgrave  
+Bio:               
+Account Created: 2014-06-29T02:31:19Z  
+Link Karma:      5515  
+Comment Karma:   21948  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T19:36:54Z  
+Score:           43 points  
+Post Title:      Repeated excuse, same audience  
+:::::: Reddit User Comment: ======  
+For the moment, let's assume this is true.
+
+Why are communications from the President of the United States being handled without oversight by "a young intern"?
+
+
+
+
+=============
+  
+## Reddit comment o44oloy
+
+    entry 130
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44oloy/  
+Comment ID:      o44oloy  
+Author:          thetaleofzeph  
+Bio:               
+Account Created: 2022-06-29T09:15:25Z  
+Link Karma:      3312  
+Comment Karma:   296595  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T19:23:54Z  
+Score:           37 points  
+Post Title:      Repeated excuse, same audience  
+:::::: Reddit User Comment: ======  
+His supporters love that he's a lying sack of shit though. Makes them feel part of things.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It's the opposite. Bamboozle egoism, pain of truth. Pain of facing that Fox News HDTV is fiction. Pain of facing that Bible and Church are science fiction, as is the Quran 9/11 Mohammad inspiration. All fiction storytelling.
+> 
+> * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241
+>
+
+
+=============
+  
+## Reddit comment o44pbmn
+
+    entry 131
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44pbmn/  
+Comment ID:      o44pbmn  
+Author:          PeterTheTruthSeeker  
+Bio:             Peter Jackson : An Ordinary Californian, in search of Peace in Oklahoma. History, Music Animals and Human rights.   Proudly an Anti-War Black.  
+Account Created: 2020-01-28T10:21:14Z  
+Link Karma:      408392  
+Comment Karma:   15433  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T19:27:38Z  
+Score:           16 points  
+Post Title:      Repeated excuse, same audience  
+:::::: Reddit User Comment: ======  
+The young intern excuse for over a decade? How many interns are taking the fall for his posts? It's ridiculous.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit it eats it up. Reddit audience can't turn to any nonfiction sources and depth on the problem, Reddit fandom is always shallow superficial reacting. Reddit end-users predictably mock back to the mocking. President Tony Clifton acting blows the Reddit audience minds. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o44oiol
+
+    entry 132
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1qymk7z/repeated_excuse_same_audience/o44oiol/  
+Comment ID:      o44oiol  
+Author:          brattybrat  
+Bio:             msnattygrl :   
+Account Created: 2014-06-04T19:03:01Z  
+Link Karma:      2562  
+Comment Karma:   15942  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-07T19:23:27Z  
+Score:           11 points  
+Post Title:      Repeated excuse, same audience  
+:::::: Reddit User Comment: ======  
+No one believes him. For his enablers, they just want him to pretend this is true. They know it's not, they just want him to say it so they can pretend they've held him accountable. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit denial. Reddit end-users who live in such filter-bubbles https://en.wikipedia.org/wiki/Filter_bubble and have blocked-out the hundreds of millions of Fox News audience / Newsmax audience / MAGA fandom can't face that fiction outsells nonfiction and people do in fact believe the Quran is reality, Bible is reality, Torah is reality, etc. 
+> 
+> Trump is tricked by Putin and Reddit user's can describe the timelines or names of the tricksters in Russia that have bamboozled everyone. Donald Trump trusts Putin and people in USA trust Trump.
+> 
+> * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It **can lead us to deny**, defend, **minimize, or rationalize away** something that doesn’t fit our worldview.”
+> ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o45qn44
+
+    entry 133
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o45qn44/  
+Comment ID:      o45qn44  
+Author:          chantsnone  
+Bio:               
+Account Created: 2011-04-19T14:25:58Z  
+Link Karma:      16860  
+Comment Karma:   213383  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T22:49:15Z  
+Score:           190 points  
+Post Title:      Team USA figure skater Amber Glenn speaking at the 2026 Winter Olympics on the importance of using her platform to support the LGBTQ community under the Trump administration: I know a lot of people say you're just an athlete, like stick to your job. Shut up about politics, but politics affect us all  
+:::::: Reddit User Comment: ======  
+By that logic, only politicians can talk politics. All the rest of us can only talk about our jobs.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="891" height="397" alt="image" src="https://github.com/user-attachments/assets/475495c9-fc1d-4186-9882-963d90696bd0" />
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mecniqzwuc2x https://autistics.life/@RoundSparrow/116032112542519304 }
+>
+
+
+=============
+  
+## Reddit comment o45thqh
+
+    entry 134
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o45thqh/  
+Comment ID:      o45thqh  
+Author:          jimmykimnel  
+Bio:               
+Account Created: 2016-11-12T01:18:26Z  
+Link Karma:      93  
+Comment Karma:   1768  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T23:05:45Z  
+Score:           -74 points  
+Post Title:      Team USA figure skater Amber Glenn speaking at the 2026 Winter Olympics on the importance of using her platform to support the LGBTQ community under the Trump administration: I know a lot of people say you're just an athlete, like stick to your job. Shut up about politics, but politics affect us all  
+:::::: Reddit User Comment: ======  
+There's a difference between talking politics with your friends in a back and forth conversation where everyone has input or theres this which is just lecturing people and then running off camera.
+
+
+
+
+=============
+  
+## Reddit comment o46864e
+
+    entry 135
+
+Comment URL: https://old.reddit.com/r/sports/comments/1qyrbsf/team_usa_figure_skater_amber_glenn_speaking_at/o46864e/  
+Comment ID:      o46864e  
+Author:          GlobalLion123  
+Bio:               
+Account Created: 2022-07-11T23:13:36Z  
+Link Karma:      12  
+Comment Karma:   9710  
+Comment Age:     12 minutes ago  
+Timestamp:       2026-02-08T00:35:53Z  
+Score:           2 points  
+Post Title:      Team USA figure skater Amber Glenn speaking at the 2026 Winter Olympics on the importance of using her platform to support the LGBTQ community under the Trump administration: I know a lot of people say you're just an athlete, like stick to your job. Shut up about politics, but politics affect us all  
+:::::: Reddit User Comment: ======  
+She’s taking a social media break because she’s getting death threats now. Most likely all of them are from her own fellow Americans too. Sad
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> So many men who worship Trump Daddy Issues / Putin Daddy Issues - want to silence a woman with powerful masculine meme devices.
+> 
+> * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+>
+
+
+=============
+  
+## Reddit comment o460sde
+
+    entry 136
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qyt9w6/kid_rocks_maga_fest_cancelled_after_nearly_all/o460sde/  
+Comment ID:      o460sde  
+Author:          PaleHorze  
+Bio:               
+Account Created: 2016-03-16T01:23:24Z  
+Link Karma:      3115  
+Comment Karma:   36650  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T23:51:56Z  
+Score:           1771 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Go Woke, Go broke, right?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump fandom on Reddit loves the mockery. Tiny-short messaging of repeating Trump MAGA talking points over and over and over. ANYTHING to avoid promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book on mental health. Nor teaching nonfiction cult deprogramming.
+>
+
+
+=============
+  
+## Reddit comment o4601tc
+
+    entry 137
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qyt9w6/kid_rocks_maga_fest_cancelled_after_nearly_all/o4601tc/  
+Comment ID:      o4601tc  
+Author:          Grand_Town_9144  
+Bio:               
+Account Created: 2025-11-22T03:29:47Z  
+Link Karma:      139  
+Comment Karma:   5445  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-07T23:47:26Z  
+Score:           1375 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+LOL what a quitter, I wanted to see him get embarrassed by the low Sinclair ratings too.
+
+Edit: Aww it's a different shitty thing, oh well my point still stands, I hope he keeps failing at everything.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. Amplifying the MAGA-initiated mockery with "LOL" laugh track for the Reddit fandom. Followers of MAGA always jumping on the total mockery bandwagon when MAGA content appears on Reddit servers.
+>
+
+
+=============
+  
+## Reddit comment o46ff2h
+
+    entry 138
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46ff2h/  
+Comment ID:      o46ff2h  
+Author:          _one_long_groove_  
+Bio:               
+Account Created: 2021-02-03T03:55:18Z  
+Link Karma:      10667  
+Comment Karma:   7929  
+Comment Age:     54 minutes ago  
+Timestamp:       2026-02-08T01:20:18Z  
+Score:           728 points  
+Post Title:      ‘Sorry, Baby’ director Eva Victor tells Ricky Gervais & Kevin O’Leary to “shut the fuck up” after they said celebs shouldn’t speak out against ICE: “I can say what I want. I am here for one night... I’m allowed to say ‘fuck ICE’ becuase it’s fucking stupid & it’s horrible & it’s violent & evil.”  
+:::::: Reddit User Comment: ======  
+well i guess fuck ricky gervais now.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> So many men who worship Trump Daddy Issues / Putin Daddy Issues - want to silence a woman with powerful masculine meme devices.
+> 
+> * "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+>
+
+
+=============
+  
+## Reddit comment o46eqdz
+
+    entry 139
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46eqdz/  
+Comment ID:      o46eqdz  
+Author:          batdaddyx  
+Bio:               
+Account Created: 2023-06-14T06:06:37Z  
+Link Karma:      623  
+Comment Karma:   12169  
+Comment Age:     59 minutes ago  
+Timestamp:       2026-02-08T01:15:59Z  
+Score:           220 points  
+Post Title:      ‘Sorry, Baby’ director Eva Victor tells Ricky Gervais & Kevin O’Leary to “shut the fuck up” after they said celebs shouldn’t speak out against ICE: “I can say what I want. I am here for one night... I’m allowed to say ‘fuck ICE’ becuase it’s fucking stupid & it’s horrible & it’s violent & evil.”  
+:::::: Reddit User Comment: ======  
+she's such a vibe, omg yes queen. 
+
+
+
+
+=============
+  
+## Reddit comment o46g1jo
+
+    entry 140
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qyv7yg/sorry_baby_director_eva_victor_tells_ricky/o46g1jo/  
+Comment ID:      o46g1jo  
+Author:          IMadeYouLuke  
+Bio:               
+Account Created: 2021-10-10T14:01:11Z  
+Link Karma:      527  
+Comment Karma:   16177  
+Comment Age:     51 minutes ago  
+Timestamp:       2026-02-08T01:24:15Z  
+Score:           182 points  
+Post Title:      ‘Sorry, Baby’ director Eva Victor tells Ricky Gervais & Kevin O’Leary to “shut the fuck up” after they said celebs shouldn’t speak out against ICE: “I can say what I want. I am here for one night... I’m allowed to say ‘fuck ICE’ becuase it’s fucking stupid & it’s horrible & it’s violent & evil.”  
+:::::: Reddit User Comment: ======  
+Someone should let Ricky Gervais know that purposely choosing silence in the face of oppression is in itself a political statement
+
+
+
+
+=============
+  
+## Reddit comment o44ohnx
+
+    entry 141
+
+Comment URL: https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o44ohnx/  
+Comment ID:      o44ohnx  
+Author:          quest814  
+Bio:               
+Account Created: 2020-03-13T06:18:45Z  
+Link Karma:      26  
+Comment Karma:   33241  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-07T19:23:19Z  
+Score:           2519 points  
+Post Title:      NSA detected phone call between foreign intelligence and a person close to Trump | US national security  
+:::::: Reddit User Comment: ======  
+Interesting story. Basically the whistleblower complaint was last year and Gabbard didn’t follow protocol for passing the information on. The White House says she did nothing wrong and was cleared of wrongdoing by the office of Inspector General. Who in the office cleared her? None other than Dennis Kirk, co\-founder of Project 25\. The rot goes deep.
+
+
+
+
+=============
+  
+## Reddit comment o4532bw
+
+    entry 142
+
+Comment URL: https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o4532bw/  
+Comment ID:      o4532bw  
+Author:          Fit-Cut-6337  
+Bio:             This is a description   
+Account Created: 2023-09-23T16:11:23Z  
+Link Karma:      547  
+Comment Karma:   16957  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-07T20:40:57Z  
+Score:           20 points  
+Post Title:      NSA detected phone call between foreign intelligence and a person close to Trump | US national security  
+:::::: Reddit User Comment: ======  
+I believe waiting for midterms is a huge mistake. We need to stop working now. They are building concentration camps, trying to pass the save act, and whatever Tulsi is doing with those voting machines …. We don’t have the luxury of waiting until November blindly believing that somehow we will have a fair vote.
+
+
+
+
+=============
+  
+## Reddit comment o44w0hv
+
+    entry 143
+
+Comment URL: https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o44w0hv/  
+Comment ID:      o44w0hv  
+Author:          ZeevF  
+Bio:             Thunder Child  :   
+Account Created: 2021-08-30T01:34:49Z  
+Link Karma:      1097  
+Comment Karma:   4745  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-07T20:02:42Z  
+Score:           33 points  
+Post Title:      NSA detected phone call between foreign intelligence and a person close to Trump | US national security  
+:::::: Reddit User Comment: ======  
+I'm going to chime in because I also got an email from them with basically the same "demands". Yes these people are real. The organizer that I know told me that for 2028 they are already launching their efforts against Newsom because he hasn't been pro Palestinian enough and the one lady in Maine who claims to ge a democratic is actively trying to discredit both of Susan collins challengers ( love your profile header Pic BTW lol) including Graham platner because he ...and I quote "hasn't called for Israel to be dismantled". They've also now said mamdani and aoc are zionists.
+
+
+
+
+=============
+  
+## Reddit comment o44ug6v
+
+    entry 144
+
+Comment URL: https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o44ug6v/  
+Comment ID:      o44ug6v  
+Author:          ThePensiveE  
+Bio:               
+Account Created: 2021-02-22T14:19:01Z  
+Link Karma:      26287  
+Comment Karma:   124309  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-07T19:54:24Z  
+Score:           124 points  
+Post Title:      NSA detected phone call between foreign intelligence and a person close to Trump | US national security  
+:::::: Reddit User Comment: ======  
+Any advantage America had in terms of military technology is gone. It's enemies now have all of it, but not it's allies.
+
+
+
+
+=============
+  
+## Reddit comment o46b1jy
+
+    entry 145
+
+Comment URL: https://old.reddit.com/r/law/comments/1qym2d4/nsa_detected_phone_call_between_foreign/o46b1jy/  
+Comment ID:      o46b1jy  
+Author:          humdinger44  
+Bio:             humdinger44 : Just a humble antifascist.  
+Account Created: 2014-01-06T11:33:19Z  
+Link Karma:      33652  
+Comment Karma:   127637  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T00:53:03Z  
+Score:           6 points  
+Post Title:      NSA detected phone call between foreign intelligence and a person close to Trump | US national security  
+:::::: Reddit User Comment: ======  
+This timeline is laughably absurd if it wasn't so real and pathetic
+
+
+
+
+=============
+  
+## Reddit comment o464cul
+
+    entry 146
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o464cul/  
+Comment ID:      o464cul  
+Author:          2HDFloppyDisk  
+Bio:               
+Account Created: 2019-07-31T02:48:13Z  
+Link Karma:      17423  
+Comment Karma:   416260  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T00:13:29Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+Back in my day we'd call this a traitor
+
+
+
+
+=============
+  
+## Reddit comment o469bac
+
+    entry 147
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o469bac/  
+Comment ID:      o469bac  
+Author:          JoplinSC742  
+Bio:               
+Account Created: 2025-03-12T23:01:36Z  
+Link Karma:      6461  
+Comment Karma:   19678  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T00:42:40Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+*Ought* to be big. The Clinton Email story was actually pretty damning. If a whistleblower exposed that Clinton was concealing complaints against her to protect Obama's connections to foreign intelligence, it would have ended her career. But the age of accountability is over. The rules exist as a baton to protect the ruling class and crush dissent and opposition, this administration is beholden to no one and will destroy any defectors.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month
+>
+
+
+=============
+  
+## Reddit comment o46jtsj
+
+    entry 148
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46jtsj/  
+Comment ID:      o46jtsj  
+Author:          P1xelHunter78  
+Bio:               
+Account Created: 2020-10-06T15:32:20Z  
+Link Karma:      3912  
+Comment Karma:   391621  
+Comment Age:     35 minutes ago  
+Timestamp:       2026-02-08T01:48:17Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+I mean this pretty much confirms it. She’s and actual Russian agent. Full stop. Not a Russian sympathizer, not just a right leaning person, an actual full blown Russian agent. Now she’s our intelligence director. 12 alarm fire. The fox isn’t just in the hen house, it’s running the hen house.
+
+
+
+
+=============
+  
+## Reddit comment o4660hx
+
+    entry 149
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o4660hx/  
+Comment ID:      o4660hx  
+Author:          Agressive-toothbrush  
+Bio:             Sometimes I make sense.  
+Account Created: 2021-02-03T03:22:42Z  
+Link Karma:      11770  
+Comment Karma:   225612  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T00:23:17Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+Since Trump has become President the first time, foreign adversaries have magically "discovered" military and commercial secrets that used to put America 10 years ahead of everyone else. 
+
+I would not be surprised if Trump sold all of America's secrets to the highest bidders. 
+
+
+
+
+=============
+  
+## Reddit comment o46a6dj
+
+    entry 150
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46a6dj/  
+Comment ID:      o46a6dj  
+Author:          Valhadmar  
+Bio:             Blueberry3 :   
+Account Created: 2013-06-11T05:10:58Z  
+Link Karma:      1253  
+Comment Karma:   10027  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T00:47:51Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+Maga is literally filled with pedophiles, rapists, and traitors. If you support Maga, chances are you fall into one of those categories.
+
+
+
+
+=============
+  
+## Reddit comment o464c3l
+
+    entry 151
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o464c3l/  
+Comment ID:      o464c3l  
+Author:          simplepimple2025  
+Bio:               
+Account Created: 2025-09-12T18:25:57Z  
+Link Karma:      1  
+Comment Karma:   17260  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T00:13:21Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+That title confuses the hell out of me.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> inflexible mindsets
+>
+
+
+=============
+  
+## Reddit comment o466job
+
+    entry 152
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o466job/  
+Comment ID:      o466job  
+Author:          Imaginary_Bus_6742  
+Bio:               
+Account Created: 2023-02-12T01:10:25Z  
+Link Karma:      5  
+Comment Karma:   26120  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T00:26:24Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+We all should know by now that when this administration labels something false and/or fake it is very likely true.
+
+
+
+
+=============
+  
+## Reddit comment o46a816
+
+    entry 153
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46a816/  
+Comment ID:      o46a816  
+Author:          MisterSpeck  
+Bio:               
+Account Created: 2011-06-14T14:38:23Z  
+Link Karma:      14519  
+Comment Karma:   73160  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T00:48:08Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+That's an awkward headline.
+
+
+
+
+=============
+  
+## Reddit comment o46c5jy
+
+    entry 154
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46c5jy/  
+Comment ID:      o46c5jy  
+Author:          jim45804  
+Bio:               
+Account Created: 2007-05-09T22:24:17Z  
+Link Karma:      6201  
+Comment Karma:   399563  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T00:59:48Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+What is this headline
+
+
+
+
+=============
+  
+## Reddit comment o46cm4c
+
+    entry 155
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46cm4c/  
+Comment ID:      o46cm4c  
+Author:          ParadeSit  
+Bio:             Hey now : Amateur time traveler (I only go forward, but very slowly). Collector of socks that have lost their partners. Once scared a raccoon by complimenting its confidence.  
+Account Created: 2019-12-09T02:55:45Z  
+Link Karma:      133833  
+Comment Karma:   287564  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T01:02:39Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+Editor really fucked up the headline
+
+
+
+
+=============
+  
+## Reddit comment o46h8ms
+
+    entry 156
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46h8ms/  
+Comment ID:      o46h8ms  
+Author:          Neologic29  
+Bio:               
+Account Created: 2013-08-21T18:42:09Z  
+Link Karma:      1503  
+Comment Karma:   78533  
+Comment Age:     54 minutes ago  
+Timestamp:       2026-02-08T01:31:50Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+People's continued faith in the systems that are supposed to hold those in power accountable is going to be our downfall. If you're the whistleblower, this is the kind of shit you have to know is going to be buried. Giving the evidence to the very people you're trying to hold accountable never goes well, like this seems basic. We might have a chance if people abandon the already corrupted systems and just start posting shit. Let the chips fall where they may, but at least give the information a chance to reach the right people.
+
+
+
+
+=============
+  
+## Reddit comment o46esey
+
+    entry 157
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46esey/  
+Comment ID:      o46esey  
+Author:          HairFairBlizzard  
+Bio:             hmm maybe cigarettes and alcohol are like medicine!  
+Account Created: 2024-09-22T04:22:56Z  
+Link Karma:      4961  
+Comment Karma:   13684  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T01:16:21Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+This whole timeline feels like the exact thing that happened with impeachment \#1: 
+
+Mysterious whistleblower complaint \-\> Information about it slowly comes to light \-\> it’s really fucking bad \-\> congressional inquiry \-\> nothing ever happens
+
+
+
+
+=============
+  
+## Reddit comment o46fp0z
+
+    entry 158
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46fp0z/  
+Comment ID:      o46fp0z  
+Author:          racqq  
+Bio:               
+Account Created: 2013-10-26T07:12:39Z  
+Link Karma:      61  
+Comment Karma:   4749  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T01:22:02Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+Title made me think I was having a stroke
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> inflexible mindsets
+>
+
+
+=============
+  
+## Reddit comment o46h022
+
+    entry 159
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qytttd/trumps_tie_to_whistleblower_report_tulsi_hid_in/o46h022/  
+Comment ID:      o46h022  
+Author:          ballpein  
+Bio:               
+Account Created: 2007-01-29T17:45:55Z  
+Link Karma:      1185  
+Comment Karma:   25235  
+Comment Age:     56 minutes ago  
+Timestamp:       2026-02-08T01:30:20Z  
+Score:           None  
+Post Title:      Trump’s tie to whistleblower report Tulsi hid in safe busted  
+:::::: Reddit User Comment: ======  
+my god, that headline, who writes this word salad?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> No matter what Trump and Putin do, the important thing to USA Internet users, the entire society, is superficial and banal call-out about syntax. people don't read stories, they react to Tweets. This is why Trump wins. 500 short tiny antics works on minds that don't want a clear progressive working together with diverse language and arrangements. High-speed wrecks when even the slightest out of alignment is encountered. So fast in intake it blows out minds. Speedeating politics. Surkov students can blow minds, micro-blowing of minds with the most trivial patterns of communications.
+>
+
+
+=============
+  
+## Reddit comment o46m53u
+
+    entry 160
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46m53u/  
+Comment ID:      o46m53u  
+Author:          StealyEyedSecMan  
+Bio:               
+Account Created: 2020-12-26T02:49:09Z  
+Link Karma:      663  
+Comment Karma:   47458  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T02:02:45Z  
+Score:           5305 points  
+Post Title:      Homeland Security Spying on Reddit Users  
+:::::: Reddit User Comment: ======  
+Wave at Palantir everyone, hey 👋.
+
+
+
+
+=============
+  
+## Reddit comment o46m7s5
+
+    entry 161
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46m7s5/  
+Comment ID:      o46m7s5  
+Author:          TropicalPossum954  
+Bio:               
+Account Created: 2025-02-11T06:36:20Z  
+Link Karma:      1  
+Comment Karma:   56639  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T02:03:13Z  
+Score:           1872 points  
+Post Title:      Homeland Security Spying on Reddit Users  
+:::::: Reddit User Comment: ======  
+Pretty sure theyre spying on all users of all platforms.
+
+
+
+
+=============
+  
+## Reddit comment o46mut2
+
+    entry 162
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46mut2/  
+Comment ID:      o46mut2  
+Author:          trtlclb  
+Bio:             steam/discord - trtlclb  
+Account Created: 2020-12-11T10:05:36Z  
+Link Karma:      298  
+Comment Karma:   32618  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T02:07:15Z  
+Score:           549 points  
+Post Title:      Homeland Security Spying on Reddit Users  
+:::::: Reddit User Comment: ======  
+wanna watch me shitpost?
+
+wanna watch me do it again?
+
+
+
+
+=============
+  
+## Reddit comment o46rfxg
+
+    entry 163
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46rfxg/  
+Comment ID:      o46rfxg  
+Author:          LucidOndine  
+Bio:               
+Account Created: 2006-09-07T19:41:58Z  
+Link Karma:      1598  
+Comment Karma:   82477  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T02:36:06Z  
+Score:           180 points  
+Post Title:      Homeland Security Spying on Reddit Users  
+:::::: Reddit User Comment: ======  
+There isn’t anything I say on Reddit that I wouldn’t say in person. People do not need to be afraid of exercising their rights. This is how we assert them in the face of fascism; not with meekness, but with loud, outspoken truth.
+
+We know what makes this country great; it’s keeping people who forget that in check.
+
+
+
+
+=============
+  
+## Reddit comment o46mr49
+
+    entry 164
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46mr49/  
+Comment ID:      o46mr49  
+Author:          Wotmate01  
+Bio:               
+Account Created: 2023-06-07T13:14:56Z  
+Link Karma:      11303  
+Comment Karma:   320614  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T02:06:36Z  
+Score:           446 points  
+Post Title:      Homeland Security Spying on Reddit Users  
+:::::: Reddit User Comment: ======  
+I sincerely believe that ALL US tech companies quite happily let US government agencies monitor users around the world, and I don't give a damn how much they talk about privacy. 
+
+Apple, google, reddit, facebook, twitter, the whole lot of them.
+
+
+
+
+=============
+  
+## Reddit comment o46qwxp
+
+    entry 165
+
+Comment URL: https://old.reddit.com/r/technology/comments/1qyw8me/homeland_security_spying_on_reddit_users/o46qwxp/  
+Comment ID:      o46qwxp  
+Author:          NefariousnessFew4354  
+Bio:             HugoBosseet :   
+Account Created: 2022-08-04T22:13:45Z  
+Link Karma:      186  
+Comment Karma:   55226  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T02:32:47Z  
+Score:           15 points  
+Post Title:      Homeland Security Spying on Reddit Users  
+:::::: Reddit User Comment: ======  
+"The spying is revealed in a January intelligence bulletin produced by the Border Patrol and leaked to me. The subject of the report is Reddit user “Budget\-Chicken\-2425,” who is not a narco\-trafficker, gang member, or terrorist. Just someone concerned about federal overreach "
+
+Budget\-Chicken made my weekend 🤣
+
+
+
+
+=============
+  
+## Reddit comment o46vd09
+
+    entry 166
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46vd09/  
+Comment ID:      o46vd09  
+Author:          TraditionalNinja4430  
+Bio:             RandFrand4 :   
+Account Created: 2025-07-20T15:02:19Z  
+Link Karma:      4  
+Comment Karma:   397  
+Comment Age:     59 minutes ago  
+Timestamp:       2026-02-08T03:00:59Z  
+Score:           17 points  
+Post Title:      Ossoff: "You're seeing what I'm seeing, right? The president posting about the Obamas like a Klansman."  
+:::::: Reddit User Comment: ======  
+No way a “staffer” was running posts but him at 1am
+
+
+
+
+=============
+  
+## Reddit comment o46wi2z
+
+    entry 167
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46wi2z/  
+Comment ID:      o46wi2z  
+Author:          WitchPleese  
+Bio:               
+Account Created: 2025-12-01T16:12:35Z  
+Link Karma:      1  
+Comment Karma:   4019  
+Comment Age:     52 minutes ago  
+Timestamp:       2026-02-08T03:08:14Z  
+Score:           11 points  
+Post Title:      Ossoff: "You're seeing what I'm seeing, right? The president posting about the Obamas like a Klansman."  
+:::::: Reddit User Comment: ======  
+The Obama post has me on fucking fire and I am glad to see what looks like the tides finally turning against this hideous, racist regime. 
+
+
+
+
+=============
+  
+## Reddit comment o46vj7r
+
+    entry 168
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1qyw9yq/ossoff_youre_seeing_what_im_seeing_right_the/o46vj7r/  
+Comment ID:      o46vj7r  
+Author:          mitrafunfun97  
+Bio:             thirdwaymaoistneolib :   
+Account Created: 2015-04-20T10:30:19Z  
+Link Karma:      6097  
+Comment Karma:   158639  
+Comment Age:     58 minutes ago  
+Timestamp:       2026-02-08T03:02:03Z  
+Score:           -15 points  
+Post Title:      Ossoff: "You're seeing what I'm seeing, right? The president posting about the Obamas like a Klansman."  
+:::::: Reddit User Comment: ======  
+Say this without taking that AIPAC money buddy boy
+
+
+
+
+=============
+  
+## Reddit comment o46uk65
+
+    entry 169
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46uk65/  
+Comment ID:      o46uk65  
+Author:          Omiyaru  
+Bio:               
+Account Created: 2016-12-19T05:35:01Z  
+Link Karma:      6323  
+Comment Karma:   17548  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-08T02:55:53Z  
+Score:           243 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+Apparently the Epstein stuff is all over the news in the rest of the world, but not here as much here in the US.
+
+
+
+
+=============
+  
+## Reddit comment o46xxbd
+
+    entry 170
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46xxbd/  
+Comment ID:      o46xxbd  
+Author:          lCEC0REbuIIet  
+Bio:               
+Account Created: 2026-01-05T10:48:53Z  
+Link Karma:      43  
+Comment Karma:   23361  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-08T03:17:30Z  
+Score:           68 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+I mean if you think Trump or Israel would be above kidnapping the mom of a journalist then you're not paying close enough attention.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> If you can't see on Bluesky and Reddit that people do not promote Dr. Bandy X Lee, Jen Senko, or other serious nonfiction topics to do cult deprogramming and take brainwashing a a serious topic... insulting and mocking Donald Trump is not dealing with the Fox News HDTV cult of fiction storytelling.
+>
+
+
+=============
+  
+## Reddit comment o46qkev
+
+    entry 171
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46qkev/  
+Comment ID:      o46qkev  
+Author:          Mtngal22  
+Bio:               
+Account Created: 2023-03-06T16:22:37Z  
+Link Karma:      1  
+Comment Karma:   746  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-08T02:30:35Z  
+Score:           95 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+I honestly believe this after reading all the sick and disgusting stuff in the E files. The orange monster is certainly capable of this.
+
+
+
+
+=============
+  
+## Reddit comment o46zcoo
+
+    entry 172
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46zcoo/  
+Comment ID:      o46zcoo  
+Author:          Elegant_Tap7937  
+Bio:               
+Account Created: 2023-03-16T23:49:46Z  
+Link Karma:      24053  
+Comment Karma:   23983  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-08T03:26:53Z  
+Score:           28 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+That Trump supposedly called to offer his condolences to Savannah was weird given that he has no ability for empathy and hardly batted an eye at the recent ICE murders.
+
+
+
+
+=============
+  
+## Reddit comment o46vv6u
+
+    entry 173
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46vv6u/  
+Comment ID:      o46vv6u  
+Author:          delpy1971  
+Bio:               
+Account Created: 2020-12-10T01:16:06Z  
+Link Karma:      369  
+Comment Karma:   16141  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-08T03:04:10Z  
+Score:           22 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+Scary shit! I really hope the USA will sort their shit out for sake of the human race!!
+
+
+
+
+=============
+  
+## Reddit comment o4786z4
+
+    entry 174
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o4786z4/  
+Comment ID:      o4786z4  
+Author:          TeslasElectricHat  
+Bio:             Nikola Tesla’s Electric Hat : This account has NOTHING to do with Nazi Elon Musk, or the pile of shit company Tesla.  
+Account Created: 2024-03-22T17:02:21Z  
+Link Karma:      1165  
+Comment Karma:   2749  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-08T04:27:04Z  
+Score:           10 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+People need to learn to re\-associate that word. 
+
+The Tuskegee experiments **were** a conspiracy. 
+
+JFK being assassinated **was** a conspiracy. 
+
+MKUltra **was** a conspiracy. 
+
+Watergate **was** a conspiracy. 
+
+Iran\-Contra **was** a conspiracy. 
+
+The CIA running drugs for the cartels **was** a conspiracy. 
+
+Illegal mass surveillance of USA citizens **was** a conspiracy. 
+
+The Panama papers **were** a conspiracy.
+
+The powers that be and the ultra wealthy **ARE** conspiring against everyone the deem below them. 
+
+Calling people a conspiracy theorist has become associated with labeling them crazy and allowing everyone to dismiss them. 
+
+People need to **wake the fuck up**.
+
+
+
+
+=============
+  
+## Reddit comment o46xcid
+
+    entry 175
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46xcid/  
+Comment ID:      o46xcid  
+Author:          Content-Variation895  
+Bio:               
+Account Created: 2024-09-17T17:50:03Z  
+Link Karma:      203  
+Comment Karma:   2638  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-08T03:13:43Z  
+Score:           11 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+Bruh anything is possible now
+
+
+
+
+=============
+  
+## Reddit comment o46ze83
+
+    entry 176
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46ze83/  
+Comment ID:      o46ze83  
+Author:          Chihuahuatriomom  
+Bio:             tired of Republican BULLSHIT  :   
+Account Created: 2022-06-04T23:25:54Z  
+Link Karma:      36  
+Comment Karma:   10258  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-08T03:27:10Z  
+Score:           14 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+That was actually the first thing I thought about when her mother was first disappeared. Donald trying to scare Savannah to NOT do any negative stories about him.
+
+
+
+
+=============
+  
+## Reddit comment o472jj0
+
+    entry 177
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o472jj0/  
+Comment ID:      o472jj0  
+Author:          Ok-Stress-3570  
+Bio:               
+Account Created: 2022-02-12T21:52:21Z  
+Link Karma:      408  
+Comment Karma:   231829  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-08T03:47:56Z  
+Score:           4 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+All I can say is, I was at the gym and Fox has this on for the entirety of my workout. 
+
+Thought it seemed a bit weird.
+
+
+
+
+=============
+  
+## Reddit comment o46znxg
+
+    entry 178
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o46znxg/  
+Comment ID:      o46znxg  
+Author:          TraditionalAd8581  
+Bio:             JeffRexx725 :   
+Account Created: 2020-12-08T16:38:22Z  
+Link Karma:      12  
+Comment Karma:   3695  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-08T03:28:59Z  
+Score:           4 points  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+Kidnapping Guthrie’s mom will definitely somehow change some of those 6 year old interviews, or at the very least make Guthrie want to quit journalism (which I guess would somehow invalidate her past work…?).
+
+Wait, does any of that make sense?
+
+
+
+
+=============
+  
+## Reddit comment o47671m
+
+    entry 179
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o47671m/  
+Comment ID:      o47671m  
+Author:          RealOldies  
+Bio:             Concealed-Glock27 :   
+Account Created: 2025-10-12T22:35:46Z  
+Link Karma:      995  
+Comment Karma:   3873  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-08T04:12:54Z  
+Score:           1 point  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+Conspiracy Theories make the truly arrested development ignorant people feel smart.
+
+Sometimes a turd is just a turd, nothing more. Coming up with these "theories" is just a way for way too many people with limited cognitive skills a way for it to make sense, instead if accepting the fact that bad things happen to good people many times.
+
+
+
+
+=============
+  
+## Reddit comment o47augx
+
+    entry 180
+
+Comment URL: https://old.reddit.com/r/circled/comments/1qywb0j/could_this_be_true/o47augx/  
+Comment ID:      o47augx  
+Author:          WisdomsOptional  
+Bio:             WisdomisOptional : Trying to find enlightenment in unenlightened times.  
+Account Created: 2021-02-11T15:21:36Z  
+Link Karma:      202  
+Comment Karma:   24574  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-08T04:46:30Z  
+Score:           1 point  
+Post Title:      Could this be true?  
+:::::: Reddit User Comment: ======  
+I speculated with my own brainrot that because Savannah had been a vocal opponent to trump during the 2020 election cycle that this was enough since he's on his 2020 vengeance kick to have had state agents kidnap her mother to sew fear and intimidate a strong woman in corporate media who excoriated him during the town hall and one of his only public appearances on CNN. 
+
+This is another "well that's odd" tidbits. Sure, it's possible, but is it likely? If it hadn't just lived through the last year, I'd have dismissed it as internet brain rot. Now, I'm not so sure.
+
+
+
+
+=============
+  
+## Reddit comment o45isb4
+
+    entry 181
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o45isb4/  
+Comment ID:      o45isb4  
+Author:          vatrushka04  
+Bio:               
+Account Created: 2015-12-05T08:05:35Z  
+Link Karma:      497  
+Comment Karma:   23943  
+Comment Age:     11 hours ago  
+Timestamp:       2026-02-07T22:05:28Z  
+Score:           217 points  
+Post Title:      Zelensky says U.S. is readying huge economic deals with Russia  
+:::::: Reddit User Comment: ======  
+Are you asking if people who are repeatedly electing officials who pass acts that reduce taxes for corporations and rich people are okay with being screwed over?
+
+
+
+
+=============
+  
+## Reddit comment o456kft
+
+    entry 182
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o456kft/  
+Comment ID:      o456kft  
+Author:          RMClure  
+Bio:               
+Account Created: 2016-12-01T23:04:24Z  
+Link Karma:      1  
+Comment Karma:   6426  
+Comment Age:     12 hours ago  
+Timestamp:       2026-02-07T20:59:54Z  
+Score:           32 points  
+Post Title:      Zelensky says U.S. is readying huge economic deals with Russia  
+:::::: Reddit User Comment: ======  
+Russian oligarchs are but pale knockoff imitations of American oligarchs. 
+
+
+
+
+=============
+  
+## Reddit comment o44xig8
+
+    entry 183
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o44xig8/  
+Comment ID:      o44xig8  
+Author:          GlesgaBawbag  
+Bio:             🕊️ :   
+Account Created: 2025-01-30T20:36:34Z  
+Link Karma:      3502  
+Comment Karma:   58907  
+Comment Age:     13 hours ago  
+Timestamp:       2026-02-07T20:10:42Z  
+Score:           1627 points  
+Post Title:      Zelensky says U.S. is readying huge economic deals with Russia  
+:::::: Reddit User Comment: ======  
+I wish I was surprised. America wants to be like Russia. Oligarchs and peasants. 
+
+Tragic. Europe should cancel every palantir and oracle contract. Stop rewarding these people.
+
+
+
+
+=============
+  
+## Reddit comment o44z2gc
+
+    entry 184
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o44z2gc/  
+Comment ID:      o44z2gc  
+Author:          bxzidff  
+Bio:               
+Account Created: 2018-07-06T21:01:51Z  
+Link Karma:      78  
+Comment Karma:   250511  
+Comment Age:     13 hours ago  
+Timestamp:       2026-02-07T20:19:01Z  
+Score:           375 points  
+Post Title:      Zelensky says U.S. is readying huge economic deals with Russia  
+:::::: Reddit User Comment: ======  
+
+> bilateral economic agreements worth some $12 trillion,
+
+Wow. And think about the ideology of the current US administration. It mirrors Russia's perfectly, wanting corrupt oligarchs and the state to be one and the same. This is really bad.
+
+
+
+
+=============
+  
+## Reddit comment o458z28
+
+    entry 185
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o458z28/  
+Comment ID:      o458z28  
+Author:          _id93_  
+Bio:               
+Account Created: 2025-09-28T23:25:31Z  
+Link Karma:      21  
+Comment Karma:   11069  
+Comment Age:     12 hours ago  
+Timestamp:       2026-02-07T21:12:57Z  
+Score:           49 points  
+Post Title:      Zelensky says U.S. is readying huge economic deals with Russia  
+:::::: Reddit User Comment: ======  
+America is currently being looted and pillaged by Israel and Russia in front of everyone’s eyes and no one is doing anything because they paid off both sides of politicians… I’m worried that these psychos have nukes.
+
+
+
+
+=============
+  
+## Reddit comment o462g5k
+
+    entry 186
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o462g5k/  
+Comment ID:      o462g5k  
+Author:          AliceLunar  
+Bio:               
+Account Created: 2024-07-13T21:13:09Z  
+Link Karma:      4693  
+Comment Karma:   179610  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-08T00:01:59Z  
+Score:           14 points  
+Post Title:      Zelensky says U.S. is readying huge economic deals with Russia  
+:::::: Reddit User Comment: ======  
+Think it's funny how Americans try to judge Europe for buying their gas and oil from Russia as if we have that many options on who to rely on, and now we switched and rely on the US for a lot of imports, and turns out they are just as bad as Russia and we just switched from a lunatic to another lunatic, who also happens to be a pedophile amongst other things.
+
+
+
+
+=============
+  
+## Reddit comment o455ow8
+
+    entry 187
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qykdii/zelensky_says_us_is_readying_huge_economic_deals/o455ow8/  
+Comment ID:      o455ow8  
+Author:          Emergency_Link7328  
+Bio:               
+Account Created: 2025-09-09T12:53:13Z  
+Link Karma:      91  
+Comment Karma:   36116  
+Comment Age:     13 hours ago  
+Timestamp:       2026-02-07T20:55:08Z  
+Score:           36 points  
+Post Title:      Zelensky says U.S. is readying huge economic deals with Russia  
+:::::: Reddit User Comment: ======  
+Of course they. The main meal is Europe.
+
+We need to be ready to glass Moscow and Washington.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month Reddit account
+>
+
+
+=============
+  
+## Reddit comment o48hu47
+
+    entry 188
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48hu47/  
+Comment ID:      o48hu47  
+Author:          Fishtoart  
+Bio:             Artist/designer eager to see what the future brings!  
+Account Created: 2020-12-19T23:08:15Z  
+Link Karma:      1524  
+Comment Karma:   42434  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T11:13:25Z  
+Score:           2184 points  
+Post Title:      Booing the Vice-President  
+:::::: Reddit User Comment: ======  
+How exactly does posting pictures of a previous president and First Lady as apes fit into that basic respect ?
+
+
+
+
+=============
+  
+## Reddit comment o48iubd
+
+    entry 189
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48iubd/  
+Comment ID:      o48iubd  
+Author:          notwhoyouthinkmaybe  
+Bio:               
+Account Created: 2020-10-30T09:52:34Z  
+Link Karma:      31192  
+Comment Karma:   218179  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T11:22:39Z  
+Score:           316 points  
+Post Title:      Booing the Vice-President  
+:::::: Reddit User Comment: ======  
+I believe this was intentional; they looked like they were helping while planting the seed. 
+
+For example: 
+
+"Did you know that sugar in a gas tank is really bad for a car? Anyways never do this to a car ICE is driving."
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> As I have made a central theme on this  GitHub project... fiction outsells nonfiction. Nobody is going to censor a popular scene in a science fiction story like Star Wars Andor year 2025 or Quran science fiction story from year 635. People can keep discussing a Star Wars scene or a page of Mohammad's Quran fiction. This loophole is actively being utilized. Fox News HDTV can claim it is { amusement, entertainment, comedy, SNL Weekend Update, fantasy mythos }.
+>
+
+
+=============
+  
+## Reddit comment o48hl7h
+
+    entry 190
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48hl7h/  
+Comment ID:      o48hl7h  
+Author:          wizardrous  
+Bio:             J. A. Hinsvark : I am a novelist and musician from Portland, Oregon. I humbly request you not take anything I say too seriously. Check out my hilarious novel for $0.99 on Kindle: https://www.amazon.com/dp/B08745D6BP  
+Account Created: 2014-02-28T06:54:49Z  
+Link Karma:      49025  
+Comment Karma:   1233158  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T11:11:09Z  
+Score:           358 points  
+Post Title:      Booing the Vice-President  
+:::::: Reddit User Comment: ======  
+I don’t think these people can fathom that there is more to the world than their narrow existence.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Many on Reddit can't fathom or interpret beyond the TLDR barrier, ELI4 barrier, and fiction vs. nonfiction barriers. Shuffle syntax of language usage around and audiences on SubReddits are compulsively attracted to Donald Trump styles of mocking.
+>
+
+
+=============
+  
+## Reddit comment o48ipbs
+
+    entry 191
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48ipbs/  
+Comment ID:      o48ipbs  
+Author:          slumvillain  
+Bio:             glumvillain : people weird me out.  
+Account Created: 2017-09-11T00:59:59Z  
+Link Karma:      3754  
+Comment Karma:   142656  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T11:21:23Z  
+Score:           110 points  
+Post Title:      Booing the Vice-President  
+:::::: Reddit User Comment: ======  
+The frauds. The schemes. The trolling. The lies. The child rape island. 
+
+**we draw the line at booing them** 
+
+**thats** embarassing.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "The lies", that's fiction storytelling - Reddit audiences love discussing fiction plot points and scenes in Lord of the Rings, Star Wars Andor, Fallout video game and TV... but when it comes to nonfiction from. Dr. Bandy X Lee... can't keep going back to the nonfiction science and learning well...
+>
+
+
+=============
+  
+## Reddit comment o48k5wt
+
+    entry 192
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qz69ow/booing_the_vicepresident/o48k5wt/  
+Comment ID:      o48k5wt  
+Author:          fearlessfryingfrog  
+Bio:               
+Account Created: 2024-09-19T22:39:07Z  
+Link Karma:      195  
+Comment Karma:   19974  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T11:34:45Z  
+Score:           34 points  
+Post Title:      Booing the Vice-President  
+:::::: Reddit User Comment: ======  
+Kind of person that thinks the sun rises and set just for the US, and does not realize the vast majority of the rest of the world thinks the US is a bullshit circus.
+
+The amount of stink this last 10 years has left on the US is going to take a generation to fix. Place is a fucking laughing stock, and rightly so. It's a joke, and the rest of the world knows it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It is EVERY MINUTE of EVERY DAY AND NIGHT that I keep having to rephrase and repeat... It is not just politics topics. It is music industry topics, it is food supply topics. Trumpism is Reddit itself. No-identity hate-prizing social media that is hive mind mob mentality of Reddit. Reddit social behavior has been ahead of he curve. In year 2015 Reddit users were behaving as MAGA population behaved in 2018. The mindsets of tech love, machine love, video gaming as training ground to seek out weakness and attack the weak... to use mental health as a peer to peer insult topic like Trump does with I.Q. numbers being low. Anything to avoid the set of values Malala laid upon the world stage in year 2013. Anything to avoid Jen Senko's brainwashing serious discussions... anything to avoid Dr. Bandy x Lee's serious 27 leaders compiled and published October 3, 2017.
+> 
+> The desire to turn all into jokes, joke-wash trump and fixate on the surface above the skin being orange.. and "Deep" topics of diapers... exceeds any desire to rescue from Russia defeating NATO ad USA Pentagon in psychological warfare to self-harm the USA with anti-intellectualism.
+>
+
+
+=============
+  
+## Reddit comment o49qgt7
+
+    entry 193
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qzckrl/fbi_concluded_jeffrey_epstein_wasnt_running_a_sex/o49qgt7/  
+Comment ID:      o49qgt7  
+Author:          megaman47  
+Bio:               
+Account Created: 2015-01-02T08:25:48Z  
+Link Karma:      12652  
+Comment Karma:   124654  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T16:01:54Z  
+Score:           10.1k points  
+Post Title:      FBI concluded Jeffrey Epstein wasn’t running a sex trafficking ring for powerful men, files show  
+:::::: Reddit User Comment: ======  
+then why was he arrested 2 times for sex trafficking?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1036" height="921" alt="image" src="https://github.com/user-attachments/assets/3b6c7059-1ec2-449f-9725-a711451dcf35" />
+> 
+> Paradox upon paradox for the Reddit fandom to blow their minds on. Media messaging paradoxes. The REAL REALITY is not a paradox. But the messaging and information systems are Surkov student designed paradoxes.
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meemk4i7a22z https://autistics.life/@RoundSparrow/116036550644701650 }
 >
