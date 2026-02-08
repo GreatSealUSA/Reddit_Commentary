@@ -115,7 +115,7 @@ The fuck is a lolcow?
 > 
 > <img width="1793" height="1113" alt="image" src="https://github.com/user-attachments/assets/d353f6a4-9473-4874-8041-a9de31590684" />
 > 
-> Reply of not3:
+> Reply of note:
 >
 
 
@@ -173,7 +173,7 @@ You seemed to imply that some of these victims of abuse deserved it, due to thei
 
 > [!NOTE]
 > :::::: Analysis_Thoughts Commentary: ======  
-> The ENTIRE USA, the ENTIRE POPULATION< is a victim of abuse by Rupert Murdoch LOL-cow milking Donald J. Trump for selling of entertainment content Fox News HDTV. I will keep trying to rephrase until my last dying breath. Mob mentality is a real thing. Mafia mentality is Trumpism Fox News. AVOIDING Dr. Bandy X Lee's nonfiction books because everyone is mocking away at Trump on social machines day in and day out since October 3, 2017 publication... mockery in ob mentality to exploit group-thinking mob mentality is a true and real problem.
+> The ENTIRE USA, the ENTIRE POPULATION is a victim of abuse by Rupert Murdoch LOL-cow milking Donald J. Trump for selling of entertainment content Fox News HDTV. I will keep trying to rephrase until my last dying breath. Mob mentality is a real thing. Mafia mentality is Trumpism Fox News. AVOIDING Dr. Bandy X Lee's nonfiction books because everyone is mocking away at Trump on social machines day in and day out since October 3, 2017 publication... mockery in mob mentality to exploit group-thinking mob mentality is a true and real problem.
 > 
 > * “For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.”
 > ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Nonfiction book on paper.
