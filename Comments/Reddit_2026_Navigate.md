@@ -8,7 +8,10 @@ MAGA media cult, Russian Trumpism topic Reddit comments:
 
 3. [January 2026 2026-**01-31** Trumpism MAGA USA cult behavior concerns](Reddit_2026-01/Reddit_commentary_2026-01-31_Trumpism_out.md)
 
-4. [February 2026 2026-**02-06** Trumpism MAGA USA cult behavior concerns](Reddit_2026-01/Reddit_commentary_2026-02-06_Trumpism_out.md)
+4. [February 2026 2026-**02-06** Trumpism MAGA USA cult behavior concerns. Super Bowl period](Reddit_2026-01/Reddit_commentary_2026-02-06_Trumpism_out.md)
+
+5. [February 2026 2026-**02-10** Trumpism MAGA USA cult behavior concerns](Reddit_2026-01/Reddit_commentary_2026-02-10_Trumpism_out.md)
+
 
 &nbsp;
 
