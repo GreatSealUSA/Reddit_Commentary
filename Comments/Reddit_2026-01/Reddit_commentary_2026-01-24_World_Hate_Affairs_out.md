@@ -10401,3 +10401,378 @@ USA **COULD** have as well. Should have, even.
 > 
 > OPERA_A We found The Rats on Reddit and Bluesky, the population of Reddit and BLuesky, who won't follow Jen Senko and Dr. Bandy X Lee and fall for Putin's masculine macho bullshit. September 1982. https://www.youtube.com/watch?v=gxv4g1jATks 1,351 views  June 26, 2013 - listen to the opening lyrics. Year 2026 is the "Streets of the future"...
 >
+
+
+=============
+  
+## Reddit comment o4b790t
+
+    entry 380
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qzgvk9/how_epstein_and_bannon_tried_to_reshape_eu/o4b790t/  
+Comment ID:      o4b790t  
+Author:          LookThisOneGuy  
+Bio:               
+Account Created: 2022-02-25T15:29:52Z  
+Link Karma:      1487  
+Comment Karma:   46768  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T20:15:14Z  
+Score:           2 points  
+Post Title:      How Epstein and Bannon tried to reshape EU politics, hated Merkel  
+:::::: Reddit User Comment: ======  
+Bannon was Trumps policy advisor, so you mean the US?
+
+Yeah, difficult to completely sever US\-German relations after all they did for us post WW2\.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> * 2019 : “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+> ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the [Plot to Break America, page 85](https://books.google.com/books?id=8OW2DwAAQBAJ&pg=PA85&dq=%22serves+as+a+political+uniform.+And+if+you+have+a+uniform,+you+have+an+army.%E2%80%9D&hl=en&newbks=1&newbks_redir=1&sa=X). **year 2019**
+>
+
+
+=============
+  
+## Reddit comment o4ewlf6
+
+    entry 381
+
+Comment URL: https://old.reddit.com/r/europe/comments/1r013mk/mayor_of_london_my_ultimate_goal_is_to_reverse/o4ewlf6/  
+Comment ID:      o4ewlf6  
+Author:          gowmes  
+Bio:             Pedro  :   
+Account Created: 2019-08-17T21:57:57Z  
+Link Karma:      4117  
+Comment Karma:   1746  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-09T10:54:16Z  
+Score:           1519 points  
+Post Title:      Mayor of London: My ultimate goal is to reverse Brexit  
+:::::: Reddit User Comment: ======  
+I really hope UK and London can turn things around
+
+
+
+
+=============
+  
+## Reddit comment o4ex1ip
+
+    entry 382
+
+Comment URL: https://old.reddit.com/r/europe/comments/1r013mk/mayor_of_london_my_ultimate_goal_is_to_reverse/o4ex1ip/  
+Comment ID:      o4ex1ip  
+Author:          chrisni66  
+Bio:               
+Account Created: 2015-07-29T14:01:18Z  
+Link Karma:      11619  
+Comment Karma:   162510  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-09T10:58:22Z  
+Score:           409 points  
+Post Title:      Mayor of London: My ultimate goal is to reverse Brexit  
+:::::: Reddit User Comment: ======  
+The problem the UK has with this is the first past the post electoral system. You only need about 30% of the popular vote to get a super majority in parliament, so as long as around \~30% of the voting population strongly opposes rejoining (like Reform voters do), it’s essentially political suicide to push for rejoining. Nevermind that the majority would actually support such a move.
+
+
+
+
+=============
+  
+## Reddit comment o4ezu9z
+
+    entry 383
+
+Comment URL: https://old.reddit.com/r/europe/comments/1r013mk/mayor_of_london_my_ultimate_goal_is_to_reverse/o4ezu9z/  
+Comment ID:      o4ezu9z  
+Author:          Excellent-Menu-8784  
+Bio:               
+Account Created: 2025-09-04T19:41:16Z  
+Link Karma:      344  
+Comment Karma:   16514  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-09T11:23:30Z  
+Score:           302 points  
+Post Title:      Mayor of London: My ultimate goal is to reverse Brexit  
+:::::: Reddit User Comment: ======  
+This won’t happen. 
+The USA might not say it publicly but they will do anything to keep the uk out of the eu at this point. 
+
+So will the new British far right. Remember who is leading them right now? The same guy that led brexit.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month
+>
+
+
+=============
+  
+## Reddit comment o4hfrll
+
+    entry 384
+
+Comment URL: https://old.reddit.com/r/whoathatsinteresting/comments/1r0d6q9/they_trap_your_car_at_the_highway_ramp_then_walk/o4hfrll/  
+Comment ID:      o4hfrll  
+Author:          mattriver  
+Bio:               
+Account Created: 2019-06-26T01:18:44Z  
+Link Karma:      14029  
+Comment Karma:   21044  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-09T19:21:18Z  
+Score:           38 points  
+Post Title:      They trap your car at the highway ramp, then walk up once you’re stuck  
+:::::: Reddit User Comment: ======  
+It was in Chile … could have been anything.
+
+
+
+
+=============
+  
+## Reddit comment o4h56vz
+
+    entry 385
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_destroying_nature_150/o4h56vz/  
+Comment ID:      o4h56vz  
+Author:          supercyberlurker  
+Bio:             I've been on the net a long long time and that isn't a flex or a confession.  
+Account Created: 2016-03-17T01:42:05Z  
+Link Karma:      1625  
+Comment Karma:   2403501  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-09T18:31:25Z  
+Score:           973 points  
+Post Title:      Obsession with growth is destroying nature, 150 countries warn  
+:::::: Reddit User Comment: ======  
+Like climate change, we knew this 30 years ago but went into psychological denial over it.
+
+Now, 30% of us literally cannot know this. It is beyond their mental ability to know it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top-voted comment. 
+> 
+> Endless grown is the posting title: you know what has grown and grown and grown? Smartphone usage. Reddit commenting as a source of information and the use of time spent reading low-effort commenting. Avoidance of nonfiction serious book discussions.
+>
+
+
+=============
+  
+## Reddit comment o4h54u5
+
+    entry 386
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_destroying_nature_150/o4h54u5/  
+Comment ID:      o4h54u5  
+Author:          JDood  
+Bio:               
+Account Created: 2013-08-14T03:34:59Z  
+Link Karma:      1024  
+Comment Karma:   5298  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-09T18:31:09Z  
+Score:           621 points  
+Post Title:      Obsession with growth is destroying nature, 150 countries warn  
+:::::: Reddit User Comment: ======  
+I have been saying this for years \- i don't understand why we aren't striving for a sustainable equilibrium
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ANSWER, UNDERSTANDING: Because we put all our most gifted and talented people into commercial art designed to exploit human minds into over-consumption. Billionaires fund advertising, marketing, public relations, sponsorship to program mindsets. We, as a species, have turned religion indoctrination into consumerism indoctrination. We are far too good at exploiting minds with lies and manipulation as a species. We hear of terrible parenting, abusive parents, we hear of Ukraine war, we hear of divorces and child custody battles... but we can't see that we don't educate or teach compassion and marriage itself (families) in our schools. We don't share notes, we keep family secrets and sex secrets and abuse secrets and we elect abusers to the highest power. Because they fund money to pay for art work and symbols to manipulate our subconscious family sex secrets, etc.
+> 
+> * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+>
+
+
+=============
+  
+## Reddit comment o4i5zow
+
+    entry 387
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1r0c0tq/obsession_with_growth_is_destroying_nature_150/o4i5zow/  
+Comment ID:      o4i5zow  
+Author:          CutterX  
+Bio:               
+Account Created: 2011-08-21T11:22:04Z  
+Link Karma:      4244  
+Comment Karma:   2409  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T21:31:11Z  
+Score:           22 points  
+Post Title:      Obsession with growth is destroying nature, 150 countries warn  
+:::::: Reddit User Comment: ======  
+Because we don't give a fuck ourselves. It's a reality that most of us wouldn't abandon their lifestyle just to slow down fucking up the planet.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We clearly give a fuck for low-effort commenting. You can measure the popularity of seeking out junk information sources. Fox News popularity is measurable. Avoidance of nonfiction serious quotes is measurable in how rare they appear on social media comment sections.
+>
+
+
+=============
+  
+## Reddit comment o4h7c6o
+
+    entry 388
+
+Comment URL: https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4h7c6o/  
+Comment ID:      o4h7c6o  
+Author:          EnlightenedPotato69  
+Bio:               
+Account Created: 2024-01-27T21:51:14Z  
+Link Karma:      4261  
+Comment Karma:   17676  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-09T18:41:26Z  
+Score:           15.1k points  
+Post Title:      Daughter of Minnesota governor candidate fatally stabbed in St. Cloud, leading him to suspend campaign  
+:::::: Reddit User Comment: ======  
+Headline should say stabbed by husband. Even though I know women are most likely harmed by their spouses, over any other sources of violence; my mind jumped to politically motivated violence.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Affairs of the hate.
+>
+
+
+=============
+  
+## Reddit comment o4h2y0c
+
+    entry 389
+
+Comment URL: https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4h2y0c/  
+Comment ID:      o4h2y0c  
+Author:          rockmasterflex  
+Bio:             rockmasterflex :   
+Account Created: 2012-09-05T17:24:34Z  
+Link Karma:      2936  
+Comment Karma:   161458  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-09T18:20:58Z  
+Score:           1202 points  
+Post Title:      Daughter of Minnesota governor candidate fatally stabbed in St. Cloud, leading him to suspend campaign  
+:::::: Reddit User Comment: ======  
+It’s almost always someone you know. Always tragic
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And in USA schools we don't teach psychology of family relationships. We let McDonald's and Coke program obesity and diabetes into our minds instead.
+>
+
+
+=============
+  
+## Reddit comment o4hzwcu
+
+    entry 390
+
+Comment URL: https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4hzwcu/  
+Comment ID:      o4hzwcu  
+Author:          Remarkable_Run_5801  
+Bio:               
+Account Created: 2025-02-13T15:15:46Z  
+Link Karma:      123  
+Comment Karma:   4248  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T21:01:04Z  
+Score:           194 points  
+Post Title:      Daughter of Minnesota governor candidate fatally stabbed in St. Cloud, leading him to suspend campaign  
+:::::: Reddit User Comment: ======  
+My mother told me her worst nightmare is being at one of her children’s funerals instead of all of us mourning at hers. 
+
+I agree with you 100%
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Parents say stuff like this in words, then support age 18 military and don't use social media (measurable) to promote world peace. In fact, parents measurably promote mocking and joking about world pace. People have leaders like Putin and Trump and go on with Super Bowl entertainment and amusements and don't promote major focus on world mental health... such as promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book with 27 people.
+> 
+> After Germany's deaths in World War One, families lined up for Germany to have a whole new Second World War for their children. We don't seem to study the psychology of war and "fire drills" of what to do when mob mentality groups break out. When hate-driving **cults** break out, there are no mental health fire departments.
+>
+
+
+=============
+  
+## Reddit comment o4l837d
+
+    entry 391
+
+Comment URL: https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4l837d/  
+Comment ID:      o4l837d  
+Author:          B00marangTrotter  
+Bio:             Albert Trotter : During the war they called me Boomerang Trotter "Boomerang Trotter always comes back!"
+  
+Account Created: 2024-10-01T06:34:55Z  
+Link Karma:      119933  
+Comment Karma:   109676  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-10T09:50:12Z  
+Score:           786 points  
+Post Title:      Europe’s $24 Trillion Breakup With Visa and Mastercard Has Begun  
+:::::: Reddit User Comment: ======  
+If I know anything about money, it's that those who have it hate losing it, and get real ugly when their money is in threat.
+
+Expect some consequences, although I'm not sure if they will be directed at those actually responsible. 
+
+Maybe the financial community can do to the trump regime that which all the others were supposed to.
+
+
+
+
+=============
+  
+## Reddit comment o4lhapc
+
+    entry 392
+
+Comment URL: https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4lhapc/  
+Comment ID:      o4lhapc  
+Author:          MyStoopidStuff  
+Bio:             Hi, I've been pretty focused on 3dprinting, and have some stuff on my blog (http://www.mystoopidstuff.com/blog) and over on Thingiverse (https://www.thingiverse.com/mystoopidstuff/designs)  
+Account Created: 2021-08-06T16:17:59Z  
+Link Karma:      1659  
+Comment Karma:   22129  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-10T11:14:28Z  
+Score:           27 points  
+Post Title:      Europe’s $24 Trillion Breakup With Visa and Mastercard Has Begun  
+:::::: Reddit User Comment: ======  
+These are the types of things which countries only begin to consider when a country (which they had considered a strong friend) threatens to invade their allies, and wages a tariff war on them. Expect more of this type of thing as the economies of the EU, Canada, and our Asian allies start to move towards greater self reliance. All of the force multipliers from globalization that US corporations have greatly benefited from, thanks to solid US leadership (in the past), is now a potential liability. 
+
+
+
+
+=============
+  
+## Reddit comment o4ld7p9
+
+    entry 393
+
+Comment URL: https://old.reddit.com/r/Economics/comments/1r0w8gn/europes_24_trillion_breakup_with_visa_and/o4ld7p9/  
+Comment ID:      o4ld7p9  
+Author:          flawless_victory99  
+Bio:               
+Account Created: 2021-03-22T19:44:29Z  
+Link Karma:      284  
+Comment Karma:   23676  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-10T10:38:14Z  
+Score:           122 points  
+Post Title:      Europe’s $24 Trillion Breakup With Visa and Mastercard Has Begun  
+:::::: Reddit User Comment: ======  
+EU finally waking up to the fact that you can't have total dependence on another part of the world for core technology as this can/will be used against you. Should not have taken Russia/Trump to make this obvious. 
+
+
