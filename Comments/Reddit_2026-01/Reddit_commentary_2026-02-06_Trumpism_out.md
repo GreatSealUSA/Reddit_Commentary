@@ -1874,7 +1874,7 @@ No doubt followed by "So what if he did"
 > :::::: Analysis_Thoughts Commentary: ======  
 > Destabilized Reality.
 > 
-> * New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bhttps://old.reddit.com/r/IThinkYouShouldLeave/comments/1qzogft/when_nbc_runs_a_trump_account_state_propaganda_ad/o4cfdw8/bcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+> * New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 >
 
 
