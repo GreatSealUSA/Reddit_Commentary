@@ -1874,7 +1874,7 @@ No doubt followed by "So what if he did"
 > :::::: Analysis_Thoughts Commentary: ======  
 > Destabilized Reality.
 > 
-> * New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+> * New Years Eve 2014, BBC, Adam Curtis: "A war where you never know what the enemy are really up to, or even who they are. The underlying aim, **Surkov** says, is not to win the war, but to **use the conflict to create a constant state of destabilized perception**, in order to manage and control." https://www.realclearpolitics.com/video/2014/12/31/bhttps://old.reddit.com/r/IThinkYouShouldLeave/comments/1qzogft/when_nbc_runs_a_trump_account_state_propaganda_ad/o4cfdw8/bcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 >
 
 
@@ -5400,3 +5400,2830 @@ then why was he arrested 2 times for sex trafficking?
 > 
 > Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meemk4i7a22z https://autistics.life/@RoundSparrow/116036550644701650 }
 >
+
+
+=============
+  
+## Reddit comment o4amg9z
+
+    entry 194
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4amg9z/  
+Comment ID:      o4amg9z  
+Author:          Ordinary-Figure8004  
+Bio:               
+Account Created: 2025-02-07T01:54:10Z  
+Link Karma:      1877  
+Comment Karma:   37248  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T18:35:05Z  
+Score:           3528 points  
+Post Title:      Leak show feds tracking anti-ICE Reddit users like "Budget-Chicken-2425"  
+:::::: Reddit User Comment: ======  
+The party of small government, everybody!!!
+
+
+
+
+=============
+  
+## Reddit comment o4aodei
+
+    entry 195
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4aodei/  
+Comment ID:      o4aodei  
+Author:          Chester_A_Arthuritis  
+Bio:               
+Account Created: 2020-11-24T04:49:27Z  
+Link Karma:      7059  
+Comment Karma:   90950  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T18:43:42Z  
+Score:           1071 points  
+Post Title:      Leak show feds tracking anti-ICE Reddit users like "Budget-Chicken-2425"  
+:::::: Reddit User Comment: ======  
+<https://www.reddit.com/r/ICE_Raids/s/EUD86G6olZ>
+
+I posted this the other day. I just randomly got a chat request saying I was muted from a subreddit I’ve never posted in and is a private sub that ICE members chat with each other.
+
+I’m not a huge conspiracy theorist but I found it highly odd.
+
+
+
+
+=============
+  
+## Reddit comment o4aou6o
+
+    entry 196
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4aou6o/  
+Comment ID:      o4aou6o  
+Author:          Bec_son  
+Bio:               
+Account Created: 2019-04-12T01:36:09Z  
+Link Karma:      13124  
+Comment Karma:   49496  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T18:45:48Z  
+Score:           644 points  
+Post Title:      Leak show feds tracking anti-ICE Reddit users like "Budget-Chicken-2425"  
+:::::: Reddit User Comment: ======  
+Hey NSA agent watching me, you know how ice isnt being paid? Yeah youre not going to get paid either if things continue this way
+
+
+
+
+=============
+  
+## Reddit comment o4aqf16
+
+    entry 197
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4aqf16/  
+Comment ID:      o4aqf16  
+Author:          Surprised-elephant  
+Bio:               
+Account Created: 2023-12-30T14:45:34Z  
+Link Karma:      639  
+Comment Karma:   20784  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T18:53:03Z  
+Score:           139 points  
+Post Title:      Leak show feds tracking anti-ICE Reddit users like "Budget-Chicken-2425"  
+:::::: Reddit User Comment: ======  
+Hey feds why not spend time on Epstein files instead of people on Reddit.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> As the reply comment says, they are actively believing in Putin's mindsets, Surkov won since March 2013. Attacking women is CORE to the gender-focused global leadership initiative that Russia announced and was published in English on December 20, 2013 in USA. https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/   *Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."*
+>
+
+
+=============
+  
+## Reddit comment o4asovx
+
+    entry 198
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzgnjm/leak_show_feds_tracking_antiice_reddit_users_like/o4asovx/  
+Comment ID:      o4asovx  
+Author:          CAM6913  
+Bio:             Rolling Ridge woodworks :   
+Account Created: 2019-07-12T13:54:30Z  
+Link Karma:      5030  
+Comment Karma:   169344  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T19:03:44Z  
+Score:           41 points  
+Post Title:      Leak show feds tracking anti-ICE Reddit users like "Budget-Chicken-2425"  
+:::::: Reddit User Comment: ======  
+The Nazis are watching and preparing to start rounding up anyone and everyone that speaks out against this regime and its crimes….
+
+
+
+
+=============
+  
+## Reddit comment o49q6b1
+
+    entry 199
+
+Comment URL: https://old.reddit.com/r/Amazing/comments/1qzcgxd/time_to_pay_your_fair_share_1/o49q6b1/  
+Comment ID:      o49q6b1  
+Author:          SnooLentils5753  
+Bio:               
+Account Created: 2020-11-12T23:09:15Z  
+Link Karma:      1  
+Comment Karma:   6430  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-08T16:00:28Z  
+Score:           159 points  
+Post Title:      Time to pay your fair share 1%  
+:::::: Reddit User Comment: ======  
+Oh. I thought we were going to call them the predator class because of the other thing 😆
+
+
+
+
+=============
+  
+## Reddit comment o4aiy0g
+
+    entry 200
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzfzlw/my_party_is_taking_up_for_pedophiles_massie/o4aiy0g/  
+Comment ID:      o4aiy0g  
+Author:          Beantown-Jack  
+Bio:               
+Account Created: 2022-09-28T03:16:36Z  
+Link Karma:      9046  
+Comment Karma:   106461  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T18:19:11Z  
+Score:           None  
+Post Title:      "My party is taking up for pedophiles": Massie explains split with MAGA, Trump  
+:::::: Reddit User Comment: ======  
+Every day it gets harder to be a Republican. To stay in good standing, Republicans must defend odious and vile racist posts and the wanton, unprovoked murder of Americans in the streets.
+
+Now, Republicans find themselves shielding rich and powerful men who used their wealth to rape and threaten young, defenseless girls. Once you begin prostituting your soul, Republicans are now learning, there is no bottom to the fetid depravity and wretchedness you submerge yourself in.
+
+
+
+
+=============
+  
+## Reddit comment o4ahf1y
+
+    entry 201
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzfzlw/my_party_is_taking_up_for_pedophiles_massie/o4ahf1y/  
+Comment ID:      o4ahf1y  
+Author:          CouchCorrespondent  
+Bio:               
+Account Created: 2021-04-16T20:25:39Z  
+Link Karma:      30144  
+Comment Karma:   250787  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T18:12:06Z  
+Score:           None  
+Post Title:      "My party is taking up for pedophiles": Massie explains split with MAGA, Trump  
+:::::: Reddit User Comment: ======  
+"My Party is Taking Up for Pedophiles"
+
+THAT'S what should be printed on those red hats and sold at GOP conventions.
+
+
+
+
+=============
+  
+## Reddit comment o4ahlsj
+
+    entry 202
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzfzlw/my_party_is_taking_up_for_pedophiles_massie/o4ahlsj/  
+Comment ID:      o4ahlsj  
+Author:          NamelessResearcher  
+Bio:             Renegayde : (17-year-old paraboy, he/they, attracted to boys)
+
+I enjoy mathematics, X-Men, Star Wars, and sarcastic political commentary.
+
+🏳️‍🌈 Just here to have a gay old time. 🏳️‍🌈  
+Account Created: 2024-10-10T14:59:58Z  
+Link Karma:      177712  
+Comment Karma:   162951  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T18:12:58Z  
+Score:           None  
+Post Title:      "My party is taking up for pedophiles": Massie explains split with MAGA, Trump  
+:::::: Reddit User Comment: ======  
+You couldn't tell by how obsessed they were with sending us to bathrooms based on what was between our legs?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Surkov won since March 2013. Attacking gender roles is CORE to the gender-focused global leadership initiative that Russia announced and was published in English on December 20, 2013 in USA. https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/   *Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."*
+>
+
+
+=============
+  
+## Reddit comment o4abxxl
+
+    entry 203
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qzfcvo/im_nothing_im_navel_lint/o4abxxl/  
+Comment ID:      o4abxxl  
+Author:          JimAbaddon  
+Bio:             Dreaming in R'lyeh and snoring loudly.  
+Account Created: 2016-11-08T15:44:08Z  
+Link Karma:      1560  
+Comment Karma:   836251  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T17:46:21Z  
+Score:           743 points  
+Post Title:      "I'm nothing! I'm navel lint!"  
+:::::: Reddit User Comment: ======  
+And why do they care about bedding a woman if she's liberal? Aren't they always going on about how much they hate liberals?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The posting itself is CHOICE_MARRIAGE_HONESTY topic.
+>
+
+
+=============
+  
+## Reddit comment o4b8533
+
+    entry 204
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzjh0t/federal_statement_on_jeffrey_epsteins_death_dated/o4b8533/  
+Comment ID:      o4b8533  
+Author:          kakashi_sensay  
+Bio:             just a gal who loves naruto.  
+Account Created: 2022-10-19T04:36:48Z  
+Link Karma:      20754  
+Comment Karma:   55637  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T20:19:44Z  
+Score:           882 points  
+Post Title:      Federal statement on Jeffrey Epstein's death dated day before he was found dead  
+:::::: Reddit User Comment: ======  
+What the hell? Jesus Christ. Does MAGA seriously not see what’s going on here?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ANNSWER: No, they are too busy commenting and mocking "libtards" why the Reddit and Bluesky audience are too busy commenting and mocking MAGA. it is a massive cirlce-jerk-off of USA vs. USA that Putin set in motion since March 2013 with the Saint Petersburg Internet Research Agency with spicy boosted elements from Cambridge Analytical! Matthew 4:19 Trolling worked! Surkov students won.
+> 
+> OPERA_A Crime of the Internet. Remastered year 2010. https://www.youtube.com/watch?v=d_dfFrg0hDA 453,016 views July 23, 2018 Released on: 1974-09-13
+>
+
+
+=============
+  
+## Reddit comment o4b91ly
+
+    entry 205
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzjh0t/federal_statement_on_jeffrey_epsteins_death_dated/o4b91ly/  
+Comment ID:      o4b91ly  
+Author:          JacobsJrJr  
+Bio:               
+Account Created: 2021-05-06T01:10:23Z  
+Link Karma:      705  
+Comment Karma:   20016  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T20:24:19Z  
+Score:           381 points  
+Post Title:      Federal statement on Jeffrey Epstein's death dated day before he was found dead  
+:::::: Reddit User Comment: ======  
+This is either vitally important or its a typo.
+
+
+
+
+=============
+  
+## Reddit comment o4baj7w
+
+    entry 206
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzjh0t/federal_statement_on_jeffrey_epsteins_death_dated/o4baj7w/  
+Comment ID:      o4baj7w  
+Author:          lostredditorlurking  
+Bio:               
+Account Created: 2020-07-18T04:48:56Z  
+Link Karma:      115341  
+Comment Karma:   371391  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T20:31:51Z  
+Score:           69 points  
+Post Title:      Federal statement on Jeffrey Epstein's death dated day before he was found dead  
+:::::: Reddit User Comment: ======  
+Conspiracy theorists are having a very good year. But most of them are MAGA so they probably won't manage to connect the dots
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit users can't engage nonfiction on the subject that's been there for years and years.
+> 
+> * “Conspiracy theories have long been used to maintain power: the Soviet leadership saw capitalist and counter-revolutionary conspiracies everywhere; the Nazis, Jewish ones. But those conspiracies were ultimately there to buttress an ideology, whether class warfare for Communists or race for Nazis. With today’s regimes, which struggle to formulate a single ideology – indeed, which can’t if they want to maintain power by sending different messages to different people – the idea that one lives in a world full of conspiracies becomes the world view itself. Conspiracy does not support the ideology; it replaces it. In Russia this is captured in the catchphrase of the country’s most important current affairs presenter: ‘A coincidence? I don’t think so!’ says Dmitry Kiselev as he twirls between tall tales that dip into history, literature, oil prices and colour revolutions, which all return to the theme of how the world has it in for Russia. And as a world view it grants those who subscribe to it certain pleasures: if all the world is a conspiracy, then your own failures are no longer all your fault. The fact that you achieved less than you hoped for, that your life is a mess – it’s all the fault of the conspiracy.
+> More importantly, conspiracy is a way to maintain control. In a world where even the most authoritarian regimes struggle to impose censorship, one has to surround audiences with so much cynicism about anybody’s motives, persuade them that behind every seemingly benign motivation is a nefarious, if impossible-to-prove, plot, that they lose faith in the possibility of an alternative, a tactic a renowned Russian media analyst called Vasily Gatov calls **‘white jamming’**. And the end effect of this endless pile-up of conspiracies is that you, the little guy, can never change anything. For if you are living in a world where shadowy forces control everything, then what possible chance do you have of turning it around? In this murk it becomes best to rely on a strong hand to guide you. ‘Trump is our last chance to save America,’ **is the message of his media hounds**. Only Putin can ‘raise Russia from its knees’. ‘The problem we are facing today is less oppression, more lack of identity, apathy, division, no trust,’ sighs Srdja. ‘There are more tools to change things than before, but there’s less will to do so.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality. Year 2019.
+>
+
+
+=============
+  
+## Reddit comment o4balvp
+
+    entry 207
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1qzjwa5/andrew_tate_says_hes_too_smart_to_read_and_books/o4balvp/  
+Comment ID:      o4balvp  
+Author:          JackBeefus  
+Bio:               
+Account Created: 2014-08-02T23:00:09Z  
+Link Karma:      1  
+Comment Karma:   329054  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T20:32:13Z  
+Score:           1735 points  
+Post Title:      Andrew Tate says he’s ’too smart to read’ and books are for people ‘with slow brains’  
+:::::: Reddit User Comment: ======  
+Lol. I don't know how else to respond to this.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit audience turns into "LOL" meme stupors.
+>
+
+
+=============
+  
+## Reddit comment o4a81tr
+
+    entry 208
+
+Comment URL: https://old.reddit.com/r/WorkReform/comments/1qzeqmy/lmao_they_held_a_march_for_billionaires_in/o4a81tr/  
+Comment ID:      o4a81tr  
+Author:          TheThingInItself  
+Bio:               
+Account Created: 2015-07-27T04:39:58Z  
+Link Karma:      8015  
+Comment Karma:   39679  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-08T17:27:28Z  
+Score:           4690 points  
+Post Title:      LMAO They held a “March for Billionaires” in California. I'll never understand ordinary people defending Billionaires.  
+:::::: Reddit User Comment: ======  
+Are these the paid protestors the right keeps going on about?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit audience into "LMAO" (see posting titles) meme stupors. Billionaires bombard Reddit community into mockery and comedy mindsets.
+>
+
+
+=============
+  
+## Reddit comment o4a934s
+
+    entry 209
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1qz9hlx/maga_gets_beat_in_front_of_his_kids_for_singing/o4a934s/  
+Comment ID:      o4a934s  
+Author:          Strong_Orange_1929  
+Bio:               
+Account Created: 2022-03-09T17:52:33Z  
+Link Karma:      1  
+Comment Karma:   19610  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-08T17:32:29Z  
+Score:           170 points  
+Post Title:      MAGA Gets Beat In Front of His Kids for Singing "ICE ICE Baby" to Mexicans  
+:::::: Reddit User Comment: ======  
+I wish we would get rid of these dumb abbreviations and non\-words. So much of other\-people's time is wasted because someone couldn't be bothered to write a few extra letters.
+
+
+
+
+=============
+  
+## Reddit comment o4958q4
+
+    entry 210
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1qz9hlx/maga_gets_beat_in_front_of_his_kids_for_singing/o4958q4/  
+Comment ID:      o4958q4  
+Author:          No_Ad1174  
+Bio:               
+Account Created: 2020-08-03T23:42:48Z  
+Link Karma:      2  
+Comment Karma:   5048  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-08T14:07:36Z  
+Score:           4651 points  
+Post Title:      MAGA Gets Beat In Front of His Kids for Singing "ICE ICE Baby" to Mexicans  
+:::::: Reddit User Comment: ======  
+Respect to the guy calling off the fight once it was groudkicks. He might have saved dudes life. And saved other guy from doing life.
+
+
+
+
+=============
+  
+## Reddit comment o4aechc
+
+    entry 211
+
+Comment URL: https://old.reddit.com/r/WorkReform/comments/1qzeeqh/the_atlantic_is_owned_by_steve_jobs_widow_the/o4aechc/  
+Comment ID:      o4aechc  
+Author:          8-bit-Felix  
+Bio:               
+Account Created: 2021-06-08T13:13:41Z  
+Link Karma:      583752  
+Comment Karma:   234354  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-08T17:57:48Z  
+Score:           1229 points  
+Post Title:      The Atlantic is owned by Steve Jobs widow. The Atlantic is now defending pedophilia. You know why.  
+:::::: Reddit User Comment: ======  
+
+> “You don't need a formal conspiracy when interests converge. These people went to the same universities, they're on the same boards of directors, they're in the same country clubs, they have like interests, they don't need to call a meeting, they know what's good for them and they're getting it.”  
+>  \- George Carlin
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Apple computers, Steve Jobs, technology.
+> 
+> "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that **it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by techn**ological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+> ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**, page 111
+>
+
+
+=============
+  
+## Reddit comment o4adp77
+
+    entry 212
+
+Comment URL: https://old.reddit.com/r/WorkReform/comments/1qzeeqh/the_atlantic_is_owned_by_steve_jobs_widow_the/o4adp77/  
+Comment ID:      o4adp77  
+Author:          theonetruefishboy  
+Bio:               
+Account Created: 2018-04-26T05:07:42Z  
+Link Karma:      22472  
+Comment Karma:   284915  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-08T17:54:44Z  
+Score:           171 points  
+Post Title:      The Atlantic is owned by Steve Jobs widow. The Atlantic is now defending pedophilia. You know why.  
+:::::: Reddit User Comment: ======  
+We're currently in a weird area where the conspiracy is that all of these elites were all friends and were collaborating to engage in criminal behavior. But the elites, who are all friends and were collaborating to engage in criminal behavior, don't see that as a conspiracy.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Apple computers, iPhone / iPod / iPad ... 
+> 
+> “Shaw once remarked that all professions are conspiracies against the laity. I would go further: in Technopoly, all experts are invested with the charisma of priestliness. Some of our priest-experts are called psychiatrists, some psychologists, some sociologists, some statisticians. The god they serve does not speak of righteousness or goodness or mercy or grace. Their god speaks of efficiency, precision, objectivity. And that is why such concepts as sin and evil disappear in Technopoly. They come from a moral universe that is irrelevant to the theology of expertise. And so the priests of Technopoly call sin “social deviance,” which is a statistical concept, and they call evil “psychopathology,” which is a medical concept. Sin and evil disappear because they cannot be measured and objectified, and therefore cannot be dealt with by experts.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology. Year 1992.
+>
+
+
+=============
+  
+## Reddit comment o4bfu66
+
+    entry 213
+
+Comment URL: https://old.reddit.com/r/NFLv2/comments/1qzkgdw/good_business_decision/o4bfu66/  
+Comment ID:      o4bfu66  
+Author:          matt-kennedys-legs  
+Bio:               
+Account Created: 2025-05-22T10:50:12Z  
+Link Karma:      6525  
+Comment Karma:   124339  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T20:58:29Z  
+Score:           307 points  
+Post Title:      Good business decision?  
+:::::: Reddit User Comment: ======  
+this whole bad bunny thing is really telling of what’s going on in the US at the moment. half the country losing their absolute minds because a brown person is performing at the super bowl.
+
+your country is cooked bros.
+
+
+
+
+=============
+  
+## Reddit comment o4c4c5r
+
+    entry 214
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzm05x/urgent_smoking_gun_we_found_the_map_to_the/o4c4c5r/  
+Comment ID:      o4c4c5r  
+Author:          DarkShadowGirl  
+Bio:               
+Account Created: 2010-07-17T04:09:43Z  
+Link Karma:      9240  
+Comment Karma:   5053  
+Comment Age:     10 minutes ago  
+Timestamp:       2026-02-08T23:05:53Z  
+Score:           5 points  
+Post Title:      [URGENT] SMOKING GUN: We Found the "Map" to the Epstein Cover-Up the DOJ is Still Hiding.  
+:::::: Reddit User Comment: ======  
+The Whistleblower says this is bigger then watergate.
+
+
+
+
+=============
+  
+## Reddit comment o4asgxo
+
+    entry 215
+
+Comment URL: https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4asgxo/  
+Comment ID:      o4asgxo  
+Author:          AurorraMiller7392  
+Bio:               
+Account Created: 2026-02-07T14:56:27Z  
+Link Karma:      4195  
+Comment Karma:   79  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-08T19:02:41Z  
+Score:           52 points  
+Post Title:      This should not be redacted!  
+:::::: Reddit User Comment: ======  
+You should be just as angry that the from is redacted in blatant violation of the law. Assume it's Trump
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 day Reddit account. front page of Reddit /r/All
+>
+
+
+=============
+  
+## Reddit comment o4bnwvk
+
+    entry 216
+
+Comment URL: https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4bnwvk/  
+Comment ID:      o4bnwvk  
+Author:          gb997  
+Bio:             gb997 : 40s M  
+Account Created: 2015-08-17T16:38:42Z  
+Link Karma:      258  
+Comment Karma:   43301  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T21:38:26Z  
+Score:           6 points  
+Post Title:      This should not be redacted!  
+:::::: Reddit User Comment: ======  
+not just that but they’re not even ashamed. they’re flaunting it as if to say “haha we’ll do whatever we want and you dumb plebes can’t do anything about it.”
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Just like the operators of Reddit, mods of Reddit behave. Technology leadership, Trump tech followers, lead the nation.
+>
+
+
+=============
+  
+## Reddit comment o4atumk
+
+    entry 217
+
+Comment URL: https://old.reddit.com/r/International/comments/1qzhbr1/this_should_not_be_redacted/o4atumk/  
+Comment ID:      o4atumk  
+Author:          GENERAT10N_D00M  
+Bio:             I am a rifle.  : I ask you this. When you are lying tied-up like crying freak pig in dark crawlspace under Serbian farmhouse, Will you take out sharp critic pen and write about your little taste? I think not.  
+Account Created: 2021-09-11T18:02:50Z  
+Link Karma:      87981  
+Comment Karma:   108118  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-08T19:09:22Z  
+Score:           8 points  
+Post Title:      This should not be redacted!  
+:::::: Reddit User Comment: ======  
+I have a theory: people who are minimizing the Epstein conspiracy are really subconsciously trying to cope with the fact that they too, were diddled when they were younger, are currently doing the diddling, or both.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="947" height="722" alt="image" src="https://github.com/user-attachments/assets/4c6a67d5-8b44-4418-8507-96993b0cd64d" />
+> 
+> I have a theory that people ignore that Christian / Catholic organized religion hasn't been doing this for hundreds and hundreds of years. That people ignore what is going on right in their own high school classes at age 14, age 15 and age 16. I was a bookworm and I would read books in class and around the school and never spread gossip or rumors... so girls would talk right in front of me and you could hear hot girls bragging about the older men that were giving them adult experiences. 
+> 
+> I have a theory that people do not listen worth shit to what is truly going on in the world. Go study child custody battles, stories from divorce lawyers, court cases. All over the USA, this isn't geographic specific! Rural people have wild situations. Go to a bar and do your work on a laptop on weekday during happy hour and watch drunk drivers get into their car day after day, I did this in over 25 USA cities. People are blind to how people threaten other people with drunk driving and such. Billionaire corporations, investors pay for all that advertising to program booze / beer addictions into people. The most powerful manipulation messages possible to make people obese, alcoholics, etc.
+> 
+> * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
+> 
+> OPERA_A I grew up in Fort Wayne, Indiana. This was recorded in December 11, 1987 my final year (senior class) in high school. Some of us listen to our elders who share the truth on F.M. radio and in concert. https://www.youtube.com/watch?v=8qxDBiiVjlQ Lyrics: "A million young poets screaming out their words
+> To a world full of people **just living to be heard**" - people do not fucking listen to the sexual abuse and broken families all around them in every USA city. Lyrics: "You can't tell your best buddy that you love him"; "getting **too drunk** on Saturdays(Check it out) playing football with the kids on Sundays" - NFL Super Bowl **Sunday** today, fucking LOOK AROUND! Drunks will be abusing at the end of the game. Advertised and marketed by the most gifted talented media systems devised by mankind! "And this is all that we've learned about living" - 11,492,701 views October 5, 2009 - I shared this music video to Africa, Tunisia and Algeria as part of the Arab Spring 2010 online - showing the music I grew up with in Indiana.
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mef53nalqs2v https://autistics.life/@RoundSparrow/116037709826010135 }
+>
+
+
+=============
+  
+## Reddit comment o4ax4cs
+
+    entry 218
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzi35p/trump_79_targets_us_olympic_athlete_27_in_new/o4ax4cs/  
+Comment ID:      o4ax4cs  
+Author:          bttr-swt  
+Bio:             FUCK ICE : ( ꩜ ᯅ ꩜;)⁭ ⁭  
+Account Created: 2016-08-28T02:02:24Z  
+Link Karma:      56  
+Comment Karma:   14574  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-08T19:25:21Z  
+Score:           None  
+Post Title:      Trump, 79, Targets U.S. Olympic Athlete, 27, in New Feud | Team USA has a new opponent: Team Trump.  
+:::::: Reddit User Comment: ======  
+I don't want to hear anything about patriotism from a draft\-dodging moron who has an inferiority complex about the Obamas and is unabashedly pocketing billions of taxpayer dollars for himself.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Putin's **Saint Peter**sburg Internet Research Agency has programmed self-harm to USA population since March 2013. Not just Trump, not just Musk, not just MAGA, not just Republicans, everyone. And people are blind that hate is prized and entirely avoiding Dr. Martin Luther King Jr's lessons about out-group hate. Today is Sunday, Bible School, Church Day, people can't read in February 2026 worth a fucking damn a science fiction story and what it has to say.
+> 
+> The 1954 Equation
+> 
+> Sunday, February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+> 
+> "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+>
+
+
+=============
+  
+## Reddit comment o4axy1m
+
+    entry 219
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzi35p/trump_79_targets_us_olympic_athlete_27_in_new/o4axy1m/  
+Comment ID:      o4axy1m  
+Author:          bevendelamorte  
+Bio:             Made you look.   
+Account Created: 2011-05-20T19:54:49Z  
+Link Karma:      19  
+Comment Karma:   40038  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-08T19:29:22Z  
+Score:           None  
+Post Title:      Trump, 79, Targets U.S. Olympic Athlete, 27, in New Feud | Team USA has a new opponent: Team Trump.  
+:::::: Reddit User Comment: ======  
+
+> Conservative Washington Post columnist Marc Thiessen joined the mob as well, lamenting that athletes speaking about politics would “ruin the Olympics,” and declaring he was “Rooting against Hunter Hess.”
+
+"They hate America so I will root against America." Marc Thiessen is the dumbest motherfucker alive.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+>
+
+
+=============
+  
+## Reddit comment o4bdkq8
+
+    entry 220
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4bdkq8/  
+Comment ID:      o4bdkq8  
+Author:          Lupius  
+Bio:               
+Account Created: 2012-02-08T01:21:44Z  
+Link Karma:      24768  
+Comment Karma:   123378  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T20:47:12Z  
+Score:           None  
+Post Title:      Jeffrey Epstein Claimed Donald Trump's Friends 'Were Concerned About Dementia' After 2017 Dinner, Emails Show  
+:::::: Reddit User Comment: ======  
+
+> Did not recognize old friends,
+
+That's the expected behavior of a malignant narcissist with or without dementia.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2017 is long long time ago.
+>
+
+
+=============
+  
+## Reddit comment o4beb5g
+
+    entry 221
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4beb5g/  
+Comment ID:      o4beb5g  
+Author:          banksy_h8r  
+Bio:               
+Account Created: 2011-03-04T01:58:53Z  
+Link Karma:      592  
+Comment Karma:   304996  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T20:50:53Z  
+Score:           None  
+Post Title:      Jeffrey Epstein Claimed Donald Trump's Friends 'Were Concerned About Dementia' After 2017 Dinner, Emails Show  
+:::::: Reddit User Comment: ======  
+
+> Bannon claimed that Donald “had no attention span, didn't read, and now doesn't listen. He said Donald repeats himself a lot, telling the same story minutes after he told it before," per Rosen's account, which the former chief strategist later denied.
+> 
+> The producer also claimed in the book that “Bannon tried to build support to have Trump removed” from office due to his concerns.
+
+Bannon likely did this because he thought Pence was a better fit for his reactionary agenda, not because of any genuine assessment of Trump's mental state.
+
+> Speaking with PEOPLE in 2024 before Donald took office for a second time, Fred C. Trump III said his uncle's recent behavior reminds him of the other Trumps who have faced cognitive health challenges, including the president's late sister and father. At the time, Donald’s campaign dismissed the interview as "completely fabricated and total fake news."
+> 
+> "Like anyone else, I've seen his decline. But I see it in parallel with the way my grandfather's decline was," Fred told PEOPLE at the time. "If anyone wants to believe that dementia did not run in the Trump family, it's just not true."
+
+That's a much more reliable witness.
+
+
+
+
+=============
+  
+## Reddit comment o4bbh8k
+
+    entry 222
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4bbh8k/  
+Comment ID:      o4bbh8k  
+Author:          green-wagon  
+Bio:               
+Account Created: 2019-10-31T20:27:05Z  
+Link Karma:      139  
+Comment Karma:   28667  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T20:36:39Z  
+Score:           None  
+Post Title:      Jeffrey Epstein Claimed Donald Trump's Friends 'Were Concerned About Dementia' After 2017 Dinner, Emails Show  
+:::::: Reddit User Comment: ======  
+They all know.  
+ They have all known for a long time.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> all known for a long time.
+> 
+> And we have all known that everyone is attracted to Trump's style and communications methods. We have all known about his buddy relationship with Putin and the killings of Ukraine people by Russia in warfare since February 20, 2014. We have all know. The question is WHY since year 2013 did USA population all become attracted to self-harm. What did Cambridge Analytica and Saint Petersburg Internet Research Agency do that even with measles raging today in February 2026 -people CAN NOT FACE and repeat and keep repeating this story from August 24, 2018 and face up to massive mental manipulation. https://www.bbc.com/news/world-us-canada-45294192 how can RFK Jr. be in charge of measles? Mentally manipulated people.
+>
+
+
+=============
+  
+## Reddit comment o4ba1w1
+
+    entry 223
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzjtuj/jeffrey_epstein_claimed_donald_trumps_friends/o4ba1w1/  
+Comment ID:      o4ba1w1  
+Author:          Real-Ad-1728  
+Bio:               
+Account Created: 2025-08-19T16:16:50Z  
+Link Karma:      1416  
+Comment Karma:   26876  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T20:29:26Z  
+Score:           None  
+Post Title:      Jeffrey Epstein Claimed Donald Trump's Friends 'Were Concerned About Dementia' After 2017 Dinner, Emails Show  
+:::::: Reddit User Comment: ======  
+The only unbelievable part of that headline is that Trump has friends
+
+
+
+
+=============
+  
+## Reddit comment o4caibr
+
+    entry 224
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_latest_mysterious_kid/o4caibr/  
+Comment ID:      o4caibr  
+Author:          LoftCats  
+Bio:               
+Account Created: 2023-01-23T01:37:15Z  
+Link Karma:      1  
+Comment Karma:   29088  
+Comment Age:     47 minutes ago  
+Timestamp:       2026-02-08T23:42:05Z  
+Score:           1116 points  
+Post Title:      Turning Point halftime show latest: Mysterious Kid Rock show will be pulled from X due to licensing restrictions  
+:::::: Reddit User Comment: ======  
+When Kid Rock is the best you got.
+
+
+
+
+=============
+  
+## Reddit comment o4cb3mo
+
+    entry 225
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_latest_mysterious_kid/o4cb3mo/  
+Comment ID:      o4cb3mo  
+Author:          zombie_roca  
+Bio:               
+Account Created: 2017-03-12T04:30:27Z  
+Link Karma:      40779  
+Comment Karma:   66632  
+Comment Age:     44 minutes ago  
+Timestamp:       2026-02-08T23:45:46Z  
+Score:           953 points  
+Post Title:      Turning Point halftime show latest: Mysterious Kid Rock show will be pulled from X due to licensing restrictions  
+:::::: Reddit User Comment: ======  
+This will never not be funny to me. They are all pretending to like kid rock just cause they’re mad at who’s playing the half time show 😭😭😭
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The fandom of Musk X (Twitter), fandom of Kid Rock, fandom of Trump. Hate-watching fandom is constantly cheering for more funny! https://en.wikipedia.org/wiki/Hate-watching
+> 
+> To understand why Donald Trump is the center of every media system in USA - you have to deeply analyze and study thee Reddit addictions to mocking leadership. To hate leaders. To hate-watching. https://en.wikipedia.org/wiki/Hate-watching Trump / MAGA / ICE all provide the simulation that Bluesky and Reddit fandoms constantly engage. It is sickening to watch these people do ANYTHING but support and repeat and keep repeating Dr. Bandy X Lee's nonfiction book from October 3, 2017 and have MAGA and Trump learn about the mental health disasters, the elephant in the room is avoidance of Dr. Bandy X Lee's 27 group that stood up.
+>
+
+
+=============
+  
+## Reddit comment o4cas8b
+
+    entry 226
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qzoksm/turning_point_halftime_show_latest_mysterious_kid/o4cas8b/  
+Comment ID:      o4cas8b  
+Author:          sec713  
+Bio:               
+Account Created: 2011-05-29T01:08:03Z  
+Link Karma:      13240  
+Comment Karma:   593562  
+Comment Age:     48 minutes ago  
+Timestamp:       2026-02-08T23:43:47Z  
+Score:           473 points  
+Post Title:      Turning Point halftime show latest: Mysterious Kid Rock show will be pulled from X due to licensing restrictions  
+:::::: Reddit User Comment: ======  
+Man it must suck to be in a cult where you're forced to pretend you like the shittiest entertainers on the planet to prove how loyal you are to said cult.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit audience, comment creators on Reddit, are in a cult of mocking other cults. Cult vs. cult. media cults. It has been going on since June 16, 2015 endlessly mocking back and fort in feedback loops about how { cult, retarded, dumb, stupid, idiot, moron } the out-group cults are. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o4c4h5x
+
+    entry 227
+
+Comment URL: https://old.reddit.com/r/law/comments/1qzn92j/the_president_says_states_are_agents_of_the/o4c4h5x/  
+Comment ID:      o4c4h5x  
+Author:          fajadada  
+Bio:               
+Account Created: 2023-03-05T23:07:33Z  
+Link Karma:      7205  
+Comment Karma:   189840  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T23:06:43Z  
+Score:           183 points  
+Post Title:      The President says States are agents of the federal government. That’s not what the Constitution or the Supreme Court says. I don't work for Donald Trump. The People of Arizona are my boss, and they asked me to do the job maintaining & improving our solid elections. - Adrian Fontes, AZ Sec of State  
+:::::: Reddit User Comment: ======  
+Good for Arizona
+
+
+
+
+=============
+  
+## Reddit comment o4cfdw8
+
+    entry 228
+
+Comment URL: https://old.reddit.com/r/IThinkYouShouldLeave/comments/1qzogft/when_nbc_runs_a_trump_account_state_propaganda_ad/o4cfdw8/  
+Comment ID:      o4cfdw8  
+Author:          creaturefeature16  
+Bio:               
+Account Created: 2012-05-11T22:53:53Z  
+Link Karma:      95126  
+Comment Karma:   234977  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T00:10:46Z  
+Score:           33 points  
+Post Title:      When NBC runs a "Trump Account" state propaganda ad during the Super Bowl  
+:::::: Reddit User Comment: ======  
+He is marking his territory. That's all he knows how to do is plaster his name on things. He is an empty shell, and sees himself as just a brand. There's a reason he speaks and refers to himself in the third person. It demonstrates a complete disassociation from his own actions. It's actually one of the most terrifying aspects of his personality to me; there's no personal responsibility. We have some examples in history what happens when people like this attain immense power....
+
+
+
+
+=============
+  
+## Reddit comment o4e6x9k
+
+    entry 229
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qzwpy6/jd_vance_ridiculed_for_40car_motorcade_taking_him/o4e6x9k/  
+Comment ID:      o4e6x9k  
+Author:          Isariamkia  
+Bio:               
+Account Created: 2017-06-22T08:30:48Z  
+Link Karma:      747  
+Comment Karma:   111848  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-09T06:46:27Z  
+Score:           2126 points  
+Post Title:      JD Vance ridiculed for 40-car motorcade taking him down tiny Italian street  
+:::::: Reddit User Comment: ======  
+Americans can't eat any European food. They're allergic to health. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We all have eating disorders. We are constantly bombarding ourselves in USA with food advertisement and marketing. Banksy is correct. Because we have such terrible health care system in USA, we "eat our feelings" under the stress of red tape / insurance paperwork. USA created Google advertising, Facebook advertising, TV channel, Hollywood - we are bombarding our brains with stimulation to over-eat constantly.  Our education on nutrition is indoctrination with a McDonald's Happy Meal. Fast Food and junk food are cults and our church is praise to brand-name processed food. That is our food culture since 1980.
+> 
+> * "this new discourse is **even more totalitarian** because behind it hides the same mechanisms of power… not the same… but behind it **hides mechanisms of power** which keep these people in their sway. Ah, I think that one of the greatest examples of this – for me – is the **discourse concerning body weight in women**; bulimia, anorexia and so on. It’s as though a male dominant society was able in the Middle Ages to, you know, put a chastity belt on a woman, to put, you know, to… **keep food away from her and starve her if she misbehaved**. But today we accomplish the same feat through **images that are constantly bombarded into the conscious and into the unconscious** of women, and they perform the wonderfully humanistic task of starving themselves to death while male therapists teach them how to get on twelve step programs to eat. See, for Foucault, this is why its not humanism. This kind of malady is a cultural malady that strikes at the very heart of life. **Once something like eating is death then you have struck at the very heart of life**. The enemy of the older radical theories may have been the ruling class, but today the stakes of whether we will reform ourselves into a new kind of human being, a new kind of society, whether we will find selves worth being… the stakes of it are simply life itself. And that makes it quite dramatic actually."
+> * * Rick Roderick, Duke University
+>   * https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
+> 
+> * "This kind of malady is a cultural malady that strikes at the very heart of life. **Once something like eating is death then you have struck at the very heart of life**." - Rick Roderick. Such as the USA health care system. The very essence of life is bombarded out of people with constant marketing and advertising.
+>
+
+
+=============
+  
+## Reddit comment o4dfyaq
+
+    entry 230
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzt8ll/bad_bunny_scandalizes_maga_with_wholesome_latin/o4dfyaq/  
+Comment ID:      o4dfyaq  
+Author:          BeerLawnsHockey  
+Bio:               
+Account Created: 2025-10-04T02:40:01Z  
+Link Karma:      1  
+Comment Karma:   7163  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-09T03:29:47Z  
+Score:           6689 points  
+Post Title:      Bad Bunny Scandalizes MAGA With Wholesome Latin Culture  
+:::::: Reddit User Comment: ======  
+MAGA tends to hate what it’s afraid of.
+Different languages, unfamiliar settings, new styles, or music outside their lane knock them out of their comfort zone. Instead of engaging with it, they panic. A weak education system that discourages critical thinking doesn’t help, so rather than learning about another culture, they lash out. 
+
+Fear curdles into anger, and the result is grown adults behaving like children who just discovered the world isn’t built exclusively for them.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 4 month Reddit account. Top-upvoted popular comment.
+>
+
+
+=============
+  
+## Reddit comment o4djpmv
+
+    entry 231
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzt8ll/bad_bunny_scandalizes_maga_with_wholesome_latin/o4djpmv/  
+Comment ID:      o4djpmv  
+Author:          senordonwea  
+Bio:               
+Account Created: 2019-10-20T20:28:40Z  
+Link Karma:      24  
+Comment Karma:   37717  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-09T03:52:21Z  
+Score:           None  
+Post Title:      Bad Bunny Scandalizes MAGA With Wholesome Latin Culture  
+:::::: Reddit User Comment: ======  
+I worry that Trump is going to put tariffs on PR, and who knows, maybe even capture their president too
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fandom of sports on Reddit. Fandom of half time show on Reddit. Fandom of Donald Trump on Reddit. We The People of the USA are so entertained joke-cracking about Trump that there is no resistance, there is a cheering fandom that Trump creates a situaiton of constant joking and joke-washing as sanewashing. ALWAYS AVOIDED: using free time and spare time on Reddit commenting to quote nonfiction from Dr. Bandy X Lee and the 27 leaders she assembled and published October 3, 2017.
+>
+
+
+=============
+  
+## Reddit comment o4d9df6
+
+    entry 232
+
+Comment URL: https://old.reddit.com/r/Snorkblot/comments/1qzskrp/let_them_eat_cake/o4d9df6/  
+Comment ID:      o4d9df6  
+Author:          Salty-Security-2587  
+Bio:               
+Account Created: 2026-01-27T08:31:47Z  
+Link Karma:      9308  
+Comment Karma:   108  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-09T02:54:15Z  
+Score:           83 points  
+Post Title:      Let them eat cake  
+:::::: Reddit User Comment: ======  
+It’s wild how billionaires barely pay taxes, hide their money in loopholes, and then act like they should decide how our tax dollars are spent. They’re using money they never even helped put in, but somehow the big worry is whether poor people are getting too much help. Makes no sense at all.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 13 day Reddit account. Front-page posting, top-voted comment both.
+>
+
+
+=============
+  
+## Reddit comment o4ddyub
+
+    entry 233
+
+Comment URL: https://old.reddit.com/r/Snorkblot/comments/1qzskrp/let_them_eat_cake/o4ddyub/  
+Comment ID:      o4ddyub  
+Author:          Top-Cupcake4775  
+Bio:             Gilbert Pilz :   
+Account Created: 2020-09-17T13:56:26Z  
+Link Karma:      496  
+Comment Karma:   60166  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-09T03:18:43Z  
+Score:           21 points  
+Post Title:      Let them eat cake  
+:::::: Reddit User Comment: ======  
+it’s part of their obsession with hierarchy. of course they would never presume to tell their superiors how they should spend their money. of course they should lecture their inferiors on proper nutrition.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Grocery shopping cart of fellow people in worship of the advertising cults. You didn't purchase the popular brand, you are a failure because you purchase generic foods or non-branded foods. Billionaire programmed consumers.
+> 
+> * "this new discourse is **even more totalitarian** because behind it hides the same mechanisms of power… not the same… but behind it **hides mechanisms of power** which keep these people in their sway. Ah, I think that one of the greatest examples of this – for me – is the **discourse concerning body weight in women**; bulimia, anorexia and so on. It’s as though a male dominant society was able in the Middle Ages to, you know, put a chastity belt on a woman, to put, you know, to… **keep food away from her and starve her if she misbehaved**. But today we accomplish the same feat through **images that are constantly bombarded into the conscious and into the unconscious** of women, and they perform the wonderfully humanistic task of starving themselves to death while male therapists teach them how to get on twelve step programs to eat. See, for Foucault, this is why its not humanism. This kind of malady is a cultural malady that strikes at the very heart of life. **Once something like eating is death then you have struck at the very heart of life**. The enemy of the older radical theories may have been the ruling class, but today the stakes of whether we will reform ourselves into a new kind of human being, a new kind of society, whether we will find selves worth being… the stakes of it are simply life itself. And that makes it quite dramatic actually."
+> * * Rick Roderick, Duke University
+>   * https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
+>
+
+
+=============
+  
+## Reddit comment o4djlj1
+
+    entry 234
+
+Comment URL: https://old.reddit.com/r/BikiniBottomTwitter/comments/1qzswe7/basically_super_bow_lx_ads_in_a_nutshell_minus_a/o4djlj1/  
+Comment ID:      o4djlj1  
+Author:          phaevoralyne  
+Bio:               
+Account Created: 2026-02-02T19:05:46Z  
+Link Karma:      44  
+Comment Karma:   1153  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-09T03:51:37Z  
+Score:           208 points  
+Post Title:      Basically Super Bow LX ads in a nutshell (minus a few gems)  
+:::::: Reddit User Comment: ======  
+Ad breaks are just a high budget fever dream now.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 day Reddit account.
+> 
+> Social post { https://autistics.life/@RoundSparrow/116040537718610518 https://bsky.app/profile/roundsparrow.bsky.social/post/3megfbqhyrs2w }
+>
+
+
+=============
+  
+## Reddit comment o4e72vf
+
+    entry 235
+
+Comment URL: https://old.reddit.com/r/politics/comments/1qzwjo9/a_trump_file_i_havent_seen_before_its_awful_why/o4e72vf/  
+Comment ID:      o4e72vf  
+Author:          Maxamillion-X72  
+Bio:               
+Account Created: 2016-09-05T05:51:30Z  
+Link Karma:      2672  
+Comment Karma:   174506  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-09T06:47:50Z  
+Score:           None  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+The reason it's not really in the news right now is because this was first released in 2016\.
+
+*Ten fucking years* this information has been in the public eye and yet here we are. 
+
+Imagine if practically any prior president had something this damning in their history. Presidents get a pass on a lot of stuff, war crimes for example. But I think the red line should be well before "raping children". At this point, I'm not sure if Trump could lose support even if he broadcast himself live getting a bj from a 12yo. He'd make everyone who already hates him to hate him even more, but his base wouldn't bat an eye; "she was hot, can you blame him?", "It's not like she was a child, her age was double digits".
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1607" height="1487" alt="image" src="https://github.com/user-attachments/assets/5daf0b78-8386-438e-a167-90316b93eb80" />
+> 
+> Reddit is the medium of the problem. Reddit commenting medium is the massaging of minds. People are drowning in low-effort Reddit commenting, "engagement", "engaged" in streams and rivers of comment after comment, all fragmented on different root threads on different commenting trees on different postings. People all avoiding common FAQ and common Wiki organization. Anti-FAQ anti-Wiki, anti-organizing in favor of *reacting, reactionary* to MAGA constantly; MAGA is feeding shit into Reddit minds. Reddit is an audience to MAGA. Since Q4 2024... Bluesky is another audience to MAGA.
+> 
+> * “When a **population** becomes distracted by trivia, when cultural **life is redefined as a perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, **a people become an audience**, and their public business a vaudeville act, then a nation finds itself....”
+> ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Nonfiction book. SEE_ALSO https://www.youtube.com/watch?v=ETUGwC9jXCM
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meghwzdq5s2w https://autistics.life/@RoundSparrow/116040725886202836 https://MidWest.Social/post/43208738 }
+> 
+> POST TITLE REMOVED_BY_REDDIT: "A Trump File I haven't seen before. Its awful. Why isnt this everywhere?"
+> https://www.justice.gov/epstein/files/DataSet%209/EFTA00622303.pdf
+>
+
+
+=============
+  
+## Reddit comment o4exfvh
+
+    entry 236
+
+Comment URL: https://old.reddit.com/r/Music/comments/1r012t3/country_stars_turn_on_kid_rock_after/o4exfvh/  
+Comment ID:      o4exfvh  
+Author:          oicoldhere  
+Bio:               
+Account Created: 2025-11-18T23:24:20Z  
+Link Karma:      2997  
+Comment Karma:   1979  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T11:01:59Z  
+Score:           1269 points  
+Post Title:      Country stars turn on Kid Rock after controversial Turning Point USA show  
+:::::: Reddit User Comment: ======  
+The absolute worst lip syncing performance ever
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. Top-upvoted, most popular comment. Twitter-length tweet-thinking.
+> 
+> This is what the USA population is doing with spare time and free time first thing Monday morning. What is AVOIDED: commenting about Dr. Bandy X Lee's nonfiction book of 27 people writing about the mental health of Donald Trump and the national mental health. https://www.GoodReads.com/author/quotes/16953723.Bandy_X_Lee Published October 3, 2017. Avoided and avoided because Reddit commenting is a fandom to hate-watching Kid Rock and Trump hate-watching. https://en.wikipedia.org/wiki/Hate-watching
+> 
+> Social post { https://MidWest.Social/post/43208738/22623965 }
+>
+
+
+=============
+  
+## Reddit comment o4f6w3n
+
+    entry 237
+
+Comment URL: https://old.reddit.com/r/therewasanattempt/comments/1r02j05/to_make_showing_love_to_all_people_sound_like_the/o4f6w3n/  
+Comment ID:      o4f6w3n  
+Author:          enlitend-1  
+Bio:             Day 180 &amp; counting  
+Account Created: 2020-12-14T23:54:37Z  
+Link Karma:      595  
+Comment Karma:   42990  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T12:20:36Z  
+Score:           1122 points  
+Post Title:      To make showing love to all people sound like the bad option  
+:::::: Reddit User Comment: ======  
+If these folks are so damn faithful, how come they have to keep dusting their Bibles off? Mine are dust free…
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The Bible is not North American. The Bible is not in the USA Constitution. The Founding Fathers were deism / deists. The Bible is from the Middle East which has a world wide reputation of war and hate. There is a mental health crisis that people believe they 'see god" and "hear Jesus" in their head. Bible verse "1 John 4:20" addresses all that is wrong with this Kid Rock statement to USA. "I love Jesus" is wrong, read "1 John 4:20". Thinking you have seen Jesus or seen God is wrong. "1 John 4:20" Bible verse. Literacy hallucination crisis. Hamlet's Ghost reading literacy crisis. You have not seen Hamlet's Ghost. Re-read Bible verse "1 John 4:20" and apply it to Hamlet's Ghost. Or Star Wars "Force Ghosts" of 1977 fiction film!
+>
+
+
+=============
+  
+## Reddit comment o4f974h
+
+    entry 238
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_public_appearance/o4f974h/  
+Comment ID:      o4f974h  
+Author:          Different_Prior_517  
+Bio:               
+Account Created: 2021-04-08T10:07:41Z  
+Link Karma:      2842  
+Comment Karma:   384936  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T12:37:36Z  
+Score:           459 points  
+Post Title:      Renee Good's Wife Makes First Public Appearance After Her Murder: "Renee was not the first person killed, and she was not the last. You know my wife’s name… but there are many others being harmed that you don’t know — their families are hurting just like mine, even if they don’t look like mine."  
+:::::: Reddit User Comment: ======  
+An incredibly brave and powerful statement. 
+
+Good on her for acknowledging that people who aren’t white are being murdered by ICE too.
+
+
+
+
+=============
+  
+## Reddit comment o4f9iyw
+
+    entry 239
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_public_appearance/o4f9iyw/  
+Comment ID:      o4f9iyw  
+Author:          StudioNo2814  
+Bio:               
+Account Created: 2021-01-15T14:55:33Z  
+Link Karma:      220  
+Comment Karma:   2299  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T12:39:55Z  
+Score:           188 points  
+Post Title:      Renee Good's Wife Makes First Public Appearance After Her Murder: "Renee was not the first person killed, and she was not the last. You know my wife’s name… but there are many others being harmed that you don’t know — their families are hurting just like mine, even if they don’t look like mine."  
+:::::: Reddit User Comment: ======  
+I have so much respect for her for speaking up, this must be so hard.
+
+And I'm not suprised that ICE's victim just so happens to be queer. 
+
+
+
+
+=============
+  
+## Reddit comment o4fb0sv
+
+    entry 240
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r02ogr/renee_goods_wife_makes_first_public_appearance/o4fb0sv/  
+Comment ID:      o4fb0sv  
+Author:          defstar23  
+Bio:             Just another Redditor.  
+Account Created: 2013-03-10T12:37:41Z  
+Link Karma:      5  
+Comment Karma:   2075  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T12:50:11Z  
+Score:           125 points  
+Post Title:      Renee Good's Wife Makes First Public Appearance After Her Murder: "Renee was not the first person killed, and she was not the last. You know my wife’s name… but there are many others being harmed that you don’t know — their families are hurting just like mine, even if they don’t look like mine."  
+:::::: Reddit User Comment: ======  
+Heartbreaking, but also incredibly brave to use that moment to remind people the story is bigger than one name. That kind of perspective takes real strength.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> PLURIBUS is right on the Dollar Bill. It is We The People who stopped caring about Latin phrases from year 1776 period.
+>
+
+
+=============
+  
+## Reddit comment o4f0zv2
+
+    entry 241
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1r00vo9/taiwan_says_40_shift_of_chip_capacity_to_us_is/o4f0zv2/  
+Comment ID:      o4f0zv2  
+Author:          Difficult-Cricket541  
+Bio:               
+Account Created: 2025-10-06T15:43:02Z  
+Link Karma:      958  
+Comment Karma:   17745  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T11:33:33Z  
+Score:           541 points  
+Post Title:      Taiwan says 40% shift of chip capacity to US is 'impossible'  
+:::::: Reddit User Comment: ======  
+Trump wants the chips shifted to US so he has an excuse to abandon Taiwan when China likely invades in the next few years. It makes no sense for Taiwan to go along with this. I am all in favor of jobs in the US, but it makes no sense for Taiwan to do this. Everyone knows all Trump does is lie. Look at the lies he told to the Iranian people. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 4 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o4ewh8m
+
+    entry 242
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1r00vo9/taiwan_says_40_shift_of_chip_capacity_to_us_is/o4ewh8m/  
+Comment ID:      o4ewh8m  
+Author:          grahamsuth  
+Bio:             Graham Sutherland : Spent 35 years meditating two hours a day. Worked as an engineer. Retired from full time work at 35. Spear fishing, kayaking, surfing, travelling, paragliding. Creating an Eden for all life. Aged 70  
+Account Created: 2024-08-25T11:30:41Z  
+Link Karma:      437  
+Comment Karma:   2966  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-09T10:53:11Z  
+Score:           594 points  
+Post Title:      Taiwan says 40% shift of chip capacity to US is 'impossible'  
+:::::: Reddit User Comment: ======  
+They're not idiots. If too much chip manufacturing goes to the the US, the US will have no self interest in defending Taiwan. The greed and lack of care for others of US business is now US international policy.
+
+
+
+
+=============
+  
+## Reddit comment o4exo23
+
+    entry 243
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4exo23/  
+Comment ID:      o4exo23  
+Author:          SweaterSteve1966  
+Bio:             Steven  : I teach things  
+Account Created: 2025-02-01T12:34:09Z  
+Link Karma:      337  
+Comment Karma:   165139  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-09T11:04:02Z  
+Score:           787 points  
+Post Title:      When a "joke" reveals a sick cult  
+:::::: Reddit User Comment: ======  
+It’s never been about politics. It’s who they are as humans. They are garbage.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Read the Twitter image. Brain rot is Trumpism. Brain damage. Cambridge Analytica aftermath. The avoidance of Dr. Bandy X Lee's 27 writers on mental health since October 3, 2017 by Reddit commenting creators is a major symptom. People who want to shit-talk and shit-comment about MAGA and USA situation instead of rescue people, real people, in USA, from Saint Petersburg Internet Research Agency mind-rape
+>
+
+
+=============
+  
+## Reddit comment o4eykem
+
+    entry 244
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4eykem/  
+Comment ID:      o4eykem  
+Author:          Lorenzoak  
+Bio:             Lorenzoak : Akto  
+Account Created: 2026-01-13T18:03:53Z  
+Link Karma:      502  
+Comment Karma:   17724  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-09T11:12:11Z  
+Score:           368 points  
+Post Title:      When a "joke" reveals a sick cult  
+:::::: Reddit User Comment: ======  
+Imagine thinking the US Military exists to be your personal TV remote control because you're too lazy to just mute the halftime show
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 26 day Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o4ezaom
+
+    entry 245
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1r01axi/when_a_joke_reveals_a_sick_cult/o4ezaom/  
+Comment ID:      o4ezaom  
+Author:          G_Rex_3000  
+Bio:               
+Account Created: 2015-04-19T01:34:33Z  
+Link Karma:      5  
+Comment Karma:   15174  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-09T11:18:42Z  
+Score:           111 points  
+Post Title:      When a "joke" reveals a sick cult  
+:::::: Reddit User Comment: ======  
+at any given moment it's much more likely he's gonna be bombing his pants than anything else
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump fandom. Reddit media is where fandom of Trump gather for shit-leader.
+>
+
+
+=============
+  
+## Reddit comment o4fq3dx
+
+    entry 246
+
+Comment URL: https://old.reddit.com/r/Gamingcirclejerk/comments/1r05a40/in_bioshock_the_ultrarich_build_an_offshore/o4fq3dx/  
+Comment ID:      o4fq3dx  
+Author:          MuttTheDutchie  
+Bio:             Custom Merch, Low Volume Printing, Tumblers, Shirts, Stickers and More: https://www.painteddogprinting.com/  
+Account Created: 2023-08-14T15:49:20Z  
+Link Karma:      8737  
+Comment Karma:   190582  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T14:21:39Z  
+Score:           333 points  
+Post Title:      In BioShock, the ultra-rich build an offshore enclave where they can commit atrocities without consequence and systematically strip young girls of their most basic human rights. That’s fiction, because no one in their right mind would ever allow something like that to exist in the real world.  
+:::::: Reddit User Comment: ======  
+I'm glad I can still play Bioshock instead of having to play modern games that have politics shoved into everything. 
+
+
+
+
+=============
+  
+## Reddit comment o4gatjl
+
+    entry 247
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1r07pxb/hundreds_of_private_jets_departed_the_bay_area/o4gatjl/  
+Comment ID:      o4gatjl  
+Author:          pinniped90  
+Bio:               
+Account Created: 2024-03-07T08:15:15Z  
+Link Karma:      1539  
+Comment Karma:   195249  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T16:07:37Z  
+Score:           None  
+Post Title:      Hundreds of private jets departed the Bay Area immediately after the Super Bowl ended  
+:::::: Reddit User Comment: ======  
+Billionaires don't do Bay Area traffic.
+
+
+
+
+=============
+  
+## Reddit comment o4gfgfe
+
+    entry 248
+
+Comment URL: https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4gfgfe/  
+Comment ID:      o4gfgfe  
+Author:          OsuLost31to0  
+Bio:               
+Account Created: 2017-08-16T04:53:20Z  
+Link Karma:      29180  
+Comment Karma:   270054  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T16:29:42Z  
+Score:           496 points  
+Post Title:      [Mintzer] Giannis, Kalshi, and the Death of Trust in Sports  
+:::::: Reddit User Comment: ======  
+The ruling class can do whatever they want with no consequences.
+
+See: Files, Epstein
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Everything is manipulation. Fandoms to fantasy men arrangement.
+>
+
+
+=============
+  
+## Reddit comment o4giflg
+
+    entry 249
+
+Comment URL: https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4giflg/  
+Comment ID:      o4giflg  
+Author:          hirasmas  
+Bio:               
+Account Created: 2019-11-13T22:57:15Z  
+Link Karma:      121  
+Comment Karma:   284198  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T16:43:51Z  
+Score:           531 points  
+Post Title:      [Mintzer] Giannis, Kalshi, and the Death of Trust in Sports  
+:::::: Reddit User Comment: ======  
+Prediction markets are going to eventually be found to have absolutely massive fraud. They are virtually unregulated, they don't answer to typical state run gambling commissions in any way. They don't have to pretend to care about Responsible Gambling in any way.
+
+On a sportsbook, if people cheat, the sportsbook is desperate to catch them because when a player wins the house loses. On Kalshi, when a player wins, another player loses, the house is agnostic. So, without any real oversight, there is absolutely no reason for Kalshi to spend time, money, and effort on catching people that are cheating.
+
+I don't think most casual people fully understand how much worse for society prediction markets are than even legal sports betting, which, is also pretty terrible right now.
+
+
+
+
+=============
+  
+## Reddit comment o4gewo3
+
+    entry 250
+
+Comment URL: https://old.reddit.com/r/nba/comments/1r08lua/mintzer_giannis_kalshi_and_the_death_of_trust_in/o4gewo3/  
+Comment ID:      o4gewo3  
+Author:          Dazzling-Slide8288  
+Bio:               
+Account Created: 2020-11-24T14:34:15Z  
+Link Karma:      23680  
+Comment Karma:   147031  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T16:27:06Z  
+Score:           466 points  
+Post Title:      [Mintzer] Giannis, Kalshi, and the Death of Trust in Sports  
+:::::: Reddit User Comment: ======  
+I don’t think this is the death of trust in sports. That ship sailed a few years ago when the gambling scandals started. But a major star/face of the league getting into bed with a revolting “bet on anything” company *feels* like a tipping point. 
+
+Even the average person understands that these prediction markets are just scam machines.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> everyday people understand we have a health care crisis in USA. Some even understand other nations have solved such problems. But entertainment addiction rules this nation, people simply are not attracted to goodness.
+>
+
+
+=============
+  
+## Reddit comment o4gqirm
+
+    entry 251
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1r0740f/accusing_the_other_side_of_reciting_lines_while/o4gqirm/  
+Comment ID:      o4gqirm  
+Author:          Frondstherapydolls  
+Bio:               
+Account Created: 2019-02-22T05:04:15Z  
+Link Karma:      3375  
+Comment Karma:   80724  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T17:22:11Z  
+Score:           11 points  
+Post Title:      Accusing the other side of "reciting lines" while glancing down at your ChatGPT script is wild  
+:::::: Reddit User Comment: ======  
+Her teeth are simply incredibly crowded on the bottom. I paused it and noticed her central incisor is pushed way back behind her lateral incisor (tooth beside the front one) and her canine is where the lateral incisor would be. She’s just pissed at the world her parents insurance growing up didn’t cover braces. I say that with a lot of malice and shouldn’t be making fun of something like that, but she’s acting like trash so I will just say what’s on my mind I guess.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit is a fandom of hate-watching. Reddit community is a hate-motivated consumer society. https://en.wikipedia.org/wiki/Hate-watching
+>
+
+
+=============
+  
+## Reddit comment o4g4sor
+
+    entry 252
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1r0740f/accusing_the_other_side_of_reciting_lines_while/o4g4sor/  
+Comment ID:      o4g4sor  
+Author:          dyslexican32  
+Bio:               
+Account Created: 2018-08-07T17:30:46Z  
+Link Karma:      357  
+Comment Karma:   36820  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T15:38:48Z  
+Score:           163 points  
+Post Title:      Accusing the other side of "reciting lines" while glancing down at your ChatGPT script is wild  
+:::::: Reddit User Comment: ======  
+The far right really are unhinged and suffering from mental illness at this point. This girl has something seriously wrong with her outside of just reading her shitty script that she couldn't be bothered to memorize. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "mental illness"
+> 
+> What are the mechanics of billions of people all across the world getting this mental illness? Is it food issue, some mind-altering substance of medication they are all taking? This is a woman talking about "God" and "the left" in her video. Where did she learn to divide all people into "right" and "left", is that in The Bible somewhere, or did it come from a King in France and has nothing to do with USA politics, but people parrot it as if it is the ultimate mental mindset of how to measure the world.
+> 
+> Why does she believe in a Levant God and Santa? Do people indoctrinate their children? When does the "mental illness" begin?
+> 
+> Reddit community has no concern to ponder if anyone else had ever had a thought before today. "The far right really are unhinged and suffering from mental illness at this point." At what point did the Russian far-right in Moscow against Ukraine go too far? What point did the Taliban go too far in Pakistan?
+> 
+> On September 11, 2001 - did the far-right in Saudi Arabia go to a point to far? Did everyone notice? Exactly what mental health treatment and solutions were tried, or were only military weapon systems and armed airport security measures taken? Which mental health leader took on 9/11?
+> 
+> I think Reddit community has a massive **media cult** problem. The crisis is that people are so conditioned to write original commenting up n every serious problem that nobody actually gets on the same page of a topic for very long. If on the same page, ever! **"Cult of original unique comments"**, rephrasing similar observations in unique ways so that We The People never actually reach any kind of shared comprehension on serious matters.
+> 
+> I'm rephrasing the same fucking thing on this GitHub over and over and over and over to point out the absence of a FAQ, Wiki, nonfiction published book. Oh wait, there are nonfiction books already published! There are several. But the crisis seems to be that people want to engage commenting and touch screens and avoid paper printed books with any sense of rescue, urgency, need to change direction towards goodness.
+>
+
+
+=============
+  
+## Reddit comment o4gvbrv
+
+    entry 253
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r0agbf/a_day_after_trump_calls_one_of_her_teammates_a/o4gvbrv/  
+Comment ID:      o4gvbrv  
+Author:          AdequateRoarer  
+Bio:             I never know what to write here. I’m a random person in a random place writing random things. rOar.  
+Account Created: 2025-04-16T19:09:42Z  
+Link Karma:      6084  
+Comment Karma:   4236  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-09T17:45:11Z  
+Score:           316 points  
+Post Title:      A day after Trump calls one of her teammates a loser, US Olympian Chloe Kim, who has immigrant parents, speaks out: I’m really proud to represent the United States. The U.S. has given my family so much opportunity, but I also think we are allowed to voice our opinions on what’s going on  
+:::::: Reddit User Comment: ======  
+I’m guessing she’s scared to say more because she may knows people who are here illegally, (not to mention her parents are immigrants and nobody’s safe right now) and be afraid they’ll be targeted. It’s a hard decision to make to decide if speaking would do more harm than good and I don’t envy her.
+
+
+
+
+=============
+  
+## Reddit comment o4gfx4y
+
+    entry 254
+
+Comment URL: https://old.reddit.com/r/technology/comments/1r088je/ring_to_turn_on_all_camera_to_track_pets_privacy/o4gfx4y/  
+Comment ID:      o4gfx4y  
+Author:          GiganticCrow  
+Bio:               
+Account Created: 2025-01-10T22:22:34Z  
+Link Karma:      8987  
+Comment Karma:   118466  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-09T16:31:55Z  
+Score:           1855 points  
+Post Title:      Ring to turn on all camera to track pets. Privacy concerns  
+:::::: Reddit User Comment: ======  
+People are already hacking the deeply insecure flock cameras and the flock ceo calls the people *who call this out* "antifa terrorists".
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "crazy"
+> 
+> Language meaning manipulated for power concentration. Complete inversion of meanings. SEE_ALSO https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+>
+
+
+=============
+  
+## Reddit comment o4gbgv3
+
+    entry 255
+
+Comment URL: https://old.reddit.com/r/technology/comments/1r088je/ring_to_turn_on_all_camera_to_track_pets_privacy/o4gbgv3/  
+Comment ID:      o4gbgv3  
+Author:          IniNew  
+Bio:               
+Account Created: 2010-09-05T15:04:16Z  
+Link Karma:      2746  
+Comment Karma:   134384  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-09T16:10:42Z  
+Score:           7113 points  
+Post Title:      Ring to turn on all camera to track pets. Privacy concerns  
+:::::: Reddit User Comment: ======  
+This commercial was insane. Literally illustrated how to turn every neighbor into a surveillance node. My first thought was, "No one is going to fall for this." My second thought was, "People are going to fall for this, aren't they?"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit is pet image central. And catching any accident or rare exotic video is popular on Reddit. It is the oddities of the world.
+>
+
+
+=============
+  
+## Reddit comment o4gtruf
+
+    entry 256
+
+Comment URL: https://old.reddit.com/r/law/comments/1r09ug5/ghislaine_maxwells_lawyer_she_must_remain_silent/o4gtruf/  
+Comment ID:      o4gtruf  
+Author:          shadowfax12221  
+Bio:               
+Account Created: 2020-08-12T16:33:26Z  
+Link Karma:      157  
+Comment Karma:   47335  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-09T17:37:41Z  
+Score:           666 points  
+Post Title:      Ghislaine Maxwell's Lawyer: "she must remain silent because of appeal, but can clear trump of wrongdoing if he grants her clemency"  
+:::::: Reddit User Comment: ======  
+At this point I don't think it really matters what they do. They've gone to such extreme lengths to cover up Trump's connection with epstein that the circumstantial evidence already has him convicted in the court of public opinion. If Maxwell testifies that he participated in illicit sexual activity, people will say that she played Trump and the truth is finally out in the open. If she says Trump and Clinton did nothing wrong, democrats will tear her apart in her senate hearing and the public will believe Trump bought her silence.
+
+
+
+
+=============
+  
+## Reddit comment o4hqrcn
+
+    entry 257
+
+Comment URL: https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hqrcn/  
+Comment ID:      o4hqrcn  
+Author:          One_Alternative_6965  
+Bio:               
+Account Created: 2020-11-06T12:32:14Z  
+Link Karma:      6  
+Comment Karma:   24065  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T20:16:12Z  
+Score:           711 points  
+Post Title:      Irish man with valid US work permit held in ICE detention for five months  
+:::::: Reddit User Comment: ======  
+The US is an Unsafe place
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes. If you can't entertain people and charm them like Donald Trump entertains everyone, you are a non-person. If you aren't famous and celebrity like Donald Trump, you are considered a waste of space in life. The population prizes entertainment addictions so much you see people in public staring into meme devices even when other people are with them. People program so much billionaire content into their brains in USA year 2026 that has them favor self-harm to the Earth and all life on Earth. Gun worship to fix health care, Luigi praising, and other weapon system values are widespread. People in USA will block you, silence you, burn your books and papers if you communicate outside their Reddit and Bluesky expected patterns. Fox News influence, including second-hand influence, Newsmax influence, ... words no longer work to describe how dehumanizing and toxic popularity has become.
+>
+
+
+=============
+  
+## Reddit comment o4hpmzx
+
+    entry 258
+
+Comment URL: https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hpmzx/  
+Comment ID:      o4hpmzx  
+Author:          ArchTheOrc  
+Bio:               
+Account Created: 2023-08-15T02:43:16Z  
+Link Karma:      600  
+Comment Karma:   14688  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T20:10:28Z  
+Score:           1602 points  
+Post Title:      Irish man with valid US work permit held in ICE detention for five months  
+:::::: Reddit User Comment: ======  
+This is how they treat an irish man in Boston with all the right documentation. Imagine what they're doing to everyone else.
+
+The trials to hold these people accountable can't come soon enough.
+
+
+
+
+=============
+  
+## Reddit comment o4hq0uq
+
+    entry 259
+
+Comment URL: https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hq0uq/  
+Comment ID:      o4hq0uq  
+Author:          Bugatti_Royale  
+Bio:               
+Account Created: 2024-06-12T21:06:21Z  
+Link Karma:      19  
+Comment Karma:   5235  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T20:12:27Z  
+Score:           224 points  
+Post Title:      Irish man with valid US work permit held in ICE detention for five months  
+:::::: Reddit User Comment: ======  
+ok, if you want to deport then put him on a flight back to his home country. Why detain him for 5 months?!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Anti-FAQ anti-Wiki information society of Reddit prizes questions as "engagement" commenting above all else. Organizing important information on serious topics is consistently avoided. Dr. Bandy X Lee's compilation of 27 mental health people since October 3, 2017 is ignored on Bluesky and Reddit because it is not entertaining enough to meme about.
+>
+
+
+=============
+  
+## Reddit comment o4hq03e
+
+    entry 260
+
+Comment URL: https://old.reddit.com/r/news/comments/1r0etsz/irish_man_with_valid_us_work_permit_held_in_ice/o4hq03e/  
+Comment ID:      o4hq03e  
+Author:          itslikewoow  
+Bio:               
+Account Created: 2016-11-12T04:30:37Z  
+Link Karma:      13375  
+Comment Karma:   255698  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T20:12:21Z  
+Score:           240 points  
+Post Title:      Irish man with valid US work permit held in ICE detention for five months  
+:::::: Reddit User Comment: ======  
+Why are no Trump voters calling this out? I thought they were only against *illegal* immigration.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Asking questions on social media as a form of low-effort engagement commenting. Very popular. Why are people not recognizing that MAGA / Trump / Reddit is a cult of ICE content? And why isn't mental health professional Dr. Bandy X Lee's leadership of 27 professions constantly not repeated on Reddit comment section to rescue hearts and minds from self-harm? Why do people spend their free time and spare time on Reddit commenting over each ICE action in a reactionary way - instead of teaching and educating the general public ABOUT the mental health behaviors of hate?
+>
+
+
+=============
+  
+## Reddit comment o4ihdn7
+
+    entry 261
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ihdn7/  
+Comment ID:      o4ihdn7  
+Author:          brighterside0  
+Bio:               
+Account Created: 2022-08-14T19:13:26Z  
+Link Karma:      2939  
+Comment Karma:   45765  
+Comment Age:     17 minutes ago  
+Timestamp:       2026-02-09T22:28:56Z  
+Score:           48 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+"I don't really know where we are in this country..."
+
+That is extremely heartbreaking to hear from one of the strongest supporters of human rights and the us constitution.
+
+Ladies and gentlemen, something is coming and we're all refusing to look up.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People are pretending that the avoidance and hostility towards Dr. Bandy X Lee's publications all over the internet is normal. That calling individual people { insane, mentally unwell, crazy, sick, retarded } all the time on social media while avoiding recognizing it isn't just one person, Putin, harming Ukraine but an entire society. It isn't just one mental health sickness in organize hate groups. It isn't just a hand full of people avoiding nonfiction from Dr. Bandy X Lee's 27 writers... it's constant on Bluesky and Reddit. Go look for subscribers and hashtags on Bluesky...
+>
+
+
+=============
+  
+## Reddit comment o4if30i
+
+    entry 262
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4if30i/  
+Comment ID:      o4if30i  
+Author:          Jevus_himself  
+Bio:               
+Account Created: 2014-10-29T15:40:03Z  
+Link Karma:      320875  
+Comment Karma:   431467  
+Comment Age:     29 minutes ago  
+Timestamp:       2026-02-09T22:17:12Z  
+Score:           70 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+The amount of people around me in the US who believe without any doubt that the US is always the good guy in any fight is crazy, they remember WW2 like it’s still what the US if known for. 
+
+Brainwashed veterans saying they are fighting for my freedom while fighting for oil or territorial expansion all while expecting me to thank them for their service. Country is finished unless things start changing
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fiction Superman isn't a real man or person. The Bible verse "1 John 4:20" crisis in USA population is very real. The avoidance of nonfiction teaching for adults, reading nonfiction books and matching up other people's written ideas to real-world situations is observable. The addiction to low-effort commenting over and over on meme devices is observable and self-evident.
+>
+
+
+=============
+  
+## Reddit comment o4ih0ld
+
+    entry 263
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ih0ld/  
+Comment ID:      o4ih0ld  
+Author:          elcabroMcGinty  
+Bio:               
+Account Created: 2022-01-18T15:25:42Z  
+Link Karma:      1483  
+Comment Karma:   9198  
+Comment Age:     24 minutes ago  
+Timestamp:       2026-02-09T22:27:05Z  
+Score:           9 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+The Soviet Union defeated the nazis, unfortunately most US Americans learn history from Steven Spielberg.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> You can see where people learn when /r/All is adults full of quotes from Sponge Bob.
+>
+
+
+=============
+  
+## Reddit comment o4ijgsz
+
+    entry 264
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ijgsz/  
+Comment ID:      o4ijgsz  
+Author:          Popular_Pea_3953  
+Bio:               
+Account Created: 2024-04-07T17:15:35Z  
+Link Karma:      1083  
+Comment Karma:   1896  
+Comment Age:     12 minutes ago  
+Timestamp:       2026-02-09T22:39:42Z  
+Score:           -1 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+as a non american, seeing democrats long for a war criminal like Obama and acting as if he was the epitome of grace and peace literally shows me how the american left will literally go back to not caring the moment a democrat is elected president.
+
+They don't give an actual fuck about the underlying systems being willfully kept broken.
+
+And I can promise you right now, if there will be another democrat president, then he won't change most of the truly fucked up stuff that trump implemented.
+
+And the left will not criticize them for it as long as the really public things like ICE stop being supported.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit commenting addictions abound.
+>
+
+
+=============
+  
+## Reddit comment o4ii6uf
+
+    entry 265
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ii6uf/  
+Comment ID:      o4ii6uf  
+Author:          brighterside0  
+Bio:               
+Account Created: 2022-08-14T19:13:26Z  
+Link Karma:      2939  
+Comment Karma:   45765  
+Comment Age:     19 minutes ago  
+Timestamp:       2026-02-09T22:33:05Z  
+Score:           2 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+Except this elitist\-authoritarian ideology is spreading to places like Canada and Australia... It may have sparked in the US, but we are certainly not the only once democratic nation under threat.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People are incapable of identifying cult behaviors. Smartphones are in every city, regardless of nation. Tall buildings like Trump prizes make people bow and respect. An impressive looking automobile bling bling gets attention, etc. We have common mental values and we don't teach these things in our education systems, we let advertising and marketing manipulate our minds without any concern as to negative side-effects.
+>
+
+
+=============
+  
+## Reddit comment o4icd09
+
+    entry 266
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4icd09/  
+Comment ID:      o4icd09  
+Author:          sagittariuslegend  
+Bio:             smash main = luigi  
+Account Created: 2021-02-12T22:58:55Z  
+Link Karma:      2101  
+Comment Karma:   12788  
+Comment Age:     51 minutes ago  
+Timestamp:       2026-02-09T22:03:16Z  
+Score:           115 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+The sex trafficking rings purpose was to blackmail powerful people into blind support for Israel. She should look into that.
+
+
+
+
+=============
+  
+## Reddit comment o4ido02
+
+    entry 267
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1r0hxo8/crockett_the_us_is_falling_apart_partially_bc_hes/o4ido02/  
+Comment ID:      o4ido02  
+Author:          Iguessimonredditnow  
+Bio:               
+Account Created: 2015-04-07T12:26:33Z  
+Link Karma:      2128  
+Comment Karma:   132971  
+Comment Age:     45 minutes ago  
+Timestamp:       2026-02-09T22:09:58Z  
+Score:           30 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+No no there's less than a dozen trans athletes in college and that's the biggest problem facing all of America and possibly the world right now
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Low-effort commenting and Truth Social messages of mocking.... the technique of making mocking statements is what put Trump and Putin to the top in mindset programming.
+> 
+> “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+>
+
+
+=============
+  
+## Reddit comment o4huff4
+
+    entry 268
+
+Comment URL: https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4huff4/  
+Comment ID:      o4huff4  
+Author:          IllFix7074  
+Bio:               
+Account Created: 2026-01-22T20:27:34Z  
+Link Karma:      3  
+Comment Karma:   929  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T20:34:16Z  
+Score:           13 points  
+Post Title:      Our country is a joke !  
+:::::: Reddit User Comment: ======  
+Istg I'm still surprised why no revolution is starting there, what are you waiting for?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 18 day Reddit account. Top-voted popular.
+> 
+> Anti-intellectual audience programming for Reddit minds. Anything but turn to Dr. Bandy X Lee's nonfiction books as leadership.
+>
+
+
+=============
+  
+## Reddit comment o4hufkq
+
+    entry 269
+
+Comment URL: https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4hufkq/  
+Comment ID:      o4hufkq  
+Author:          Boring_Software1379  
+Bio:               
+Account Created: 2022-08-29T02:21:38Z  
+Link Karma:      2373  
+Comment Karma:   5650  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T20:34:17Z  
+Score:           3 points  
+Post Title:      Our country is a joke !  
+:::::: Reddit User Comment: ======  
+I tried to stop making sense of it a long time ago. Don't get me wrong though \- I try my best to stay informed and active about things, but a lot of this is beyond our control. I don't mean it in a defeatest way either, just more so accepting reality that there are those in society that are evil and do not bend to the justice system the rest of us do
+
+
+
+
+=============
+  
+## Reddit comment o4hw3rv
+
+    entry 270
+
+Comment URL: https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4hw3rv/  
+Comment ID:      o4hw3rv  
+Author:          Elzapatoverde  
+Bio:             🐑 Animal scientist and illustrator🖌️
+           
+-
+✨ Comms: https://vgen.co/Elzapatoverde ✨  
+Account Created: 2020-01-13T03:50:45Z  
+Link Karma:      4587  
+Comment Karma:   1561  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T20:42:29Z  
+Score:           3 points  
+Post Title:      Our country is a joke !  
+:::::: Reddit User Comment: ======  
+More like the hole fucking circus, get your shit together. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> An audience clowning around on Bluesky and Reddit, validating every other platform's hate messaging and clown messaging. Anti-intellectual audience programming for Reddit minds. Anything but turn to Dr. Bandy X Lee's nonfiction books as leadership.
+>
+
+
+=============
+  
+## Reddit comment o4i1sd2
+
+    entry 271
+
+Comment URL: https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4i1sd2/  
+Comment ID:      o4i1sd2  
+Author:          towerinthestreet  
+Bio:               
+Account Created: 2020-02-23T02:18:30Z  
+Link Karma:      626  
+Comment Karma:   59414  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T21:10:25Z  
+Score:           2 points  
+Post Title:      Our country is a joke !  
+:::::: Reddit User Comment: ======  
+If we wanted, we could go full yakety sax, and someone could kidnap our president now that there's apparently precedent. If nothing else, it will give the historians a laugh in a few centuries
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fandom of Trump / MAGA fandom. Amused and entertained and calling out in public for more comedy and amusements. Neil Postman was correct in his 1985 book. September 10, 2025: https://time.com/7313999/neil-postman-trump-prediction/
+>
+
+
+=============
+  
+## Reddit comment o4i2lkp
+
+    entry 272
+
+Comment URL: https://old.reddit.com/r/International/comments/1r0edzh/our_country_is_a_joke/o4i2lkp/  
+Comment ID:      o4i2lkp  
+Author:          nolestars  
+Bio:               
+Account Created: 2022-02-26T09:36:30Z  
+Link Karma:      1  
+Comment Karma:   493  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T21:14:24Z  
+Score:           2 points  
+Post Title:      Our country is a joke !  
+:::::: Reddit User Comment: ======  
+Maga Republicans are the joke
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And Reddit and Bluesky audiences are fandoms of the jokes.
+>
+
+
+=============
+  
+## Reddit comment o4ig0as
+
+    entry 273
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4ig0as/  
+Comment ID:      o4ig0as  
+Author:          nolestars  
+Bio:               
+Account Created: 2022-02-26T09:36:30Z  
+Link Karma:      1  
+Comment Karma:   493  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T22:21:55Z  
+Score:           42 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+Once dems take back over, put her in charge of the DOJ. Garland was useless bondi has kneepads, Jasmine will get shit done!!
+
+
+
+
+=============
+  
+## Reddit comment o4ijt1i
+
+    entry 274
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4ijt1i/  
+Comment ID:      o4ijt1i  
+Author:          ICPosse8  
+Bio:             Smokey : Yo  
+Account Created: 2015-02-08T06:32:28Z  
+Link Karma:      3837  
+Comment Karma:   281623  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T22:41:25Z  
+Score:           7 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+lol that’s exactly what they’ve been destroying for decades now. The culture wars ain’t for nothing.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> lol
+>
+
+
+=============
+  
+## Reddit comment o4imlvx
+
+    entry 275
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4imlvx/  
+Comment ID:      o4imlvx  
+Author:          CT1921  
+Bio:               
+Account Created: 2020-03-05T12:26:49Z  
+Link Karma:      1  
+Comment Karma:   -6  
+Comment Age:     45 minutes ago  
+Timestamp:       2026-02-09T22:55:55Z  
+Score:           0 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+Because in about two months we would not have a country.
+
+
+
+
+=============
+  
+## Reddit comment o4il7w3
+
+    entry 276
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4il7w3/  
+Comment ID:      o4il7w3  
+Author:          hugoriffic  
+Bio:             Hugoriffic  :   
+Account Created: 2016-05-18T05:45:36Z  
+Link Karma:      4528  
+Comment Karma:   84665  
+Comment Age:     54 minutes ago  
+Timestamp:       2026-02-09T22:48:42Z  
+Score:           2 points  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+This is such a stupid fucking distraction. If you are truly concerned with genocide then fucking call out Trump and all of MAGA who continue to pump our taxpayer dollars directly into Israel. Stop the faux outrage and stop the bullshit Whataboutism.
+
+
+
+
+=============
+  
+## Reddit comment o4isx8a
+
+    entry 277
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4isx8a/  
+Comment ID:      o4isx8a  
+Author:          Asleep_Attention_468  
+Bio:               
+Account Created: 2024-05-12T13:33:09Z  
+Link Karma:      1  
+Comment Karma:   6385  
+Comment Age:     13 minutes ago  
+Timestamp:       2026-02-09T23:29:51Z  
+Score:           1 point  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+This is whataboutism and its really misguided. We are allowed to disagree on something like Isreal foreign policy, but allowing pedophiles into the goverment is non\-negotiable and non\-partisan. Go whine about this somewhere else
+
+
+
+
+=============
+  
+## Reddit comment o4imhnw
+
+    entry 278
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r0i275/crockett_the_us_is_falling_apart_partially_bc_hes/o4imhnw/  
+Comment ID:      o4imhnw  
+Author:          CT1921  
+Bio:               
+Account Created: 2020-03-05T12:26:49Z  
+Link Karma:      1  
+Comment Karma:   -6  
+Comment Age:     48 minutes ago  
+Timestamp:       2026-02-09T22:55:17Z  
+Score:           1 point  
+Post Title:      CROCKETT: "The US is falling apart, partially bc he's allowing for killings in the street, but also bc we have a 34 count convicted felon being shielded from any type of accountability as it relates to a child sex trafficking ring. I don't understand why we're pretending any of this is normal."  
+:::::: Reddit User Comment: ======  
+She is so smart, well spoken, and someone who should be in charge of a single garbage can at most, yet only half full as to not test her brain too much. Don’t fall in line with thoughts of the worldly ignorant. Run from them.
+
+
+
+
+=============
+  
+## Reddit comment o4hzcys
+
+    entry 279
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4hzcys/  
+Comment ID:      o4hzcys  
+Author:          twigs814  
+Bio:               
+Account Created: 2021-06-27T04:29:36Z  
+Link Karma:      377  
+Comment Karma:   9107  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T20:58:26Z  
+Score:           4612 points  
+Post Title:      Olympic skier Gus Kenworthy shared some of the feedback he received on Instagram after he spoke out against ICE  
+:::::: Reddit User Comment: ======  
+I’m glad he left their usernames hopefully the internet does its thing
+
+
+
+
+=============
+  
+## Reddit comment o4hzow7
+
+    entry 280
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4hzow7/  
+Comment ID:      o4hzow7  
+Author:          metzrli  
+Bio:               
+Account Created: 2018-02-12T10:50:28Z  
+Link Karma:      1025  
+Comment Karma:   5330  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T21:00:03Z  
+Score:           1604 points  
+Post Title:      Olympic skier Gus Kenworthy shared some of the feedback he received on Instagram after he spoke out against ICE  
+:::::: Reddit User Comment: ======  
+Embracing Nazi language in 2026 certainly is a choice.
+
+
+
+
+=============
+  
+## Reddit comment o4i0jew
+
+    entry 281
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i0jew/  
+Comment ID:      o4i0jew  
+Author:          hollow_ling12  
+Bio:               
+Account Created: 2019-10-03T04:26:45Z  
+Link Karma:      6981  
+Comment Karma:   74400  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T21:04:16Z  
+Score:           1068 points  
+Post Title:      Olympic skier Gus Kenworthy shared some of the feedback he received on Instagram after he spoke out against ICE  
+:::::: Reddit User Comment: ======  
+“Heil ice” is fucking crazy they embrace being compared to n\*zi’s at this point
+
+
+
+
+=============
+  
+## Reddit comment o4i22af
+
+    entry 282
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i22af/  
+Comment ID:      o4i22af  
+Author:          No_Pass2409  
+Bio:               
+Account Created: 2025-04-10T22:10:40Z  
+Link Karma:      239  
+Comment Karma:   1563  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T21:11:46Z  
+Score:           576 points  
+Post Title:      Olympic skier Gus Kenworthy shared some of the feedback he received on Instagram after he spoke out against ICE  
+:::::: Reddit User Comment: ======  
+You know their hearts dropped to their asses upon seeing this. They 100% ran to their settings to quickly private it while crying and throwing up about being a victim. 😭🙏
+
+
+
+
+=============
+  
+## Reddit comment o4i1k3a
+
+    entry 283
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i1k3a/  
+Comment ID:      o4i1k3a  
+Author:          AdTerrible8256  
+Bio:               
+Account Created: 2021-11-04T03:17:48Z  
+Link Karma:      2404  
+Comment Karma:   4424  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T21:09:17Z  
+Score:           146 points  
+Post Title:      Olympic skier Gus Kenworthy shared some of the feedback he received on Instagram after he spoke out against ICE  
+:::::: Reddit User Comment: ======  
+I bet they all call themselves Christians.
+
+
+
+
+=============
+  
+## Reddit comment o4hzaiq
+
+    entry 284
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4hzaiq/  
+Comment ID:      o4hzaiq  
+Author:          Cresta1994  
+Bio:               
+Account Created: 2021-10-30T01:46:32Z  
+Link Karma:      228  
+Comment Karma:   155673  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T20:58:06Z  
+Score:           31 points  
+Post Title:      Olympic skier Gus Kenworthy shared some of the feedback he received on Instagram after he spoke out against ICE  
+:::::: Reddit User Comment: ======  
+I'll bet every one of these illiterates whines about people not speaking English in the US.
+
+
+
+
+=============
+  
+## Reddit comment o4i4zq5
+
+    entry 285
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i4zq5/  
+Comment ID:      o4i4zq5  
+Author:          Apprehensive-Dog6997  
+Bio:               
+Account Created: 2024-03-05T03:43:22Z  
+Link Karma:      132  
+Comment Karma:   38050  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T21:26:12Z  
+Score:           10 points  
+Post Title:      Olympic skier Gus Kenworthy shared some of the feedback he received on Instagram after he spoke out against ICE  
+:::::: Reddit User Comment: ======  
+The spelling and grammar errors alone tell you a lot about the people who support this bullshit.
+
+
+
+
+=============
+  
+## Reddit comment o4i606z
+
+    entry 286
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r0fwl8/olympic_skier_gus_kenworthy_shared_some_of_the/o4i606z/  
+Comment ID:      o4i606z  
+Author:          sadclown21  
+Bio:               
+Account Created: 2013-07-25T04:36:41Z  
+Link Karma:      256  
+Comment Karma:   40478  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T21:31:15Z  
+Score:           11 points  
+Post Title:      Olympic skier Gus Kenworthy shared some of the feedback he received on Instagram after he spoke out against ICE  
+:::::: Reddit User Comment: ======  
+It’s so funny how the right complained every second of Biden presidency and said they were using their 1st amendment but now you can’t say anything bad about trump lol
+
+
+
+
+=============
+  
+## Reddit comment o4hyx79
+
+    entry 287
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1r0g6x2/single_issue_voting_crypto_bros_vote_en_masse_for/o4hyx79/  
+Comment ID:      o4hyx79  
+Author:          MrRoboto12345  
+Bio:               
+Account Created: 2015-01-07T00:06:05Z  
+Link Karma:      535120  
+Comment Karma:   185806  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-09T20:56:17Z  
+Score:           303 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Typical, they were wrong. They will never admit it, nor acknowledge Dems warned them. 
+
+They will ask into the aether on FB or Twitter, "What's happening? Why is he doing this?"
+
+The respondees within the sphere will say, "Give it time; he knows what he's doing. It'll be higher than ever in a few months."
+
+To quote James LaBrie of Dream Theater \- "*Blind faith we have in you.*"
+
+
+
+
+=============
+  
+## Reddit comment o4icksj
+
+    entry 288
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1r0i1pa/hook_line_sinker_isaiah_martin_exposes_dennis/o4icksj/  
+Comment ID:      o4icksj  
+Author:          New_Alternative8711  
+Bio:               
+Account Created: 2025-09-07T19:53:06Z  
+Link Karma:      5363  
+Comment Karma:   25514  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T22:04:22Z  
+Score:           154 points  
+Post Title:      Hook, line, sinker: Isaiah Martin exposes Dennis Feitosa’s hypocrisy on Ilhan Omar’s wealth & patriotism.  
+:::::: Reddit User Comment: ======  
+"False equivalence" 
+
+Translation \- Donald Trump is a white male republican while Ilhan Omar is a democrat woman of colour.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month account. Top-upvoted popular.
+>
+
+
+=============
+  
+## Reddit comment o4iehap
+
+    entry 289
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1r0i1pa/hook_line_sinker_isaiah_martin_exposes_dennis/o4iehap/  
+Comment ID:      o4iehap  
+Author:          Emergency_Brick3715  
+Bio:               
+Account Created: 2021-02-08T02:19:41Z  
+Link Karma:      7020  
+Comment Karma:   156638  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T22:14:07Z  
+Score:           89 points  
+Post Title:      Hook, line, sinker: Isaiah Martin exposes Dennis Feitosa’s hypocrisy on Ilhan Omar’s wealth & patriotism.  
+:::::: Reddit User Comment: ======  
+Arguing with Trump supporters on any topic is useless. Any topic they raise can be countered with Trump hypocrisy but they will just pivot and yell.
+
+
+
+
+=============
+  
+## Reddit comment o4hykyb
+
+    entry 290
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hykyb/  
+Comment ID:      o4hykyb  
+Author:          Raah1911  
+Bio:               
+Account Created: 2012-09-08T16:18:38Z  
+Link Karma:      684  
+Comment Karma:   30303  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-09T20:54:39Z  
+Score:           967 points  
+Post Title:      Enten: Trump support ‘absolutely collapsing’ with key voting group  
+:::::: Reddit User Comment: ======  
+crashing the economy, gestapo on the streets, unapologetic abusing childen and he still only lost a few points. amazing
+
+
+
+
+=============
+  
+## Reddit comment o4hxaef
+
+    entry 291
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hxaef/  
+Comment ID:      o4hxaef  
+Author:          ItsCowboyHeyHey  
+Bio:               
+Account Created: 2021-12-31T08:09:00Z  
+Link Karma:      3411  
+Comment Karma:   246543  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-09T20:48:19Z  
+Score:           545 points  
+Post Title:      Enten: Trump support ‘absolutely collapsing’ with key voting group  
+:::::: Reddit User Comment: ======  
+What’s the key voting group, “assholes?”
+
+
+
+
+=============
+  
+## Reddit comment o4hv2yk
+
+    entry 292
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hv2yk/  
+Comment ID:      o4hv2yk  
+Author:          Studlybob  
+Bio:               
+Account Created: 2012-04-11T01:13:45Z  
+Link Karma:      57  
+Comment Karma:   10398  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-09T20:37:27Z  
+Score:           3841 points  
+Post Title:      Enten: Trump support ‘absolutely collapsing’ with key voting group  
+:::::: Reddit User Comment: ======  
+I heard all this kind of stuff before the last presidential election. Page after page of articles, video after video, talking head after talking head...and Trump crushed and won. I'd really like to believe it but I can only be tricked so many times before I stop listening. 
+
+
+
+
+=============
+  
+## Reddit comment o4i0cgq
+
+    entry 293
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4i0cgq/  
+Comment ID:      o4i0cgq  
+Author:          Charming-Report1669  
+Bio:               
+Account Created: 2025-05-26T11:25:03Z  
+Link Karma:      4004  
+Comment Karma:   51691  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-09T21:03:18Z  
+Score:           115 points  
+Post Title:      Enten: Trump support ‘absolutely collapsing’ with key voting group  
+:::::: Reddit User Comment: ======  
+It's worth pointing out that "non\-college educated voters" can also totally include people in the trades, farmers and people like that. This is good news, but let's be honest here \- they'd probably all still vote Republican tomorrow if given the chance.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 8 month Reddit account
+>
+
+
+=============
+  
+## Reddit comment o4hxb43
+
+    entry 294
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4hxb43/  
+Comment ID:      o4hxb43  
+Author:          EmilioMolesteves  
+Bio:               
+Account Created: 2015-09-14T10:48:32Z  
+Link Karma:      996  
+Comment Karma:   98191  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-09T20:48:25Z  
+Score:           135 points  
+Post Title:      Enten: Trump support ‘absolutely collapsing’ with key voting group  
+:::::: Reddit User Comment: ======  
+Is it because all of the banter about how he fucks kids and throws babies into Lake Michigan?
+
+
+
+
+=============
+  
+## Reddit comment o4i3ru9
+
+    entry 295
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r0fikm/enten_trump_support_absolutely_collapsing_with/o4i3ru9/  
+Comment ID:      o4i3ru9  
+Author:          digitalis303  
+Bio:               
+Account Created: 2013-05-08T00:07:52Z  
+Link Karma:      3835  
+Comment Karma:   43141  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-09T21:20:10Z  
+Score:           41 points  
+Post Title:      Enten: Trump support ‘absolutely collapsing’ with key voting group  
+:::::: Reddit User Comment: ======  
+Polls don't matter if the vote itself is compromised. Every indicator is screaming that the GOP is going to MASSIVELY fuck with the election this year. 
+
+\-Attempts to "federalize" elections (but only in 15 "corrupt" states)
+
+\-ICE scaring people from voting with specific threats by Steve Bannon to have ICE agents surround every voting place and requirements to have a passport or birth certificate to vote. 
+
+\-Demands of multiple states to turn over state voter records...Presumably to disenfranchise voters not on the Trump train. 
+
+\-Placement of GOP bootlickers to monitor elections within state legislatures.
+
+I know (hope) not all of these things will come to pass, but if even a few of them get partially implemented, it will absolutely destroy the election process. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Votes don't matter when billionaires can manipulate population into mob mentality every hour of every day on media systems and trash all goodness in society. There are no winners, billionaires don't even win, but the media system machines are extremely good at spreading viral anti-goodness ideas.
+>
+
+
+=============
+  
+## Reddit comment o4j3kdr
+
+    entry 296
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1r0l9w3/republican_and_democrat_congressmen_exit_doj/o4j3kdr/  
+Comment ID:      o4j3kdr  
+Author:          BanjoSpaceMan  
+Bio:               
+Account Created: 2014-12-13T22:55:41Z  
+Link Karma:      18213  
+Comment Karma:   258720  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-10T00:29:17Z  
+Score:           612 points  
+Post Title:      Republican and Democrat Congressmen exit DOJ after reviewing unredacted Epstein files — confirm at least 6 men, including a high-ranking foreign government official, have been deliberately redacted with no explanation  
+:::::: Reddit User Comment: ======  
+Oh boy are they gonna switch the goal posts to foreign leaders and ignore their current one?
+
+
+
+
+=============
+  
+## Reddit comment o4kmow3
+
+    entry 297
+
+Comment URL: https://old.reddit.com/r/explainitpeter/comments/1r0rcuf/please_explain_it_peter_why_is_nancy_regan_being/o4kmow3/  
+Comment ID:      o4kmow3  
+Author:          HappyHuman924  
+Bio:             Clara : on a quest to spread love :) message me on my free OF🩵🩵  
+Account Created: 2015-10-02T23:45:17Z  
+Link Karma:      1514  
+Comment Karma:   61716  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-10T06:27:53Z  
+Score:           -2 points  
+Post Title:      Please explain it Peter. Why is Nancy Regan being used as a verb?  
+:::::: Reddit User Comment: ======  
+Which always struck me as weird, because we frequently hack on Republicans for being sexually judgemental, slut\-shaming and so on, but then we act like it's a devastating burn to say that Nancy was good at giving head? Maybe I'm missing something but it feels inconsistent.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Neil Postman in NYC around university students I'm sure heard this shit. And part of why second term Ronald Reagan audience behaviors was inspiration for his 1985 book. The amusement people get about Trump sex life, politician sex life. The voting attraction people have to old white men.
+>
+
+
+=============
+  
+## Reddit comment o4lnqda
+
+    entry 298
+
+Comment URL: https://old.reddit.com/r/Music/comments/1r0w9j2/kid_rock_trolled_as_he_exposes_himself_buying_his/o4lnqda/  
+Comment ID:      o4lnqda  
+Author:          Shaggyfries  
+Bio:               
+Account Created: 2014-09-30T11:47:41Z  
+Link Karma:      888  
+Comment Karma:   36488  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-10T12:05:55Z  
+Score:           166 points  
+Post Title:      Kid Rock trolled as he exposes himself ‘buying his own songs’ in awkward mishap  
+:::::: Reddit User Comment: ======  
+TPUSA spokesman Andrew Kolvet said the event was meant to celebrate conservative ideals. He told reporters the show was an opportunity to highlight “faith, family, and freedom,” adding that the lineup was curated to appeal to audiences looking for an alternative to mainstream Super Bowl entertainment.
+
+Remind me again how kid rock embodies faith and family. It’s all such a huge farce on the right to appear a certain way and project morals that most of them don’t live by.
+
+
+
+
+=============
+  
+## Reddit comment o4ltmqu
+
+    entry 299
+
+Comment URL: https://old.reddit.com/r/Music/comments/1r0w9j2/kid_rock_trolled_as_he_exposes_himself_buying_his/o4ltmqu/  
+Comment ID:      o4ltmqu  
+Author:          No_Beginning_6834  
+Bio:               
+Account Created: 2021-07-07T22:39:23Z  
+Link Karma:      1686  
+Comment Karma:   31114  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-10T12:47:13Z  
+Score:           20 points  
+Post Title:      Kid Rock trolled as he exposes himself ‘buying his own songs’ in awkward mishap  
+:::::: Reddit User Comment: ======  
+Republicans hate cops and gov agents more then democrats by a mile. It's always just been them being racists, who talk shit about compliance when it's libs or minorities and what not, but then lose their fucking minds if a mask mandate comes out to prevent the spread of super viruses.
+
+
