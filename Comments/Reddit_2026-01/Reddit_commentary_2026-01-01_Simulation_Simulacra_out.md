@@ -3792,3 +3792,494 @@ Okay bezo 🤡🤡🤡🤡
 > 
 > * Howdy Doody is an American children's television program (with circus and Western frontier themes) that was created and produced by Victor F. Campbell and E. Roger Muir. It was broadcast on the NBC television network in the United States from December 27, 1947, until September 24, 1960." https://en.wikipedia.org/wiki/Howdy_Doody
 >
+
+
+=============
+  
+## Reddit comment o4e6c54
+
+    entry 125
+
+Comment URL: https://old.reddit.com/r/europe/comments/1qzwpy6/jd_vance_ridiculed_for_40car_motorcade_taking_him/o4e6c54/  
+Comment ID:      o4e6c54  
+Author:          BuzzBuzzington3  
+Bio:               
+Account Created: 2019-01-24T16:47:27Z  
+Link Karma:      603  
+Comment Karma:   7483  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-09T06:41:15Z  
+Score:           2282 points  
+Post Title:      JD Vance ridiculed for 40-car motorcade taking him down tiny Italian street  
+:::::: Reddit User Comment: ======  
+You can smell the fear from here
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top-upvoted comment. Twitter-length short-message mindset. Eating right out of the hands of the Kremlin and White House. This is a Reddit community eating the Surkovian onions. Eating the Onion. Incredibly gullible Reddit audience that will not turn to Dr. Bandy X. Lee or Peter Pomerantsev teaching and education. SEE: https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md
+> 
+> Every hour of every day, Reddit is sane-washing JD Vance, hundreds of millions of MAGA cult members, Putin, Trump, Elon Musk. Over and over, Reddit falls for the same **antics politics** and entirely misses the point of why **over-dramatic antics** are constantly appearing on the front page of /r/All by the White House. 
+> 
+> Reddit users have been manipulated and targeted by the Internet Research Agency.. https://www.BBC.com/news/technology-43301643 Useful Idiots is the term that Russia uses https://en.wikipedia.org/wiki/Useful_idiot (not my insult, I strive pretty hard to write things like "avoids nonfiction learning" and "unable to focus on using Google Search and finding Peter Pomerantsev's information" ... if you want a better-quality writing than my shit English. Calling people banal "idiot" is even something Marshall McLuhan addressed https://youtu.be/2JIj0Bqbdhk?t=156 in one of his filmed interviews. Mocking "idiot"... is a thought-terminating cliché.).
+> 
+> .
+> 
+> 1. Putin, MAGA, White House, Musk does some bold antics action
+> 2. Reddit audience posts image, quote, or mocking of the antics
+> 3. Reddit community sane-washes the situation by prizing it as entertainment and amusement
+> 
+> 4. Reddit members crack-jokes to sanewash the USA society in total. That this is just "Internet culture" of how people have fun. Jokes, falsehoods, fictions, make-up scenarios, make-up quotes, mirroring Trump's writing style, talking about skin color (brown, black, orange). Make fan-fiction about the situation.
+> 
+> 5. ALWAYS avoided: Peter Pomerantsev's writing, videos, etc. Questioning the pattern witnessed over and over. Pondering and questioning: **if maybe the crowds that gather every single day to mock and insult Trump aren't a form of intentional population control**. Imprisoned fandom...compulsive behavior. An audience that has been brainwashed into always joking and always mocking and always hating MAGA and Trump. High speed information reactionary pong mind game.
+>   
+> 6. ALWAYS avoiding: reflecting on what Donald Trump actually is good at. Instead of listing all of Trump's failures: bankruptcy list, divorce and failed marriages, TACO trade deals, failed Trump university / steak seller / on and on. **FACE THE ONE THING Trump is known for grifting, tricking, actor, acting, acting like an actor. An actor who is faking being an actor, a grift of acting itself. Entertainer, Reality TV**. Like Trump is playing in the film "Jackass" as a character for an audience. Trump's **ONE GOOD SKILL is getting on camera every 90 minutes of every day** and rage-bating Reddit!
+> 
+> .
+> 
+> Repeating number 5: ... pondering... Are we living inside a Reddit screen game of grinding https://en.Wikipedia.org/wiki/Grinding_(video_games) away... sane-washing jokes and behaving not as political actors, but an audience to a Reality TV theater and circus performances? Does Trump behave like a fiction character, President Tony Clifton of SNL NYC? Are we gullible and falling for the acting of a Tony Clifton actor? Are we "eating the onion" just like Fox News audience does in red states / rural population and not recognizing that **Fox News is a fiction entertainment show** like SNL Weekend Update?
+> 
+> * “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. SEE_ALSO: https://www.youtube.com/watch?v=ETUGwC9jXCM
+> 
+> .
+> 
+> THE SIMULATION: **"You can smell the fear from here"** (this Reddit comment being linked)
+> 
+> THE REALITY: "Those media addicts will do anything to put on a show, and American MAGA eats it up. 40 cars is over the top, antics to get on the front page of Reddit, and look, it is on the top front page of /r/All"
+> 
+> THE REALITY: The **only "fear" they** have is that their acts and antics and investments in 40 motorcade cars doesn't have a film audience to the blockbuster show. That it doesn't dominate the headlines like a new Taylor Swift song release. That the tickets and #1 rating on Reddit, that your MAGA absurd comedy and surreal humor show is a flop.
+> 
+> IF YOU ARE MAKING ENTERTAINMENT POLITICS: [Borat film](https://en.wikipedia.org/wiki/Borat) or Jackass film, taking ICE and massive motorcades to Italy is right up your scripted ally of antics entertainment.
+> 
+> .
+> 
+> There is no self-awareness in the Reddit audience. The Reddit media cult is reading The Onion and falling hook, line and sinker that it is "fear" and not in fact **political theater, entertainment politics**, Surkovian.
+> 
+> Social post { https://MidWest.Social/post/43165104/22622845 }
+>
+
+
+=============
+  
+## Reddit comment o4d0vt3
+
+    entry 126
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1qzrlff/it_doesnt_get_better_than_this/o4d0vt3/  
+Comment ID:      o4d0vt3  
+Author:          MamaJuana1  
+Bio:               
+Account Created: 2020-04-08T16:54:01Z  
+Link Karma:      311  
+Comment Karma:   2418  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-09T02:10:19Z  
+Score:           1855 points  
+Post Title:      It doesn’t get better than this!  
+:::::: Reddit User Comment: ======  
+What a giant piece of shit human.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Front page /r/All Reddit posting Title: "It does not get better than this"   
+> **Reddit wins, Murder by Words, The Resistance Wins!!!** mind-fucking propaganda on Reddit.  
+> 
+> Which means, **life itself doesn't get better than this**. Super Bowl sports-game simulation media. A Reddit screen game. A video screen game of insulting back and forth with MAGA / Trump / Twitter screen game over and over on Apple iPhone / Apple iPad / Samsung Android devices. A simulation of a resistance that always avoids ENDING the simulation itself. Twitter-think, twitter screen shot, the best thing ever seen on a screen in all their lifetime. This isn't governing and government, this is machine love.
+> 
+> Reddit is video game addicts who have sold out to Trump / ICE / Musk Twitter as a source of entertainment. People who prize on-screen entertainment and mocking above health care and mental health care. **People on Reddit have sold-out Dr. Bandy X Lee's** professional education and leadership in favor of sanewashing ICE / Laura Loomer and other MAGA actors as a source of "good as it ever can get" comedy material. Spare time and free time on Reddit is devoted to celebration of MAGA ignorance.
+> 
+> * "these are the phenomenon that Baudrillard examines with the most care. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how children used to learn morality from their parents and now I think that .. Super Mario Brothers. They spend much more time with Super Mario Brothers and are **much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers**. I asked one of my children “Why are you yelling at a machine?” when he began to bang his Nintendo, and he looked at me as though I were a being from another world. And because of that there is a postmodern trajectory. I am from another world. I am still, as it were, caught in the modern. He’s not. Why not be emotional with a machine? **His peers are machine-like**, we have already discussed that. I mean in fact **what he sees on the Nintendo screen is his thrill of the day.** That’s the most active he’s seen **any simulated image that day**. Now simulation in this society didn’t just come from nowhere. This society of simulations and of spectacles. Baudrillard actually builds his work on a foundation again that comes out of the Marxist tradition." - Texan Rick Roderick, Duke University https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+> 
+> Social post { https://MidWest.Social/post/43165104/22623593 }
+>
+
+
+=============
+  
+## Reddit comment o4d4m4m
+
+    entry 127
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1qzrix5/bad_bunnys_super_bowl_halftime_show_performance/o4d4m4m/  
+Comment ID:      o4d4m4m  
+Author:          Flexbottom  
+Bio:               
+Account Created: 2024-03-09T02:08:06Z  
+Link Karma:      440  
+Comment Karma:   76227  
+Comment Age:     11 hours ago  
+Timestamp:       2026-02-09T02:29:15Z  
+Score:           124 points  
+Post Title:      Bad Bunny’s Super Bowl halftime show performance is one of the biggest FUs to Trump and MAGA that I have ever seen!  
+:::::: Reddit User Comment: ======  
+Love, family and community. Things MAGA hate.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This headline is pure propaganda. Billionaire Jody Allen has Reddit audience eating out of her hand. The sportswashing of Trump and the music-washing of Trump and MAGA. "Bad Bunny’s Super Bowl halftime show performance is one of the biggest FUs to Trump and MAGA that I have ever seen!" fandom of hate-watching Trump and MAGA. https://en.wikipedia.org/wiki/Hate-watching
+> 
+> Trump is an entertainer. This real-world Russian winning hearts and minds... isn't a TV show. This is real world health care and real world people having their lives wrecked by Jody Allen's investments and holdings and Trump's investments and holdings. Bad Bunny is part of the system, hiring humans to be trees, because we paved over all the real trees! This is all rectangle simulation. Square logic, blockhead thinking. Paul Allen's Microsoft legacy of sports fandoms beings programmed with **music museum** and song arrangement patterns for Wired World licensed copyrighted cults. https://archive.SeattleTimes.com/archive/19970611/2544107/the-enigmatic-paul-allen----everyone-knows-what-he-does-but-few-really-know-who-he-is "**Carlos Santana** and Allen himself" 
+> 
+> OPERA_A https://www.youtube.com/watch?v=tvtJPs8IDgU Giving it all away, Reddit. Why do you want to give it all away to your simulation .... billionaire content? This isn't a fuck-you to Trump, it is not resisting, it is praising. Surkov won since March 2013, NATO lost. "Tree museum", is what the Super Bowl Half Time show had, people dressed in plastics. Simulation of trees. Simulacra dancing. 40,319,373 views June 16, 2009
+> 
+> OPERA_A https://www.youtube.com/watch?v=2CZ8ossU4pc Images on a screen, fake trees, simulation. Rectangle stage. Let's bring in the Russian resistance. 5,211,627 views March 28, 2012 - price to pay and a consequence. Tree museum, men given every luxury and medical army to service their political team drama. Sports-washing our wealth-lords asset-lords copyright-lords intellectual property-lords, Jody Allen Patton.
+> 
+> Yes, Alphabet Google YouTube and GitHub Microsoft are in the system. Bluesky is in the system. I can not change these systems on my own. My writing is public domain. Better to be a naked screaming person in agony than normalize this bullshit and living in denial of the billionaire Rupert Murdoch successes. Staring into the mind-fuck of Reddit is horror. Reddit is mind-wrecking. Reddit is the horror show that the gifted and skilled technical people blow their minds out with. Surkov won using Reddit voluntary fans / fandoms of hate-watching. Surkov students won by tuning minds to favor mocking and hate above all else. Billionaires are feeding shit into Reddit audience minds, right here, right now, and it keeps accelerating.
+> 
+> What billionaires do is not give families something to celebrate, they rip apart relationships. They turn it into a power and wealth concentration system. A theme park for worship of the power and copyright and content creation cartels. Mecca, Quran, Mohammad science fiction storytelling of year 635. That is the "Old World Order" that the Free Masons founding fathers were educating us about with a pyramid on the Nile river symbolism. https://en.wikipedia.org/wiki/Novus_ordo_seclorum We The People have let Russia, Surkov students, push us (we, our minds) so far into monomyth mythology patterns that We The People, We The Fandoms, can no longer see the media simulations we are living under. Surkov won, USA defeated, hearts and minds lost... since March of year 2013. SEE_ALSO  https://www.theAtlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+> 
+> Social post { https://midwest.social/post/43208738/22624712 }
+>
+
+
+=============
+  
+## Reddit comment o4e505x
+
+    entry 128
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1qzuy3f/oh_and_the_patriots_are_owned_by_a_trumper/o4e505x/  
+Comment ID:      o4e505x  
+Author:          gargamel314  
+Bio:               
+Account Created: 2014-12-27T02:35:22Z  
+Link Karma:      8856  
+Comment Karma:   30690  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-09T06:29:36Z  
+Score:           173 points  
+Post Title:      Oh, and the Patriots are owned by a Trumper! Tonight was a good night! 💙  
+:::::: Reddit User Comment: ======  
+The Patriots beat the Seahawks in 2015\. Our nation never recovered from that. The last 10 years since have been a dystopian hellscape ever since. 
+
+Hopefully, the Seahawks have saved us all by resetting the timeline and winning the Superbowl. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Billionaire Paul Allen, Seahawks owner, who I worked for as a media expert when the team was purchased... has led the pro-ignorant sports-think population into these mindsets and to completely avoid learning nonfiction from Dr. Bandy X Lee, Neil Postman, etc that all addresses the rise of Trump. https://www.TheGuardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+>
+
+
+=============
+  
+## Reddit comment o4is554
+
+    entry 129
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1r0k4zo/musk_offers_to_pay_legal_fees_for_any_epstein/o4is554/  
+Comment ID:      o4is554  
+Author:          Balzmcgurkin  
+Bio:               
+Account Created: 2012-02-08T19:55:36Z  
+Link Karma:      525  
+Comment Karma:   28266  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T23:25:35Z  
+Score:           2258 points  
+Post Title:      Musk offers to pay legal fees for any Epstein victim sued for speaking ‘the truth’  
+:::::: Reddit User Comment: ======  
+It’s a thinly veiled bribe to keep his name out of it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Musk is controlled opposition. A punching bag for Bluesky that-hates-Twitter and Reddit. This is a simulation of resisting Trump.
+>
+
+
+=============
+  
+## Reddit comment o4jlf0u
+
+    entry 130
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1r0nq5q/why_deport_an_american_citizen/o4jlf0u/  
+Comment ID:      o4jlf0u  
+Author:          GreatUnspoken  
+Bio:               
+Account Created: 2014-06-01T08:48:21Z  
+Link Karma:      4056  
+Comment Karma:   53238  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-10T02:13:04Z  
+Score:           81 points  
+Post Title:      Why deport an American citizen?  
+:::::: Reddit User Comment: ======  
+These people know he's a US citizen. This is a performative dog whistle, a statement of their values for all to see. That value being "I am a white supremacist and long for a white American ethnostate."
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It appears to be a Twitter media message, screenshot over to Reddit. The lust for high-speed messaging to say extreme tiny-short messages of "Deport Bad bunny immediately" at extremely high speeds... distorts the mind into dehumanization. People who believe they are playing a video game against other humans and sine the super Bowl is a sport-commenting media event, that anything i just part of a simulation sports game.
+> 
+> People have lost all thinking and mindsets capable of recognizing the media addiction aspects of high-speed shit-posting and shit-commenting upon their life. The whole nation has gone to shit since June 6, of year 2011. 
+> 
+> * https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 "It is almost impossible to remember a time before Donald Trump and @realDonaldTrump were one and the same. Like a knight and his sword, a cowboy and his horse, **it now feels as if the tool has become an appendage of the man himself**, offering a direct line of sight into his distorted and deeply troubling inner world." - "Trump's first real tweet was on July 6, 2011"
+> 
+> * “With the arrival of electric technology,” writes Marshall McLuhan, “man extended, or set outside himself, a live model of the central nervous system itself. To the degree that this is so, it is a development that suggests a desperate and suicidal autoamputation, as if the central nervous system could no longer depend on the physical organs to be protective buffers against the slings and arrows of outrageous mechanism.” - https://mcluhangalaxy.wordpress.com/2019/06/13/narcissus-narcosis-autoamputation/
+> 
+> For Reddit, people think they are resisting "conservatives", they aren't resisting what has been exploited by Russia with far deeper Surkov insight into human behavior with electric media systems. Surkov won since March 2013. People are not only *not resisting*, We The People USA are feeding the fires of burning all variety of goodness in USA for the sake of shit-commenting and shit-posting as a cult system. A religion of shit prizing. A spiritual path of shit programming clergy. Speedy simple-think patterns in the mind and heart.
+> 
+> For Reddit fandom of mocking, people think they are resisting "conservatives"... what is **not being resisted** in this simulation is Elon Musk billionaire mental programming of Twitter machine-thinking. Simplistic bio-polar out-group logic. Reddit community is slavishly reacting to Elon Musk's venue of mass dehumanization. Instead of turning to Dr. Bandy X Lee's nonfiction book from October 3, 2017 and persisting in quoting the 27 contributors until every person gets on the same page of the national metal health crisis... We are living in the richest man in the world's mental health fantasy of out-group hate logic as sport.
+>
+
+
+=============
+  
+## Reddit comment o4sh97r
+
+    entry 131
+
+Comment URL: https://old.reddit.com/r/50501/comments/1r1vxtk/allegations_of_bodies_buried_at_epsteins_new/o4sh97r/  
+Comment ID:      o4sh97r  
+Author:          d_Composer  
+Bio:               
+Account Created: 2019-01-18T15:06:38Z  
+Link Karma:      1995  
+Comment Karma:   28710  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-11T12:50:18Z  
+Score:           414 points  
+Post Title:      Allegations of bodies buried at Epstein's New Mexico ranch prompt investigation calls | call or email your representative asking them to force an investigation!  
+:::::: Reddit User Comment: ======  
+We should probably dig up Trump’s ex who’s oddly buried on his golf course to see if anything else is down that hole…
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The cult of Epstein content, the media cult of Epstein "Q" drops of *information strip tease* first priority is years and years more of digging and investigation for *more information*. Drowning in information over Epstein. No Reddit blackout protest. Reddit community has made world press coverage for doing blackouts... Example: https://www.9news.com.au/technology/reddit-content-blackout-users-start-content-blackout-on-one-of-the-worlds-most-popular-websites/2816d537-a301-48ad-ae40-4bf2a2506529 - but when it comes to Trump USA / Epstein USA / MAGA USA / Putinsim there is no desire to stop the entertainment *information strip tease* and make it clear that the urgent priority is the DANGER of LIVING PUTIN and LIVING TRUMP in charge causing NEW hidden crimes and killings. 
+> 
+> This is not resisting MAGA and Trump, this is calling for the current people in power to provide more sexual content as a first priority. This isn't resisting Trumpism, this is following the smell of Trump and Epstein. It is a corrupt and bad path, we have to deal with the corrupt mindsets first and foremost to break free of simulation. We have to resist BADNESS no matter where it is coming from, and the open sewer of badness is running the systems now. the Living, ACTIVE systems of February 2026.
+> 
+> * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+> ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o4tfp4y
+
+    entry 132
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1r1yxge/the_blame_game/o4tfp4y/  
+Comment ID:      o4tfp4y  
+Author:          Mr_Pombastic  
+Bio:               
+Account Created: 2016-08-26T15:41:54Z  
+Link Karma:      46291  
+Comment Karma:   177722  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-11T15:54:35Z  
+Score:           243 points  
+Post Title:      The blame game  
+:::::: Reddit User Comment: ======  
+I feel like they *can* read, they just don't care. Which is kinda worse. 
+
+At this point they're not ignoring hypocrisy, they're thriving on it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> No. EVERYBODY can not read the room. The room is a SIMULATION. This is screen-shots of another media platform. People can not read the media room. This left vs right brainrot. To REDDIT commenting section: can you not see this "left trans' brain rot right in the opening of this screen shot? WHO TOLD YOU, name the great humanism leader, that left-right thinking is the best mindset in humanity! I'll tell you who constantly programs people to think in terms of "the left" and "far left" - Rupert Murdoch, billionaire, since October 7, 1996. Since fucking year 1996, Fox News Television! That is who is PROGRAMMING shows with PROGRAMMING to say "left left left left", and Reddit is programmed by other Reddit users to *eat that shit up*. 
+> 
+> Left vs right is not in The Constitution of North America. Left vs. right, far-left, far-right is not in the Deceleration of Independence. It is not USA values. it is from KING, a fucking KINGDOM of France! Seating in front of a KING RULER! The whole thinking system is ROTTEN! And the Founding Fathers already knew about 1-bit in-group and out-group thinking binary bi-polar logic. And they created the Great Seal of the United States of America to teach NOT TO THINK THAT WAY. It is not "God vs man", "The Fall of Mankind" binary logic! It is 13 steps up a pyramid on the Nile river in Africa! Not left and right side of the pyramid, but FRONT side of the pyramid with green plants growing the the Nile river in Africa!
+> 
+> The room you are not reading is that you are following Rupert Murdoch programming of audience mindsets. You are not reading the Reddit commenting room, the screenshot posting room of media systems! You are context trapped in the rooms of mindsets, not reading the forest for the trees, of the media being FED TO YOU on Reddit! Over and over left vs. right. It is IGNORANCE vs. NONFICTION LEARNING! The conflict here is ATTRACTION to FOX NEWS! Attraction to this screen shot media! You are in a room of bounded thought, simulation, simulacra systems!
+>
+
+
+=============
+  
+## Reddit comment o4swrxb
+
+    entry 133
+
+Comment URL: https://old.reddit.com/r/circled/comments/1r1ydge/agree_disagree/o4swrxb/  
+Comment ID:      o4swrxb  
+Author:          punky100  
+Bio:               
+Account Created: 2013-12-01T18:49:16Z  
+Link Karma:      1  
+Comment Karma:   0  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-11T14:19:53Z  
+Score:           105 points  
+Post Title:      Agree - Disagree?  
+:::::: Reddit User Comment: ======  
+YES
+
+Immigration is a CIVIL matter, and there are 0 civil cases that are absolved by guns.
+
+Guns are not needed, especially in untrained, dangerous, angry, trigger\-happy people.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Simulation of resistance. Polling wish-list of We The People fandoms on Reddit! This is extreme low-effort questioning of audience to normalize the police state. People are eating right out of the hands of billionaire Rupert Murdoch media systems values. Reddit end-users have zero self-awareness that this "resisting" is superficial and shallow. Pointing to Dr. Bandy X Lee's October 3, 2017 nonfiction book with 27 contributors should be a far higher priority of free time and spare time. But people are so programmed to obey television and obey the screenshots on Reddit. Obedient population answering pollsters.
+> 
+> * “In America, everyone is entitled to an opinion, and it is **certainly useful to have a few when a pollster shows up**. But these are opinions of a quite different order from eighteenth- or nineteenth-century opinions. It is probably more accurate to call them emotions rather than opinions, which would account for the fact that they change from week to week, as the pollsters tell us. What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called *disinformation*. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information — misplaced, **irrelevant, fragmented or superficial information — information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” — Neil Postman, [Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985. Page 107.](https://books.google.com/books?id=oup6iagfox8C&pg=PA107&dq=we+are+losing+our+sense+of+what+it+means+to+be+well+informed+inauthor:postman&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o4xyysl
+
+    entry 134
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1r2j49i/it_all_makes_sense_now/o4xyysl/  
+Comment ID:      o4xyysl  
+Author:          Emergency_Link7328  
+Bio:               
+Account Created: 2025-09-09T12:53:13Z  
+Link Karma:      91  
+Comment Karma:   36116  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-12T07:11:48Z  
+Score:           7 points  
+Post Title:      It all makes sense now  
+:::::: Reddit User Comment: ======  
+All of them are implicated. Trump and all of his cabinet are pedophiles. That's where Putin's power over them comes.
+
+The Trump administration belongs to Putin because they are all pedophiles and Putin has it on tape and documented.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month Reddit account.
+> 
+> This simplistic logic doe snot explain the cult of Fox News HDTV. This simplistic logic does not explain why every Church in the USA worships such an obvious terrible man who goes against anything good in The Bible. Verse "1 John 3:17" should be coming from every Church regarding Elon Musk D.O.G.E. and Trump's behavior. In fact, a Church did famously confront Trump in January 2025 https://www.theguardian.com/us-news/2025/jan/23/mariann-edgar-budde-trump-sermon-defense
+> 
+> This simplistic "Putin has video" thinking does not explain hundreds of millions of people in USA not going on social media and asking Trump to be removed because of GROCERY PRICES, Health Care prices, the feedback from Canada, the world news about Greenland, the ICE rains of neighbors. BUT ONE THING DOES explain it all: Cults. Cult behaviors. and Putin and Russia are masters of cults.
+> 
+> Why is Reddit not doing a blackout that makes world news? Reddit has done blackouts  June 12, 2023 CANADA WORLD NEWS: https://globalnews.ca/news/9762114/reddit-blackout-what-to-know/ "Thousands of subreddits will “go dark” or private for 48 hours starting Monday in a protest against Reddit's new pricing policy." - **WHY HAS THERE NOT BEEN A REDDIT AND BLUESKY BLACKOUT TO REMOVE TRUMP!!!**.  If the price of Reddit API is such an issue, why isn't the price of groceries an issue for a Reddit BLACKOUT" The trade war price increases? BUT ONE THING DOES explain it all: Cults. Cult behaviors. and Putin and Russia are masters of cults.
+> 
+> Social post { https://autistics.life/@RoundSparrow/116056934465818319 https://bsky.app/profile/roundsparrow.bsky.social/post/3menob6pldk2e }
+> 
+> **AUSTRALIA WORLD NEWS, JUNE 13, 2023** Reddit Blackout makes WORLD NEWS COVERAGE ALL OVER. https://www.9news.com.au/technology/reddit-content-blackout-users-start-content-blackout-on-one-of-the-worlds-most-popular-websites/2816d537-a301-48ad-ae40-4bf2a2506529 "millions of people are asking on Reddit, as thousands of online communities "go dark," taking a stand"
+> 
+> **ISLAMIC MUSLIM WORLD NEWS Al Jazeera January 18, 2012 — Wikipedia and Reddit go black to protest proposed US legislation** https://www.AlJazeera.com/features/2012/1/18/websites-blackout-over-sopa-censorship - BLACKOUT PROTESTS GET WORLD NEWS COVERAGE.
+> 
+> WHY! Why when Canada was being openly attacked by the White House did Reddit and Bluesky not have a massive protest uprising that made world news coverage?   
+> WHY! Why when Greenland was being openly attacked by the White House did Reddit and Bluesky not have a massive protest that was covered all over the world?  
+> WHY! If USA people are so *against Trumpism and MAGA* - why are USA people not using their smartphones to protest in any form of organized way?   
+> 
+> Reddit media center is a **cult of mocking** Trump, mocking MAGA cultists. Reddit is a hate-worship cult. Reddit community does not PROMOTE Dr. Bandy X Lee's nonfiction 27 contributors book from October 3, 2017. We The People, smartphone addicts, are in a cult addiction to hate leadership and hate mocking. Insulting and mocking Trump. **Messaging cult.** This total mockery has been going on for almost 11 full years - since June 16, 2015. Media addiction, high speed commenting addiction to tabloid news, rumor mills, REDDIT is the MAGA rumor mill. Addiction to rumors and dumb jokes are the only thing that explain why people have not used **social media blackouts to send S.O.S. to the world that the population is not in on** the Reality TV "The Apprentice" trash media addictions.
+> 
+> The entire nation is a smartphone cult. MAGA values of Fox News, except Reddit is the Fox News. Twitter Musk is the Fox News. Apple iPhone / Apple iPad / Samsung Android - instead of classic Fox News Television. People are so addicted to Reality Memes and Trump Meme Shit. And people are so drunk on the nonstop talking and commenting about Donald Trump.
+> 
+> Surkov won since March 2013. Putin does not have "sex tapes" on every rural farmer with a Trump yard sign. But Rupert Murdoch TV addiction programs those yard signs.
+> 
+> * STUDY AND LEARNING THAT **REDDIT SOCIETY IS AVOIDING AND REJECTING**: Published **January 2015**, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be **no real politics**,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+>
+
+
+=============
+  
+## Reddit comment o4ypl4f
+
+    entry 135
+
+Comment URL: https://old.reddit.com/r/politics/comments/1r2quul/pam_bondis_prepared_insult_flash_cards_exposed_by/o4ypl4f/  
+Comment ID:      o4ypl4f  
+Author:          SG_wormsblink  
+Bio:             Knowledge above all  
+Account Created: 2022-09-30T01:30:00Z  
+Link Karma:      20262  
+Comment Karma:   264255  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-12T11:26:05Z  
+Score:           None  
+Post Title:      Pam Bondi’s Prepared Insult Flash Cards Exposed by GOP Rep  
+:::::: Reddit User Comment: ======  
+This is what rampant politicization of everything gets you. It’s no longer about the facts or reasons, it’s turned into a pathetic mudslinging race to the bottom where whoever throws the biggest insult “wins”.
+
+“Oh yeah, you think you are so smart? I don’t think so, you shit your pants. I can’t hear you laalala”. This is playground fighting bullshit, not a serious point at all.
+
+The worst part about it is that it works. No useful answers have been given, there is no action to move forward or resolve any problems. Crying like a toddler has wasted everybody’s time enough that they get away doing nothing.
+
+What on earth is the US government doing. You have legal powers through the speaker of the house to silence her. Use them, restore decorum and get things back in order. This is whatever the opposite of a kangaroo court is, the defendant is ignoring the prosecutors with no repercussions. This is not a functioning government.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1. It is all SCRIPTED.
+> 
+> 2. Insulting, mocking, mockery. Total mockery.
+> 
+> 3. Drama for Television and Reddit audiences
+> 
+> 4. Gullibility to Reality TV techniques
+> 
+> 5. Surkovian, Surkov students
+> 
+> 6. STUDY AND LEARNING THAT **REDDIT SOCIETY IS AVOIDING AND REJECTING**: Published **January 2015**, before Trump started run for office in June 2015: https://www.Politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be **no real politics**,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? **Politics has got to feel like a movie!**”
+>
+
+
+=============
+  
+## Reddit comment o56awkt
+
+    entry 136
+
+Comment URL: https://old.reddit.com/r/circled/comments/1r3rc5s/even_the_hot_pile_of_newsmax_is_calling_epstein_a/o56awkt/  
+Comment ID:      o56awkt  
+Author:          Sea_Background_2703  
+Bio:               
+Account Created: 2025-11-05T21:35:46Z  
+Link Karma:      1  
+Comment Karma:   926  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-13T15:06:22Z  
+Score:           266 points  
+Post Title:      Even the hot pile of 💩, Newsmax, is calling Epstein a cover up.  
+:::::: Reddit User Comment: ======  
+Watching the support crack is wild. Feels like the countdown has started.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account. Top-voted popular comment.
+> 
+> This community commenting on Reddit *is not resisting**. This is mind-fucking the Reddit fandom to continue *watching* the Reality TV show that Surkov students have scripted for the White House / federal government of USA. Putin is winning. As Reddit audience is not calling for a social media blackout. REDDIT_BLACKOUT - the blackout is to make world press coverage as previous Reddit blackouts have done... and commenting users should be calling for a citizen and world wide web uprising. Promoting Dr. Bandy X Lee's 27 contributors to her October 3, 2017 nonfiction book about the dangerous situation we are all in!
+> 
+> In the face of the Kremlin takeover of hearts and minds in USA, promoting nonfiction by Dr. Bandy X Lee's compilation with quotes and asking other people to share quotes from Dr. Lee is a ACTION_PLAN that actually confronts the mental health of both the White House leaders, Elon Musk leader, Fox News mental health crisis. Newsmax (this Reddit posting title) mental health crisis, MAGA cult, etc. We all need to get on the SAME PAGE. And Dr Bandy X Lee gather 27 people to create the SAME PAGES to focus on for EVERYONE in USA age 12 to age 120, voters or otherwise! SEE_ALSO https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
+>
+
+
+=============
+  
+## Reddit comment o5jd68c
+
+    entry 137
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r5k1up/no_s_slow_joe_jack_white_rips_into_joe_rogan/o5jd68c/  
+Comment ID:      o5jd68c  
+Author:          Aromatic-Pie1850  
+Bio:               
+Account Created: 2025-12-23T18:52:54Z  
+Link Karma:      1  
+Comment Karma:   2606  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T17:18:07Z  
+Score:           964 points  
+Post Title:      "No S*** Slow Joe" - Jack White Rips Into Joe Rogan  
+:::::: Reddit User Comment: ======  
+If Joe Rogan could read he would be very upset
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> THIS IS NOT RESISTING. 1 month Reddit account. Top-upvoted Twitter-length Tweet-mindset shit-commenting. Joe Rogan mindsets. **The threat to USA society is media addiction, cults of media**, like Alex Jones and Joe Rogan content cults. People who worship shit-talking and shit-commenting and shit-posting leadership. Which Donald Trump is the *King of Kings of Pop*, Trump is the "King of Pop" culture of shit-posting. Since July 6, 2011 SEE_ALSO https://theOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 - Trump has lead a society that is IGNORANCE_CELEBRATIONS on Reddit. Reddit audience celebrating the shit-talking that Trump and other Surkov Students have used to destroy USA NATO relationships and USA society since March 2013.
+> 
+> THIS MOST POPULAR UPVOTED COMMENT is NOT RESISTING. It is a SIMULATION, an alternate reality iPhone app / Android app Reddit screen game. It is NOT RESISTING the media cult crisis! Reddit users are compulsively doing as programmed by the Kremlin and White House, anti-resisting. People need to study Carl Sagan, Marshall McLuhan, Neil Postman and other on this media usage (by Joe Rogan fandom, Reddit commenting fandom, etc). FAITH_IN_MOCKERY MOCKING is not resisting a Total Mockery that Surkov students created. 
+> 
+> * “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+> 
+> Reddit is a cult of mockery and mocking, lead by Donald Trump - professional media Reality TV creator working with an army of Fox News HDTV fiction authors, etc. Reddit is not RESISTING the anti-intellectual cults, Reddit is amplifying the ignorance worship and ritualizing the worship of ignorance.
+>

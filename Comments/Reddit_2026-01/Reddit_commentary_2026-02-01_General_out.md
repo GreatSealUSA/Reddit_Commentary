@@ -1029,3 +1029,3594 @@ Post Title:      50 Cent using a whole Door Dash Super Bowl ad to continue to tr
 50 is the kind of troll people will be talking about thousands of years from now, like Diogenes.
 
 
+
+
+=============
+  
+## Reddit comment o44kwko
+
+    entry 43
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qym28j/brad_arnold_singer_and_founding_member_of_3_doors/o44kwko/  
+Comment ID:      o44kwko  
+Author:          silentkiller082  
+Bio:               
+Account Created: 2012-03-30T14:59:20Z  
+Link Karma:      3263  
+Comment Karma:   157837  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T19:05:09Z  
+Score:           2435 points  
+Post Title:      Brad Arnold, singer and founding member of 3 Doors Down, has passed away at the age of 47.  
+:::::: Reddit User Comment: ======  
+Kryptonite was an iconic song from my childhood, so I thank him for that.
+
+
+
+
+=============
+  
+## Reddit comment o44jrwo
+
+    entry 44
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qym28j/brad_arnold_singer_and_founding_member_of_3_doors/o44jrwo/  
+Comment ID:      o44jrwo  
+Author:          mav194  
+Bio:               
+Account Created: 2012-03-26T00:42:23Z  
+Link Karma:      230258  
+Comment Karma:   68834  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T18:59:26Z  
+Score:           1285 points  
+Post Title:      Brad Arnold, singer and founding member of 3 Doors Down, has passed away at the age of 47.  
+:::::: Reddit User Comment: ======  
+Stage 4 kidney cancer. So sad:(
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Age 47
+>
+
+
+=============
+  
+## Reddit comment o44ju32
+
+    entry 45
+
+Comment URL: https://old.reddit.com/r/Music/comments/1qym28j/brad_arnold_singer_and_founding_member_of_3_doors/o44ju32/  
+Comment ID:      o44ju32  
+Author:          PhilParent  
+Bio:               
+Account Created: 2015-09-10T01:20:46Z  
+Link Karma:      1512  
+Comment Karma:   42427  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T18:59:45Z  
+Score:           386 points  
+Post Title:      Brad Arnold, singer and founding member of 3 Doors Down, has passed away at the age of 47.  
+:::::: Reddit User Comment: ======  
+WE are now "here without you". RIP
+
+
+
+
+=============
+  
+## Reddit comment o442ref
+
+    entry 46
+
+Comment URL: https://old.reddit.com/r/baseball/comments/1qyjt7h/terrance_gore_19912026/o442ref/  
+Comment ID:      o442ref  
+Author:          shoelessjp  
+Bio:             Music nerd. Long-time (motor)sports fan. Be kind.  
+Account Created: 2015-08-23T08:15:47Z  
+Link Karma:      30545  
+Comment Karma:   48161  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-07T17:35:38Z  
+Score:           287 points  
+Post Title:      Terrance Gore 1991-2026  
+:::::: Reddit User Comment: ======  
+34 is so incredibly young, rest in peace.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> age 34
+>
+
+
+=============
+  
+## Reddit comment o442voc
+
+    entry 47
+
+Comment URL: https://old.reddit.com/r/baseball/comments/1qyjt7h/terrance_gore_19912026/o442voc/  
+Comment ID:      o442voc  
+Author:          2thincoats  
+Bio:                
+Account Created: 2017-07-30T22:52:53Z  
+Link Karma:      2400  
+Comment Karma:   90059  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-07T17:36:14Z  
+Score:           854 points  
+Post Title:      Terrance Gore 1991-2026  
+:::::: Reddit User Comment: ======  
+Kind of terrifying this happened during a routine surgery. A reminder that life is precious and fragile.
+
+
+
+
+=============
+  
+## Reddit comment o443bb2
+
+    entry 48
+
+Comment URL: https://old.reddit.com/r/baseball/comments/1qyjt7h/terrance_gore_19912026/o443bb2/  
+Comment ID:      o443bb2  
+Author:          ernyc3777  
+Bio:               
+Account Created: 2016-02-07T17:25:05Z  
+Link Karma:      28086  
+Comment Karma:   246006  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-07T17:38:24Z  
+Score:           124 points  
+Post Title:      Terrance Gore 1991-2026  
+:::::: Reddit User Comment: ======  
+34 years young. That’s crazy. 
+
+I turned 32 last month…life is fleeting. Cherish it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And for the sake of everyone in the world: Stop believing hate is enjoyable. Stop believing war is fun sport. That killing and murder is rewarding and joyful fun. Stop believing in hate. Stop letting every person around you prize hate leaders and creating a planet with oceans of hate we all share and swim in.
+> 
+> The 1954 Equation.
+> 
+> February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+> 
+> "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+>
+
+
+=============
+  
+## Reddit comment o44youl
+
+    entry 49
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyo1ok/petah/o44youl/  
+Comment ID:      o44youl  
+Author:          Numerophilus  
+Bio:             Numerophilus : Who am I? You'll probably never know, and I'm fine with that.  
+Account Created: 2026-01-07T17:28:44Z  
+Link Karma:      6016  
+Comment Karma:   11565  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T20:16:58Z  
+Score:           555 points  
+Post Title:      Petah?  
+:::::: Reddit User Comment: ======  
+South Park has made some parodies of political/infamous figures or events in the past. The Epstein files is a treasure trove of grave misconduct by such individuals. More importantly, it provides SP authors with a lot of source\-accurate content to parody.
+
+Edit: and they'll get lots of views and positive reception online \-\- *ca\-shing 💸*
+
+
+
+
+=============
+  
+## Reddit comment o456km1
+
+    entry 50
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyo1ok/petah/o456km1/  
+Comment ID:      o456km1  
+Author:          Additional-Ad8632  
+Bio:               
+Account Created: 2021-02-06T15:16:42Z  
+Link Karma:      1  
+Comment Karma:   9771  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T20:59:55Z  
+Score:           51 points  
+Post Title:      Petah?  
+:::::: Reddit User Comment: ======  
+Please ban these low effort posts.
+
+
+
+
+=============
+  
+## Reddit comment o45tg44
+
+    entry 51
+
+Comment URL: https://old.reddit.com/r/UmaMusume/comments/1qyrv1h/february_7th_twitter_incident/o45tg44/  
+Comment ID:      o45tg44  
+Author:          Even-Self1493  
+Bio:               
+Account Created: 2024-06-02T13:19:41Z  
+Link Karma:      1  
+Comment Karma:   2337  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-07T23:05:29Z  
+Score:           87 points  
+Post Title:      February 7th Twitter incident  
+:::::: Reddit User Comment: ======  
+What is the context?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit fandoms for Trump diapers too? People are so entertained by everything, no sense of need to spend free time and spare time doing cult deprogramming teaching to the USA / MAGA / Trump / Putin cults.
+>
+
+
+=============
+  
+## Reddit comment o45p3de
+
+    entry 52
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1qyrn7p/how_does_this_scare_overseas_readers/o45p3de/  
+Comment ID:      o45p3de  
+Author:          404ampm  
+Bio:             404pm :   
+Account Created: 2023-01-21T22:17:34Z  
+Link Karma:      1  
+Comment Karma:   6683  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-07T22:40:27Z  
+Score:           1948 points  
+Post Title:      How does this scare overseas readers?  
+:::::: Reddit User Comment: ======  
+In mangas panels are read right to left showing the tall woman grabbing the ball and giving it back to the child. Overseas panels are generally read left to right which in this case shows the tall woman taking a ball from a child and putting it up in a tree making the child cry.
+
+
+
+
+=============
+  
+## Reddit comment o47o78r
+
+    entry 53
+
+Comment URL: https://old.reddit.com/r/todayilearned/comments/1qz1lp0/til_that_chess_players_do_not_in_fact_burn_an/o47o78r/  
+Comment ID:      o47o78r  
+Author:          JingleJangleJin  
+Bio:               
+Account Created: 2014-04-17T11:26:46Z  
+Link Karma:      6633  
+Comment Karma:   389471  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-08T06:36:01Z  
+Score:           479 points  
+Post Title:      TIL that chess players do not, in fact, burn an extreme amount of calories during matches  
+:::::: Reddit User Comment: ======  
+That makes more sense. Won't stop blatant misinformation from hitting the [front page](https://www.reddit.com/r/todayilearned/comments/1qyiav7/til_that_playing_highlevel_chess) though.
+
+
+
+
+=============
+  
+## Reddit comment o497xau
+
+    entry 54
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o497xau/  
+Comment ID:      o497xau  
+Author:          Plastic_Pickle_2561  
+Bio:             Won't answer DMs so don't bother.  
+Account Created: 2022-06-20T22:59:55Z  
+Link Karma:      3114  
+Comment Karma:   21870  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-08T14:23:26Z  
+Score:           4614 points  
+Post Title:      Her father cheated with an AI chatbot  
+:::::: Reddit User Comment: ======  
+I know someone who's mum is in a relationship with a scammer sending her AI videos of the lead singer of Disturbed. These people 🫠
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> CHOICE_MARRIAGE_HONESTY
+>
+
+
+=============
+  
+## Reddit comment o49irti
+
+    entry 55
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o49irti/  
+Comment ID:      o49irti  
+Author:          da_innernette  
+Bio:               
+Account Created: 2013-12-27T17:55:40Z  
+Link Karma:      1815  
+Comment Karma:   121534  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-08T15:23:01Z  
+Score:           411 points  
+Post Title:      Her father cheated with an AI chatbot  
+:::::: Reddit User Comment: ======  
+The daughter did. I saw more videos of it and she hates her dad, says he’s pretty awful to her and her mom. She’s a teenager btw.
+
+
+
+
+=============
+  
+## Reddit comment o49fkr2
+
+    entry 56
+
+Comment URL: https://old.reddit.com/r/TikTokCringe/comments/1qz9oc5/her_father_cheated_with_an_ai_chatbot/o49fkr2/  
+Comment ID:      o49fkr2  
+Author:          WorldlyPlace  
+Bio:               
+Account Created: 2018-04-09T20:19:44Z  
+Link Karma:      955  
+Comment Karma:   27081  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-08T15:06:13Z  
+Score:           3866 points  
+Post Title:      Her father cheated with an AI chatbot  
+:::::: Reddit User Comment: ======  
+A lot of people are going straight to the moral question of dating AI and missing what the mum is saying. She's saying over and over "You don't talk to me." He's ignoring his real wife for a fake partner.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SILENCE_IN_MARRIAGE APATHY_MARRIAGE Tower of Babel internal to marriage.
+>
+
+
+=============
+  
+## Reddit comment o4b4mt7
+
+    entry 57
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qzh2d2/katy_perry_wishes_bad_bunny_for_super_bowl/o4b4mt7/  
+Comment ID:      o4b4mt7  
+Author:          beautyinred  
+Bio:               
+Account Created: 2022-10-24T03:03:48Z  
+Link Karma:      7381  
+Comment Karma:   21854  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T20:02:16Z  
+Score:           None  
+Post Title:      Katy Perry wishes Bad Bunny for Super Bowl halftime show!  
+:::::: Reddit User Comment: ======  
+i don’t know if you guys know this but katy is really popular in mexico and latin america, she’s come to do talk shows and there’s many vids of her eating tacos in Mexico City and overall having a great time and being nice to everyone.. 
+
+so yeah, thank you Katy!
+
+
+
+
+=============
+  
+## Reddit comment o4b6mdr
+
+    entry 58
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1qzh2d2/katy_perry_wishes_bad_bunny_for_super_bowl/o4b6mdr/  
+Comment ID:      o4b6mdr  
+Author:          preckles  
+Bio:               
+Account Created: 2025-09-03T23:42:47Z  
+Link Karma:      224  
+Comment Karma:   3802  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T20:12:06Z  
+Score:           None  
+Post Title:      Katy Perry wishes Bad Bunny for Super Bowl halftime show!  
+:::::: Reddit User Comment: ======  
+What’s wild is that self\-centered American are fully exposing their lack of worldliness when they say she’s MAGA / super Christian.
+
+The woman is literally dating Justin Trudeau, the *famously* progressive ex\-Prime Minister of a largely unreligious country.
+
+
+
+
+=============
+  
+## Reddit comment o4brcty
+
+    entry 59
+
+Comment URL: https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4brcty/  
+Comment ID:      o4brcty  
+Author:          Fancy-Repair-2893  
+Bio:               
+Account Created: 2023-10-04T13:40:28Z  
+Link Karma:      1  
+Comment Karma:   13066  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T21:55:37Z  
+Score:           2195 points  
+Post Title:      AITAH for telling my SIL a family secret and now everyone is breaking up or divorcing???  
+:::::: Reddit User Comment: ======  
+Nta, never ever in a billion years. As for the members of your family they’re getting whatever they deserve for keeping that secret. I am so glad you found your husband. Stay safe away from them.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> CHOICE_MARRIAGE_HONESTY PARENTING_HONESTY FAMILY_HONESTY
+>
+
+
+=============
+  
+## Reddit comment o4bslxo
+
+    entry 60
+
+Comment URL: https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4bslxo/  
+Comment ID:      o4bslxo  
+Author:          grayblue_grrl  
+Bio:               
+Account Created: 2020-09-27T15:57:54Z  
+Link Karma:      4  
+Comment Karma:   524048  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-08T22:01:56Z  
+Score:           840 points  
+Post Title:      AITAH for telling my SIL a family secret and now everyone is breaking up or divorcing???  
+:::::: Reddit User Comment: ======  
+NTA.
+
+Imagine a group of men protecting a predator and breeding a whole new pack for him. Without consent of the women in their lives.
+
+fuck them all. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SEX_SECRECY
+>
+
+
+=============
+  
+## Reddit comment o4c31vw
+
+    entry 61
+
+Comment URL: https://old.reddit.com/r/AITAH/comments/1qzlyzb/aitah_for_telling_my_sil_a_family_secret_and_now/o4c31vw/  
+Comment ID:      o4c31vw  
+Author:          PhilosopherFlimsy526  
+Bio:               
+Account Created: 2025-12-06T10:01:17Z  
+Link Karma:      668  
+Comment Karma:   47  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-08T22:58:21Z  
+Score:           24 points  
+Post Title:      AITAH for telling my SIL a family secret and now everyone is breaking up or divorcing???  
+:::::: Reddit User Comment: ======  
+I wrote “hurt me” in the post because when I typed it out the first time, Reddit flagged my post and deleted it
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And people on Reddit constantly claim that you can same "rape" and don't use words like "grape" or *cen**sor" your words. On this GitHub I have documented my own personal messages being censored.
+>
+
+
+=============
+  
+## Reddit comment nup9el1
+
+    entry 62
+
+Comment URL: https://old.reddit.com/r/Marriage/comments/1ppsmxv/im_finding_it_hard_to_love_my_husband/nup9el1/  
+Comment ID:      nup9el1  
+Author:          PhilosopherFlimsy526  
+Bio:               
+Account Created: 2025-12-06T10:01:17Z  
+Link Karma:      668  
+Comment Karma:   47  
+Comment Age:     1 month ago  
+Timestamp:       2025-12-18T15:49:17Z  
+Score:           3 points  
+Post Title:      I’m finding it hard to love my husband  
+:::::: Reddit User Comment: ======  
+I’ve never looked at my little baby and thought that I should have gone through with it. I should’ve never made that appointment to begin with and I hate myself for doing it everyday but I did do it and I can’t change that. Where those comments from him pop up is when we are discussing finances or how we are going to make space in another child’s room so their able to share one day and he tells me “this wouldn’t have been a problem if you just went through it.” So yes I remind him that he’s the one who assured me that I was right to not want one and to cancel the appointment after he spoke with his friend. And truthfully, I would’ve never done it anyway. I’ve lost several pregnancies in my lifetime and I could never purposely end one.
+Also we did have a dna test. Both in utero and out. He knows he’s the father.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And who knows what is real from these accounts. The leaders of the whole fucking USA get away with bullshit and lies. RFK Jr leads the nation, Trump leads the nation, Musk leads the nation. Men who constantly manipulate and people cheer it on as great entertainment to mock and create endless mockery about.
+>
+
+
+=============
+  
+## Reddit comment o4cw6st
+
+    entry 63
+
+Comment URL: https://old.reddit.com/r/nfl/comments/1qzqy28/highlight_bad_bunny_lady_gaga_ricky_martins_super/o4cw6st/  
+Comment ID:      o4cw6st  
+Author:          DuztyLipz  
+Bio:               
+Account Created: 2012-04-29T02:04:17Z  
+Link Karma:      73626  
+Comment Karma:   77768  
+Comment Age:     16 minutes ago  
+Timestamp:       2026-02-09T01:45:28Z  
+Score:           238 points  
+Post Title:      [Highlight] Bad Bunny, Lady Gaga, & Ricky Martin's Super Bowl LX Halftime Show  
+:::::: Reddit User Comment: ======  
+After watching this entire Halftime Show, I came to 2 conclusions:
+
+1. I love booty 2\. The internet is going to be **insufferable** for the next week or so.
+
+
+
+
+=============
+  
+## Reddit comment o4cuhbw
+
+    entry 64
+
+Comment URL: https://old.reddit.com/r/nfl/comments/1qzqy28/highlight_bad_bunny_lady_gaga_ricky_martins_super/o4cuhbw/  
+Comment ID:      o4cuhbw  
+Author:          NevermoreSEA  
+Bio:               
+Account Created: 2017-07-15T16:21:02Z  
+Link Karma:      1123881  
+Comment Karma:   2736104  
+Comment Age:     28 minutes ago  
+Timestamp:       2026-02-09T01:36:33Z  
+Score:           1133 points  
+Post Title:      [Highlight] Bad Bunny, Lady Gaga, & Ricky Martin's Super Bowl LX Halftime Show  
+:::::: Reddit User Comment: ======  
+The live thread absolutely did not pass the vibe check.
+
+
+
+
+=============
+  
+## Reddit comment o4ezgv8
+
+    entry 65
+
+Comment URL: https://old.reddit.com/r/memes/comments/1r00i2h/nonamericans_on_reddit_today/o4ezgv8/  
+Comment ID:      o4ezgv8  
+Author:          kasumoff  
+Bio:               
+Account Created: 2021-06-24T20:51:21Z  
+Link Karma:      1  
+Comment Karma:   917  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T11:20:14Z  
+Score:           469 points  
+Post Title:      Non-Americans on Reddit today  
+:::::: Reddit User Comment: ======  
+Americans when there's a 10 second ad on YouTube:
+🤬🤮💩
+
+Americans when there are ads for 1 hour in Superbowl:
+🤩🥰👍
+
+
+
+
+=============
+  
+## Reddit comment o4f1run
+
+    entry 66
+
+Comment URL: https://old.reddit.com/r/memes/comments/1r00i2h/nonamericans_on_reddit_today/o4f1run/  
+Comment ID:      o4f1run  
+Author:          HangryBeard  
+Bio:               
+Account Created: 2019-12-16T09:19:37Z  
+Link Karma:      1600  
+Comment Karma:   88786  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-09T11:40:13Z  
+Score:           105 points  
+Post Title:      Non-Americans on Reddit today  
+:::::: Reddit User Comment: ======  
+A lot of Americans feel this way too. It's gotta be one of the most over\-hyped events ever.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> A huge number of Americans think Trump is bad and terrible, "bad bunny Trump", "bad man", and as Vince Gilligan spelled out February 15, 2025... https://Variety.com/2025/tv/news/breaking-bad-creator-vince-gilligan-good-guys-walter-white-1236309604/ Breaking Bad is cool. Walter White is cool. Following hate leaders is popular now.
+> 
+> * Texan Rick Roderick: "And this sense of the sort of hyperreality we get with cinema, we get with television and so on is another phenomenon Baudrillard wants to examine. And I think that here we get – and, I mean, I guess my politics are showing again – but here we get the phenomenon of Reagan, the hyperreal president. More real than real. I mean he’s better at being Harry Truman than Harry Truman. I mean, the distinction about what he is is lost in the hyperreality of his smile, which like the Cheshire Cat’s, you know, just gleams across his face. And we get for the first time a phenomenon never known in polling which is the phenomenon of not liking a person, but of liking liking a person. This is a sign you are dealing with the hyperreal. Let me go over that again: Reagan’s popularity was popular. **When you went through the various traits of Reagan and what Reagan stood for and his policies and so on, ah, vast numbers of people disliked nearly all of them**. What was popular was his popularity. And I don’t think that Reagan’s alone in this. Show business figures had this same thing go on for years." - https://RickRoderick.org/308-baudrillard-fatal-strategies-1993/
+>
+
+
+=============
+  
+## Reddit comment o4f8jgq
+
+    entry 67
+
+Comment URL: https://old.reddit.com/r/Fallout/comments/1r02bxx/fallout_new_vegas_lead_says_it_took_five_years/o4f8jgq/  
+Comment ID:      o4f8jgq  
+Author:          ImToxiq  
+Bio:               
+Account Created: 2014-04-14T22:17:39Z  
+Link Karma:      650  
+Comment Karma:   1731  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T12:32:55Z  
+Score:           325 points  
+Post Title:      Fallout New Vegas lead says it took “five years” for fans to actually like the game, and even longer for the devs to believe them  
+:::::: Reddit User Comment: ======  
+When the game came out it was a hot mess, like 25 minute load times at some points on my 360 😂
+
+
+
+
+=============
+  
+## Reddit comment o4f77m9
+
+    entry 68
+
+Comment URL: https://old.reddit.com/r/Fallout/comments/1r02bxx/fallout_new_vegas_lead_says_it_took_five_years/o4f77m9/  
+Comment ID:      o4f77m9  
+Author:          Jdmaki1996  
+Bio:               
+Account Created: 2018-12-15T12:19:56Z  
+Link Karma:      536  
+Comment Karma:   195305  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T12:23:01Z  
+Score:           1692 points  
+Post Title:      Fallout New Vegas lead says it took “five years” for fans to actually like the game, and even longer for the devs to believe them  
+:::::: Reddit User Comment: ======  
+Am I the only one here who remembers people being mad at all the terrible bugs, the fact that’s the game just ends, no broken steel like dlc, the bland map, early game railroading. I knew of lot of people who initially preferred fallout 3 who now say New Vegas is their favorite.
+
+
+
+
+=============
+  
+## Reddit comment o4f74i6
+
+    entry 69
+
+Comment URL: https://old.reddit.com/r/Fallout/comments/1r02bxx/fallout_new_vegas_lead_says_it_took_five_years/o4f74i6/  
+Comment ID:      o4f74i6  
+Author:          -JPalos-  
+Bio:               
+Account Created: 2026-01-15T17:27:48Z  
+Link Karma:      1  
+Comment Karma:   3188  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T12:22:22Z  
+Score:           190 points  
+Post Title:      Fallout New Vegas lead says it took “five years” for fans to actually like the game, and even longer for the devs to believe them  
+:::::: Reddit User Comment: ======  
+[I don't understad why so many people here lies themselves saiying that the hate didn't happen](https://www.reddit.com/r/Fallout/comments/9z4nuh/because_so_many_people_seem_to_forget_the_launch/)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> recency bias
+>
+
+
+=============
+  
+## Reddit comment o4ezvdv
+
+    entry 70
+
+Comment URL: https://old.reddit.com/r/BatmanArkham/comments/1r01lat/how_does_a_rockstar_do_that/o4ezvdv/  
+Comment ID:      o4ezvdv  
+Author:          drordan  
+Bio:               
+Account Created: 2025-08-29T22:58:34Z  
+Link Karma:      3481  
+Comment Karma:   2669  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-09T11:23:48Z  
+Score:           748 points  
+Post Title:      How does a Rockstar do that?  
+:::::: Reddit User Comment: ======  
+Am I having a stroke?
+
+
+
+
+=============
+  
+## Reddit comment o4im71f
+
+    entry 71
+
+Comment URL: https://old.reddit.com/r/KitchenConfidential/comments/1r0g221/regular_customers_order/o4im71f/  
+Comment ID:      o4im71f  
+Author:          Plasmatdx  
+Bio:               
+Account Created: 2011-02-21T02:35:11Z  
+Link Karma:      13277  
+Comment Karma:   17417  
+Comment Age:     24 minutes ago  
+Timestamp:       2026-02-09T22:53:43Z  
+Score:           None  
+Post Title:      Regular customers order  
+:::::: Reddit User Comment: ======  
+All you can eat. I think like 45$ cad.
+
+
+
+
+=============
+  
+## Reddit comment o4i2npv
+
+    entry 72
+
+Comment URL: https://old.reddit.com/r/news/comments/1r0bh98/daughter_of_minnesota_governor_candidate_fatally/o4i2npv/  
+Comment ID:      o4i2npv  
+Author:          Im_a_dum_bum  
+Bio:             Hi : Hi
+
+Hi
+
+Hi
+
+Hi
+
+Hi
+
+Hi
+
+Hi
+
+Hi
+
+Hi  
+Account Created: 2018-08-19T17:14:16Z  
+Link Karma:      36608  
+Comment Karma:   46689  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-09T21:14:42Z  
+Score:           243 points  
+Post Title:      Daughter of Minnesota governor candidate fatally stabbed in St. Cloud, leading him to suspend campaign  
+:::::: Reddit User Comment: ======  
+If I hadn't seen other comments, I would still be wondering was a "DV" is. For others, they meant "Domestic violence"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> language
+>
+
+
+=============
+  
+## Reddit comment o4jmotw
+
+    entry 73
+
+Comment URL: https://old.reddit.com/r/Music/comments/1r0nv1k/chappell_roan_quits_wasserman_after_ceo_casey/o4jmotw/  
+Comment ID:      o4jmotw  
+Author:          she-dont-use-jellyyy  
+Bio:               
+Account Created: 2025-12-22T16:56:24Z  
+Link Karma:      28  
+Comment Karma:   16315  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-10T02:20:26Z  
+Score:           57 points  
+Post Title:      Chappell Roan Quits Wasserman After CEO Casey Wasserman Appears in Epstein Files  
+:::::: Reddit User Comment: ======  
+You can say "fuck" on reddit
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> No, you can't always. Reddit has secret police plucking out messages and users. Denial abounds.
+>
+
+
+=============
+  
+## Reddit comment o4gdx8k
+
+    entry 74
+
+Comment URL: https://old.reddit.com/r/Damnthatsinteresting/comments/1r06y91/giraffes_have_nowhere_to_hide_from_storms_maasai/o4gdx8k/  
+Comment ID:      o4gdx8k  
+Author:          Gammelpreiss  
+Bio:               
+Account Created: 2019-02-15T02:47:31Z  
+Link Karma:      349  
+Comment Karma:   245846  
+Comment Age:     17 hours ago  
+Timestamp:       2026-02-09T16:22:27Z  
+Score:           247 points  
+Post Title:      Giraffes have nowhere to hide from storms! 📍 Maasai Mara, Kenya on Friday  
+:::::: Reddit User Comment: ======  
+you should not feel bad for the animals because that is just nature and been this way for billiona of years. and nature is an absolute cruel and psychopathic MF :/
+
+but too few ppl are grateful that humanity managed to escape most of that by now and forget what massive achievement that actually is
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> nature
+>
+
+
+=============
+  
+## Reddit comment o4kw26r
+
+    entry 75
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r0tn5s/temporary_community_update/o4kw26r/  
+Comment ID:      o4kw26r  
+Author:          Bronze334  
+Bio:               
+Account Created: 2021-06-02T17:41:26Z  
+Link Karma:      68  
+Comment Karma:   11670  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-10T07:52:48Z  
+Score:           14 points  
+Post Title:      Temporary Community Update  
+:::::: Reddit User Comment: ======  
+Yeah man but if you got a partner you gotta tell them this stuff before you disappear.
+
+
+
+
+=============
+  
+## Reddit comment o4l0vx4
+
+    entry 76
+
+Comment URL: https://old.reddit.com/r/BuyFromEU/comments/1r0vec4/linux_is_the_only_real_alternative_to/o4l0vx4/  
+Comment ID:      o4l0vx4  
+Author:          Markus_zockt  
+Bio:             Markus :   
+Account Created: 2012-12-13T10:04:46Z  
+Link Karma:      27402  
+Comment Karma:   290962  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-10T08:39:32Z  
+Score:           967 points  
+Post Title:      Linux is the only real alternative to Windows/macOS — now it needs to be more accessible  
+:::::: Reddit User Comment: ======  
+Linux is more accessible than ever before. You just have to "dare" to start using Linux. I speak from my own recent experience.
+
+I have been a Windows user for 34 years and have now tried out a few "Linux" things on a test device. After 34 years of Windows, I will be switching my main system to Linux in the next few days.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The anti-FAQ anti-Wiki social media is a big reason we have billionaires and Trumpism. People need to organize. Alas, it it is mental health of our common connection that is most important. Dr. Bandy X Lee's 27 public education people since October 3, 2017 needs to be a WORLD WIDE WEB initiative to cult deprogram Russia and USA. Putin and Trump and Putin and Musk need to be addressed through the teaching and education of Dr. Bandy X Lee. And people need to face the social media behavior of AVOIDING nonfiction authors. Casually calling people { mentally unwell, crazy, batshit crazy, insane, clowns (constant, not just "clowning") } as techniques of { domination, though-terminating, insulting, mocking, mockery, bullying } needs to come to an end. Hate is a threat to all humanity as a viral cult behavior.
+>
+
+
+=============
+  
+## Reddit comment o4me0cs
+
+    entry 77
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1r11zgt/new_type_of_fireworks_produced_in_china_they_call/o4me0cs/  
+Comment ID:      o4me0cs  
+Author:          jason_abacabb  
+Bio:               
+Account Created: 2018-12-20T02:52:40Z  
+Link Karma:      733  
+Comment Karma:   222260  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-10T14:42:54Z  
+Score:           None  
+Post Title:      New type of fireworks produced in China, they call it "Hiroshima Romance"  
+:::::: Reddit User Comment: ======  
+That is all bullshit. This is just a liquid gas mine.
+
+This is not a manufactured firework. It is a heavy metal tube with a small black powder and titanium sponge (the sparks you see, it helps ensure complete combustion of the fuel) charge at the bottom then you fill it up with gasoline.
+
+Quick edit, This is what a 1200 gallon fireball looks like. Shot by Bill Corbet "The Fireball Dudes" at PGI 2019 [https://youtu.be/QUR7B0HJpS4?si\=g\-OIncZ8Z0wRURE3](https://youtu.be/QUR7B0HJpS4?si=g-OIncZ8Z0wRURE3)
+
+
+
+
+=============
+  
+## Reddit comment o4mor0z
+
+    entry 78
+
+Comment URL: https://old.reddit.com/r/fixedbytheduet/comments/1r122d9/all_he_did_was_drink/o4mor0z/  
+Comment ID:      o4mor0z  
+Author:          MrLancaster  
+Bio:             LancasterMan : Just a normal working-class guy with no affiliations.   
+Account Created: 2013-02-23T05:46:00Z  
+Link Karma:      1940  
+Comment Karma:   58738  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-10T15:36:47Z  
+Score:           8 points  
+Post Title:      ALL HE DID WAS DRINK 😭  
+:::::: Reddit User Comment: ======  
+Mentioning "red flags" has become a red flag in and of itself lmao.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> CHOICE_MARRIAGE_HONESTY - the entire video.
+>
+
+
+=============
+  
+## Reddit comment o4oju3o
+
+    entry 79
+
+Comment URL: https://old.reddit.com/r/CuratedTumblr/comments/1r1c4r5/most_people_dont_understand_dont_understand_what/o4oju3o/  
+Comment ID:      o4oju3o  
+Author:          Artex301  
+Bio:               
+Account Created: 2016-05-05T19:28:36Z  
+Link Karma:      31605  
+Comment Karma:   428145  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-10T20:46:53Z  
+Score:           137 points  
+Post Title:      Most people don’t understand don’t understand what gothic literature actually is  
+:::::: Reddit User Comment: ======  
+Pretty sure *all* classic literature that gets adapted this many times ends up being wildly misinterpreted.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> But no way does year 1776 Constitution get misinterpreted in year 2026... just other writings. We do not teach interpretation pitfalls. Media ecology, time shifting media ecology.
+> 
+> * Neil Postman, Amusing Ourselves to Death, page 11: “… beginning in the fourteenth century, the clock made us into time-keepers, and then time-savers, and now time-servers… with the invention of the clock, Eternity ceased to serve as the measure and focus of human events.”
+>
+
+
+=============
+  
+## Reddit comment o4n0nfy
+
+    entry 80
+
+Comment URL: https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora_il_pd_brutally_beating_and/o4n0nfy/  
+Comment ID:      o4n0nfy  
+Author:          Comfortable-Rain-109  
+Bio:               
+Account Created: 2024-06-05T06:13:25Z  
+Link Karma:      374  
+Comment Karma:   2734  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-10T16:32:17Z  
+Score:           339 points  
+Post Title:      More footage of Aurora, IL PD brutally beating and abducting children from an anti-ICE school walk out protest (2/9/26)  
+:::::: Reddit User Comment: ======  
+Every time I see this shit and know it’s all for a billionaire pedophile 😭🤯
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It is for content creation. For Reddit fandoms of I.C.E. raids. Why are Reddit end-users not quoting Dr. Bandy X Lee's books over and over and addressing the cult behaviors / cult deprogramming needs and mental health crisis of MAGA / ICE / Trump / Fox News HDTV fandoms, etc... Reddit community is a cult of ICE content to mock and insult. Instead of actually turning to intellectual leaders who want to lead us mentally out of ICE mindsets.
+>
+
+
+=============
+  
+## Reddit comment o4n757n
+
+    entry 81
+
+Comment URL: https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora_il_pd_brutally_beating_and/o4n757n/  
+Comment ID:      o4n757n  
+Author:          blinkyknilb  
+Bio:               
+Account Created: 2023-02-20T21:24:54Z  
+Link Karma:      1643  
+Comment Karma:   13797  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-10T17:02:06Z  
+Score:           63 points  
+Post Title:      More footage of Aurora, IL PD brutally beating and abducting children from an anti-ICE school walk out protest (2/9/26)  
+:::::: Reddit User Comment: ======  
+Why is force necessary for a civil misdemeanor?
+
+
+
+
+=============
+  
+## Reddit comment o4n18yh
+
+    entry 82
+
+Comment URL: https://old.reddit.com/r/LetsDiscussThis/comments/1r152x2/more_footage_of_aurora_il_pd_brutally_beating_and/o4n18yh/  
+Comment ID:      o4n18yh  
+Author:          GeoWhale15  
+Bio:             La vostra Balena Geografica di Quartiere : Hi, I'm an Italian fan of Scooby-Doo, Disney, Kendal, Minecraft, Pokèmon and a lot of other things and I love reading, science and geography.  
+Account Created: 2025-03-12T14:16:06Z  
+Link Karma:      10206  
+Comment Karma:   21029  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-10T16:35:01Z  
+Score:           41 points  
+Post Title:      More footage of Aurora, IL PD brutally beating and abducting children from an anti-ICE school walk out protest (2/9/26)  
+:::::: Reddit User Comment: ======  
+1\) Wow america is a really bad place
+
+2\) When I read IL PD I thought about a political party here in Italy
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o4pun2j
+
+    entry 83
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pun2j/  
+Comment ID:      o4pun2j  
+Author:          twistedheart45t  
+Bio:               
+Account Created: 2021-10-02T06:23:33Z  
+Link Karma:      17  
+Comment Karma:   2342  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-11T00:48:24Z  
+Score:           2584 points  
+Post Title:      Rest in peace, Course...  
+:::::: Reddit User Comment: ======  
+This whole situation should not have been made public.
+
+
+
+
+=============
+  
+## Reddit comment o4pvxsr
+
+    entry 84
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pvxsr/  
+Comment ID:      o4pvxsr  
+Author:          WafWouf  
+Bio:             Look behind you, I'm certainly not here  
+Account Created: 2022-01-23T03:17:54Z  
+Link Karma:      7078  
+Comment Karma:   49768  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-11T00:56:00Z  
+Score:           511 points  
+Post Title:      Rest in peace, Course...  
+:::::: Reddit User Comment: ======  
+It's not new that CourseMediocre was hated(I can't say otherwise, there's some people that were very hostile), I was also of the group that was disagreeing with what she was doing in this sub and can't lie that I think that her whole contribution had a negative outcome on this sub, but no need to be an asshole nonetheless.
+
+I'll be honest, I don't even know what to think of that whole situation, scams exist, people can fake a whole personality and it's hard to say if we really know the person we talk to, especially when it's in long distance. There are people who theoriese that she's a bot, or a false account for farms karming, we will never know.
+
+But for fuck sake guys, even if you think this whole situation is cringe, "a Reddit mod falling in love with her Reddit mod girlfriend who maybe doesn't even exist", a man is grieving, please be a fucking human and don't be an asshole. Would you like having multiple people bullying you, insulting you, when you were in a very vulnerable moment?
+
+Riobox, I'm talking to you personally, there's people who think this whole situation is fake, some things feel sketchy(And honestly I can't lie that the possibility exists in my head) you should take a break of Reddit and take time to do the point in your life, I'm wishing you good luck, life isn't always fun.
+
+If anybody who reads this struggle with mental health, please have a talk with somebody you trust, ending your life isn't a solution and there're so many beautiful things in life that are worth(my dm are open if someone wants to vent, I already have been in your place \<3\)
+
+And CourseMediocre, I'd like to trust that you're real and at this point I don't care if I've been fooled, I just hope you're resting in peace.
+
+
+
+
+=============
+  
+## Reddit comment o4pv2hn
+
+    entry 85
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pv2hn/  
+Comment ID:      o4pv2hn  
+Author:          pccatmage72  
+Bio:             I like Pokémon  
+Account Created: 2025-03-07T00:55:17Z  
+Link Karma:      4610  
+Comment Karma:   3936  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-11T00:50:54Z  
+Score:           213 points  
+Post Title:      Rest in peace, Course...  
+:::::: Reddit User Comment: ======  
+Just lock the post already, I’ve already seen so many negative comments
+
+
+
+
+=============
+  
+## Reddit comment o4pv3i4
+
+    entry 86
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pv3i4/  
+Comment ID:      o4pv3i4  
+Author:          KatharineKatharsis  
+Bio:             katharsis : yeah  
+Account Created: 2017-10-16T15:09:52Z  
+Link Karma:      2806  
+Comment Karma:   9589  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-11T00:51:04Z  
+Score:           74 points  
+Post Title:      Rest in peace, Course...  
+:::::: Reddit User Comment: ======  
+I never understood the hate she got in this sub, all her posts were top notch. RIP 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Anyone can create a new subreddit and invite others to go try something different. But people have faith in hate.
+>
+
+
+=============
+  
+## Reddit comment o4pvj9v
+
+    entry 87
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r1id73/rest_in_peace_course/o4pvj9v/  
+Comment ID:      o4pvj9v  
+Author:          RandomBoiInReddit  
+Bio:             CB : Strong coffee with a hint of autism.  
+Account Created: 2021-01-26T23:31:13Z  
+Link Karma:      11140  
+Comment Karma:   18328  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-11T00:53:37Z  
+Score:           46 points  
+Post Title:      Rest in peace, Course...  
+:::::: Reddit User Comment: ======  
+You know, seeing some comments in this post really made me realize how much Coursemediocre's overall positivity and funny posts was overshadowing a lot of shitty members in this community.
+
+I know that going through all of this will be your own personal journey, but I hope that it ends somewhat okay, and that you're able to move on from this, best regards Riobox
+
+Meus pesames, Riobox
+
+
+
+
+=============
+  
+## Reddit comment o4pkmq9
+
+    entry 88
+
+Comment URL: https://old.reddit.com/r/books/comments/1r1ewhd/sydney_author_guilty_of_child_abuse_after_book/o4pkmq9/  
+Comment ID:      o4pkmq9  
+Author:          Ace_Procrastinator  
+Bio:               
+Account Created: 2025-08-06T00:53:35Z  
+Link Karma:      407  
+Comment Karma:   7878  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-10T23:51:40Z  
+Score:           1096 points  
+Post Title:      Sydney author guilty of child abuse after book, Daddy’s Little Toy, depicted adult role-playing as toddler  
+:::::: Reddit User Comment: ======  
+Missing from the previous commenter’s write up are three (edit: 4\) key facts: 
+
+1\) in the book the MMC meets the FMC when she is actually a toddler and is her father’s best friend. The MMC apparently talks about the FMC sexually when he first meets her, as a toddler.
+
+2\) The author is married to her father’s best friend who has known her since she was a toddler.
+
+3\) The author has posted about her toddler and preschool daughters in gross, sexual ways.
+
+4\) The author added content that she knew to be illegal in her country *after* her editor had finished with the book, which is why the editor was not found guilty. 
+
+Edit: BBC article with more information: <https://www.bbc.com/news/articles/ckgzv529v5no>
+
+Edit 2: this [r/RomanceBooks](/r/RomanceBooks) thread has more information from the time she was arrested. Trigger warnings for the discussion of CSAM in this thread. <https://www.reddit.com/r/RomanceBooks/s/KvwJVm9LTL>
+
+
+
+
+=============
+  
+## Reddit comment o4q2bxz
+
+    entry 89
+
+Comment URL: https://old.reddit.com/r/books/comments/1r1ewhd/sydney_author_guilty_of_child_abuse_after_book/o4q2bxz/  
+Comment ID:      o4q2bxz  
+Author:          Matdredalia  
+Bio:             Mattie : FUCK ICE, fuck Fuhrer Trump, and fuck you if you agree with what's happening. They/Them. 30s. Furparent. Writer. Nerd. Crafter. Tea-Fanatic. Hate Amazon, &lt;3 my Kindle. Swiftie. Denver Nuggets FOREVER!  
+Account Created: 2010-09-02T07:39:47Z  
+Link Karma:      986  
+Comment Karma:   15025  
+Comment Age:     47 minutes ago  
+Timestamp:       2026-02-11T01:34:25Z  
+Score:           8 points  
+Post Title:      Sydney author guilty of child abuse after book, Daddy’s Little Toy, depicted adult role-playing as toddler  
+:::::: Reddit User Comment: ======  
+<https://imgur.com/2S20JNX> \- Here's the review of an ARC someone posted before GoodReads removed the book from the site
+
+<https://imgur.com/vxuSXuq> \- Here's a post from the author's own social media where she literally has the male MC talking about how the female MC is "FINALLY 18," and how he's "wanted her longer than he can legally admit."
+
+These make it pretty abundantly clear that this is not a normal DD/lg / age play / age gap romance book.
+
+It is, quite literally, sexualizing and glorifying grooming and pedophilia.
+
+I'm not advocating for her to go to prison. I am begging people to actually consider the whole scope of what is contained here and realize that we can stand against the criminalization of books while also not acting like what this woman wrote isn't exactly what it is:
+
+Blatant child pornography in verbal form that this woman published and tried to sell, \*knowing\* it was illegal in her country (which begs the question of why) \-\- which is why she circumvented her editors and Beta Readers with the problematic material and added it in after the fact.
+
+Even LitErotica doesn't let you publish works that sexualize minors, FFS.
+
+Again, not saying she should go to prison, but we should not be normalizing writing / publishing shit like this.
+
+
+
+
+=============
+  
+## Reddit comment o4pg247
+
+    entry 90
+
+Comment URL: https://old.reddit.com/r/books/comments/1r1ewhd/sydney_author_guilty_of_child_abuse_after_book/o4pg247/  
+Comment ID:      o4pg247  
+Author:          direlyn  
+Bio:               
+Account Created: 2012-10-21T00:52:35Z  
+Link Karma:      131  
+Comment Karma:   3943  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-10T23:25:39Z  
+Score:           574 points  
+Post Title:      Sydney author guilty of child abuse after book, Daddy’s Little Toy, depicted adult role-playing as toddler  
+:::::: Reddit User Comment: ======  
+As gross as this is, and I'm sure a thousand people are going to scream at me, how is this different than horror novels depicting disemboweling someone from the killer's perspective? Like, King got away with writing about child orgies. Am I missing something in this case? Is it illegal because it promotes this disgusting behavior happening in real life?
+
+
+
+
+=============
+  
+## Reddit comment o4sbux3
+
+    entry 91
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r1un0r/petah_whats_wrong_with_the_name/o4sbux3/  
+Comment ID:      o4sbux3  
+Author:          Dramatic-Border3549  
+Bio:               
+Account Created: 2024-10-08T20:37:34Z  
+Link Karma:      3233  
+Comment Karma:   50714  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-11T12:13:17Z  
+Score:           858 points  
+Post Title:      Petah, what’s wrong with the name?  
+:::::: Reddit User Comment: ======  
+Here in Brazil we also have people naming people weird names, but we don't see it as "black people" names, but as poor people's names
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> So, think about this. Billionaires have programmed the general public to punch down on poor people for their personal expression. Poor people are programmed to insult and mock other poor people.
+> 
+> * “America is the wealthiest nation on Earth, but its people are mainly poor, and poor Americans are urged to hate themselves. To quote the American humorist Kin Hubbard, 'It ain’t no disgrace to be poor, but it might as well be.' It is in fact a crime for an American to be poor, even though America is a nation of poor. Every other nation has folk traditions of men who were poor but extremely wise and virtuous, and therefore more estimable than anyone with power and gold. No such tales are told by the American poor. They mock themselves and glorify their betters. The meanest eating or drinking establishment, owned by a man who is himself poor, is very likely to have a sign on its wall asking this cruel question: 'if you’re so smart, why ain’t you rich?' There will also be an American flag no larger than a child’s hand – glued to a lollipop stick and flying from the cash register. Americans, like human beings everywhere, believe many things that are obviously untrue. Their most destructive untruth is that it is very easy for any American to make money. They will not acknowledge how in fact hard money is to come by, and, therefore, those who have no money blame and blame and blame themselves. This inward blame has been a treasure for the rich and powerful, who have had to do less for their poor, publicly and privately, than any other ruling class since, say Napoleonic times. Many novelties have come from America. The most startling of these, a thing without precedent, is a mass of undignified poor. They do not love one another because they do not love themselves.” ― Kurt Vonnegut, Slaughterhouse-Five. The Children's Crusade: A Duty-Dance with Death. Year 1969
+>
+
+
+=============
+  
+## Reddit comment o4x34r0
+
+    entry 92
+
+Comment URL: https://old.reddit.com/r/NonPoliticalTwitter/comments/1r2fdsi/aidr/o4x34r0/  
+Comment ID:      o4x34r0  
+Author:          SlowNPC  
+Bio:               
+Account Created: 2022-01-23T08:33:12Z  
+Link Karma:      145  
+Comment Karma:   16061  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-12T03:07:38Z  
+Score:           595 points  
+Post Title:      ai;dr  
+:::::: Reddit User Comment: ======  
+I saw someone say "why should I bother to read something someone else couldn't be bothered to write?"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The crisis ongoing since year 2013 is:
+> 
+> nf;dr    
+> nonfiction, did not read   
+> not entertaining and amusing, not meme Tweet-joke washing of Trump, did not read   
+> serious learning, did not read   
+> Neil Postman was correct in year 1985 nonfiction book.
+>
+
+
+=============
+  
+## Reddit comment o4xebz5
+
+    entry 93
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r2iaw3/peta_are_you_a_nurse/o4xebz5/  
+Comment ID:      o4xebz5  
+Author:          speakernoodlefan  
+Bio:               
+Account Created: 2023-10-01T21:09:27Z  
+Link Karma:      10926  
+Comment Karma:   15910  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-12T04:22:03Z  
+Score:           218 points  
+Post Title:      Peta are you a nurse  
+:::::: Reddit User Comment: ======  
+Got it, on the rare chance that my genital herpes actually comes from common HSV\-1 it's really not that big a deal to hide it from my partner.
+
+Edit: /s since it wasn't apparent that I was mocking someone downplaying hiding STDs from their partner because a version of the infection is common.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fiction vs. nonfiction information tagging.
+>
+
+
+=============
+  
+## Reddit comment o4yh4a6
+
+    entry 94
+
+Comment URL: https://old.reddit.com/r/Animemes/comments/1r2pb2v/bro_got_zero_rizz_unlike_himmel/o4yh4a6/  
+Comment ID:      o4yh4a6  
+Author:          a1oner_bvcksn6  
+Bio:             Ren3gadeA55V551N : CATS ARE THE BEST!   
+Account Created: 2023-11-25T14:10:48Z  
+Link Karma:      1280473  
+Comment Karma:   72160  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-12T10:08:47Z  
+Score:           954 points  
+Post Title:      Bro got zero rizz unlike Himmel.  
+:::::: Reddit User Comment: ======  
+Bro was gonna buy the necklace, but quickly realized Fern will only get mad at him for spending outside of necessity. And we all know how much Stark wants to avoid making Fern angry
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> CHOICE_MARRIAGE_HONESTY 
+> 
+> Social post { https://autistics.life/@RoundSparrow/116058384697057295 https://bsky.app/profile/roundsparrow.bsky.social/post/3meocwoxoe22z }
+>
+
+
+=============
+  
+## Reddit comment o512qpx
+
+    entry 95
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o512qpx/  
+Comment ID:      o512qpx  
+Author:          DistortoiseLP  
+Bio:               
+Account Created: 2013-06-17T23:32:43Z  
+Link Karma:      46226  
+Comment Karma:   1306027  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-12T18:58:51Z  
+Score:           2069 points  
+Post Title:      Petah what's the joke? Why would she be good on the 49ers?  
+:::::: Reddit User Comment: ======  
+
+> Camila Parker or Camilaparkedhere is an AI\-generated OnlyFans model and Instagram influencer known for cosplaying as a health teacher in Texas.
+
+That's a lot of dead internet in one sentence. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And brain-damaging NFL football square-logic Charlie Brown Lucy American football blockhead thinking on social media screen shot. https://www.brenthartinger.com/p/should-charlie-brown-have-been-allowed/comments
+>
+
+
+=============
+  
+## Reddit comment o517p9o
+
+    entry 96
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o517p9o/  
+Comment ID:      o517p9o  
+Author:          NickBurnsCompanyGuy  
+Bio:               
+Account Created: 2023-01-25T03:48:23Z  
+Link Karma:      403  
+Comment Karma:   45430  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-12T19:22:35Z  
+Score:           51 points  
+Post Title:      Petah what's the joke? Why would she be good on the 49ers?  
+:::::: Reddit User Comment: ======  
+For some reason Reddit keeps showing me memesjustforus and it's driving me mad. It's all maga memes.
+
+
+
+
+=============
+  
+## Reddit comment o519499
+
+    entry 97
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r31xe7/petah_whats_the_joke_why_would_she_be_good_on_the/o519499/  
+Comment ID:      o519499  
+Author:          SelkieKezia  
+Bio:             Selkie : Science nerd. Currently in viral drug development research! Long live reddit!  
+Account Created: 2013-09-27T03:39:50Z  
+Link Karma:      7883  
+Comment Karma:   27256  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-12T19:29:22Z  
+Score:           243 points  
+Post Title:      Petah what's the joke? Why would she be good on the 49ers?  
+:::::: Reddit User Comment: ======  
+Unfortunately for us cultured gentlemen, she is 100% AI
+
+
+
+
+=============
+  
+## Reddit comment o52iue2
+
+    entry 98
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1r38fce/record_first_name_wrong/o52iue2/  
+Comment ID:      o52iue2  
+Author:          RowanWinterlace  
+Bio:             RowanWinterlace  : "We all turn the wheel, but I wish to be the one who decides the way it turns."  
+Account Created: 2018-08-30T09:30:04Z  
+Link Karma:      42729  
+Comment Karma:   145034  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-12T23:13:40Z  
+Score:           1526 points  
+Post Title:      Record first, name wrong.  
+:::::: Reddit User Comment: ======  
+
+> *"Jutta Leerdam's boyfriend — best known for having the world's most celebrated double\-broken jaw — is not known to have meaningfully contributed to her monumental record. But hey, we need the clicks."*
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> In twitter-logic tweet-thinking this "engagement" of landing on the front page of Reddit is all the society programming we should keep prizing. It's not as if we have seen enough examples of this mindset being exploited and actively handed down to children joining the Internet. Neil Postman was correct in his 1985 book about media ecology.
+>
+
+
+=============
+  
+## Reddit comment o4pyrzh
+
+    entry 99
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4pyrzh/  
+Comment ID:      o4pyrzh  
+Author:          boredroom-90  
+Bio:               
+Account Created: 2022-07-15T20:48:24Z  
+Link Karma:      256  
+Comment Karma:   4291  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-11T01:12:55Z  
+Score:           252 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+Nah the guys messages seem weird and I'm weirded out by him making the whole thing public
+
+
+
+
+=============
+  
+## Reddit comment o4q2d3e
+
+    entry 100
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q2d3e/  
+Comment ID:      o4q2d3e  
+Author:          BABOOWIE  
+Bio:               
+Account Created: 2025-12-20T11:34:06Z  
+Link Karma:      1  
+Comment Karma:   2360  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-11T01:34:37Z  
+Score:           167 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+1\) total troll and everyone is falling for it
+
+2\) This woman is dodging this man so hard she faked her own death
+
+3\) this is all real and we are witnessing mental illness/trauma in real time 
+
+God i hope it's \#2
+
+
+
+
+=============
+  
+## Reddit comment o4q1b98
+
+    entry 101
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q1b98/  
+Comment ID:      o4q1b98  
+Author:          Emergency-Mobile8612  
+Bio:               
+Account Created: 2024-02-11T14:50:12Z  
+Link Karma:      96  
+Comment Karma:   62276  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-11T01:28:14Z  
+Score:           59 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+really hope he’s just engagement baiting, but even so, it went stupidly far. bcs this whole thing is the fakest shit i’ve ever seen, all the interactions are kindergarten level theatre writing
+
+“she” was inactive because he initially saw “her” profile was getting targeted due to bad posts, so he faked his porn focused alt account’s death both to save face of the humiliation he’s been facing all around the website and to make people feel guilty for criticising his alt account’s posts, because he clearly is quite insecure with criticism, as seen by the amount of comments and posts he removes
+
+that guy and his obsession with ai characters (see his personal website) is on another level of unhealthy
+
+this whole thing is the most ridiculous thing i’ve seen this year, for his own sake, hope he gets off the internet and into some irl hobbies. he’s still young and can redirect his life, spending his time doing this is genuinely ridiculous
+
+he’s on german time, and he couldn’t even wait until the end of day to post the fake update because he couldn’t go to sleep with the idea that he was being humiliated left and right
+
+he will prob keep the whole pretend game and permaban anyone who calls this, but seriously, i’m praying for that man
+
+
+
+
+=============
+  
+## Reddit comment o4q2om3
+
+    entry 102
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q2om3/  
+Comment ID:      o4q2om3  
+Author:          Blanketshaper  
+Bio:               
+Account Created: 2021-01-29T07:06:53Z  
+Link Karma:      9042  
+Comment Karma:   82900  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-11T01:36:33Z  
+Score:           60 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+Her brother did not go on her phone to look at her discord🤦‍♂️and her brother did not have her phone password. I just don’t believe for a second that this is real
+
+
+
+
+=============
+  
+## Reddit comment o4q0617
+
+    entry 103
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q0617/  
+Comment ID:      o4q0617  
+Author:          Trevor_Eklof6  
+Bio:               
+Account Created: 2020-07-24T02:04:13Z  
+Link Karma:      795  
+Comment Karma:   6807  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-11T01:21:16Z  
+Score:           87 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+It honestly seems fake like it's too convenient
+
+
+
+
+=============
+  
+## Reddit comment o4q0f65
+
+    entry 104
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q0f65/  
+Comment ID:      o4q0f65  
+Author:          NoLadderStall  
+Bio:               
+Account Created: 2022-10-17T23:38:39Z  
+Link Karma:      5236  
+Comment Karma:   7078  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-11T01:22:49Z  
+Score:           42 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+I don't want to be mean but the DMs from her brother seem suspect...I've seen this circus of faking your death online to get away from shit a few times before.
+
+
+
+
+=============
+  
+## Reddit comment o4r0q4w
+
+    entry 105
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4r0q4w/  
+Comment ID:      o4r0q4w  
+Author:          santiagotruiz19  
+Bio:               
+Account Created: 2019-04-10T01:48:02Z  
+Link Karma:      7001  
+Comment Karma:   15169  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T05:18:07Z  
+Score:           16 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+The chat screenshots are embarrassing:
+
+“She committed suicide yesterday”
+
+“Noooooooooooooooooooooooooo”
+
+“Woah man calm down”
+
+
+
+
+=============
+  
+## Reddit comment o4qqfwy
+
+    entry 106
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qqfwy/  
+Comment ID:      o4qqfwy  
+Author:          ThaOppanHaimar  
+Bio:               
+Account Created: 2024-04-05T00:12:26Z  
+Link Karma:      6265  
+Comment Karma:   10507  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T04:03:59Z  
+Score:           14 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+This is so stupidly fake. 
+
+It screams like someone wanting to quietly take over the subreddit and their old persona was caught or whatever.
+
+Reminded of an "anarchist" who really was a man pretending to be someone else so when they got caught that they really weren't an anarchist, and also weren't who they claimed to be, they faked their death...
+
+
+
+
+=============
+  
+## Reddit comment o4q1rj4
+
+    entry 107
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q1rj4/  
+Comment ID:      o4q1rj4  
+Author:          Ballinbroooo  
+Bio:               
+Account Created: 2025-12-20T00:57:36Z  
+Link Karma:      1  
+Comment Karma:   37  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-11T01:31:00Z  
+Score:           26 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+Her brother didn’t seem too shook up by it all. If they were not close why would he casually going through their personal stuff so quickly? And sending “she’s no more more” to random people on Reddit?? 
+
+This whole thing seems so weird. Sad if true, but boy, that mod is weird af
+
+
+
+
+=============
+  
+## Reddit comment o4quuni
+
+    entry 108
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4quuni/  
+Comment ID:      o4quuni  
+Author:          your-mom--  
+Bio:               
+Account Created: 2017-09-11T13:36:36Z  
+Link Karma:      450  
+Comment Karma:   136496  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T04:34:42Z  
+Score:           10 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+You won't convince me this is real lol. The messages read like when the FBI released the charlie Kirk shooter texts that you also can't convince me are real. It's just not how actual humans act.
+
+Nooooo
+
+Noooooooo
+
+She lied to me!
+
+Lmao
+
+
+
+
+=============
+  
+## Reddit comment o4q6fr8
+
+    entry 109
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q6fr8/  
+Comment ID:      o4q6fr8  
+Author:          ExLeaguer  
+Bio:               
+Account Created: 2018-07-31T20:44:05Z  
+Link Karma:      3155  
+Comment Karma:   1586  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-11T01:59:14Z  
+Score:           20 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+Girl 100% got bored/sick of LARPing as a couple with this dude online, ghosted him for two days hoping he’d move on, realized he was an over obsessed e\-dating weirdo, had her “brother” spin the classic “she died” tale. 
+
+😭😭😭 People who e\-date are the cringiest cornballs in history, touch grass
+
+
+
+
+=============
+  
+## Reddit comment o4q9r5i
+
+    entry 110
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q9r5i/  
+Comment ID:      o4q9r5i  
+Author:          Dense-Law-6600  
+Bio:             Ten :   
+Account Created: 2023-06-10T06:03:55Z  
+Link Karma:      29  
+Comment Karma:   168  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T02:19:08Z  
+Score:           14 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+There's no way he put her Louis Lane profile picture on a tombstone, it isn't even her 😭
+
+The [messages](https://www.reddit.com/media?url=https%3A%2F%2Fpreview.redd.it%2Frest-in-peace-course-v0-f5vtx6uhhrig1.jpeg%3Fwidth%3D1618%26format%3Dpjpg%26auto%3Dwebp%26s%3D0ad7f8fdf599de1c522d3bfc67e2eb5dfb06ddb0) he shared from the supposed brother feel like something a twelve year old dreamt up
+
+
+
+
+=============
+  
+## Reddit comment o4qajey
+
+    entry 111
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qajey/  
+Comment ID:      o4qajey  
+Author:          DrZoidburger89  
+Bio:             SlippinJimmy :   
+Account Created: 2020-06-19T22:45:24Z  
+Link Karma:      4250  
+Comment Karma:   27712  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T02:23:50Z  
+Score:           13 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+Either the sub is in on the joke, or every single person in that comment section is functionally braindead. Like genuinely so fucking stupid, they shouldn't be allowed to reproduce, so terminally online they should be analyzed for science.
+
+I would pay to go to a zoo if the people in that comment section were the animals.
+
+After scrolling through the sub for a bit, I think it's the ladder.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People have zero sense that 1) RFK Jr has been in charge of USA health care and disease control for more than a year. 2) A reality TV star has a cult to fiction so strong. 3) Rupert Murdoch media systems have cults that love fiction and believe it. 4) Elon Musk, richest man in the world, purchased an entire cult of Twitter media and it was not the great failure Reddit users often claim it to be. - People can not imagine hate-watching and mocking is cult behaviors.
+>
+
+
+=============
+  
+## Reddit comment o4q8j8n
+
+    entry 112
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q8j8n/  
+Comment ID:      o4q8j8n  
+Author:          Safe_Decision_4222  
+Bio:             Aow Kana :   
+Account Created: 2022-11-15T11:09:08Z  
+Link Karma:      34  
+Comment Karma:   519  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T02:11:51Z  
+Score:           5 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+The whole thing is suspect, first and foremost how he casually brings up how he was grieving due to the situation?
+
+If I was in his position and I assume many others, we wouldn't bring up how we grieved in detail, we'd mention how it affected us (for example) "This situation has made me more isolated, emotional, and I've been grieving more than usual".
+
+Second of all the DMS??? The first that many have mentioned is the brother checking reddit DMS (assuming he has the phone now for a few days), why would the brother check out the DMS? I would never do that to my siblings phones God forbid if a situation like that were to occur. It would however make sense if the brother had posted an update to her profile breaking the news.
+
+Aka, "I'm u/.... Family member and unfortunately so and so user has passed away." This approach would make the most sense instead of invading her privacy and checking DMS.
+
+Also, the way OP responded to the "brothers" DMS was very odd too, switching constantly from caplocks to then lowercase, also the caplocks reminds me of my teenage days when I would yell at my friends over text in a playful manner. This didn't make the responses from OP in my opinion seem genuine. 
+
+I don't know, the whole thing seems very suspect, also the way he immediately replaced her with a mod too, if he was really grieving he'd be off the sub for a few days, weeks, or a month even, not just replace her with a mod straight away.
+
+
+
+
+=============
+  
+## Reddit comment o4q92iq
+
+    entry 113
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q92iq/  
+Comment ID:      o4q92iq  
+Author:          FriendlyDrummers  
+Bio:             idk will block if I think someone is rude. you and I don't owe random people on the internet our time   
+Account Created: 2023-09-19T16:26:19Z  
+Link Karma:      67364  
+Comment Karma:   378090  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T02:15:03Z  
+Score:           10 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+My theory \- 
+
+The girl ghosted him and faked her own death. From what I saw, she was getting heat for power tripping as a mod. She wanted out. And if she cared about him, she would have given him her phone \#. OP is referring to her as his wife after a few months of dating, you're telling me he didn't scare her? Oh and also, maybe she saw what he looked like and wasn't into him. People vanish from the internet all the time, especially if it's just discord and reddit. People make new accounts.
+
+But no, I don't think a brother is going into the phone of their sister who just died from suicide. I find it hard to believe he's going up to her face or using her finger to unlock her phone just to snoop, and then to DM someone.
+
+
+
+
+=============
+  
+## Reddit comment o4qon4d
+
+    entry 114
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qon4d/  
+Comment ID:      o4qon4d  
+Author:          xylon69420  
+Bio:             Lucien : Just a fella that likes RDR2 and some other stuff  
+Account Created: 2022-05-02T06:10:02Z  
+Link Karma:      595  
+Comment Karma:   4290  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T03:51:46Z  
+Score:           5 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+I thought the whole point of the subreddit was for things to be satire (I’ve never visited the subreddit before but I just assumed from this whole “situation”). I thought everyone was playing along as a joke. Do people seriously believe this?
+
+
+
+
+=============
+  
+## Reddit comment o4rfsuw
+
+    entry 115
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4rfsuw/  
+Comment ID:      o4rfsuw  
+Author:          Unbuckled__Spaghetti  
+Bio:               
+Account Created: 2023-10-13T21:07:56Z  
+Link Karma:      1847  
+Comment Karma:   34171  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T07:26:23Z  
+Score:           4 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+Apparently, there's an archive of old comments from the mod where they are mostly speaking as an indian boy.
+
+<https://www.reddit.com/r/antimeme2/comments/1r1orz0/rcoursemedicore7998_is_an_indian_boy_proof/>
+
+One of these comments included their xbox username. That account was seen playing minecraft yesterday. Supposedly, the mod committed suicide 2 days ago.
+
+<https://www.reddit.com/r/antimeme2/comments/1r1qids/playing_minecraft_from_the_grave/>
+
+The boyfriend also claimed she was from Myanmar. Another one of these comments by the mod have them claiming to be from india.  
+[https://ihsoyct.github.io/index.html?comments\=1mzecmk\&id\=naimpae\&backend\=artic\_shift](https://ihsoyct.github.io/index.html?comments=1mzecmk&id=naimpae&backend=artic_shift)
+
+
+
+
+=============
+  
+## Reddit comment o4q66ns
+
+    entry 116
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4q66ns/  
+Comment ID:      o4q66ns  
+Author:          Kiwiteepee  
+Bio:               
+Account Created: 2012-02-13T03:26:18Z  
+Link Karma:      397  
+Comment Karma:   98924  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-11T01:57:43Z  
+Score:           7 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+I don't wanna risk making fun of someone who MAY have committed suicide... but this seems really off. I wouldn't be surprised if this was all a catfish that god way out of hand.
+
+But if she really did, that fuckin sucks. Idk, none of this should be public.
+
+
+
+
+=============
+  
+## Reddit comment o4rjrcs
+
+    entry 117
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4rjrcs/  
+Comment ID:      o4rjrcs  
+Author:          alu_nee_san  
+Bio:             Apollo : Apollo itensa emozione lover   
+Account Created: 2020-04-21T07:44:54Z  
+Link Karma:      28694  
+Comment Karma:   8035  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T08:03:23Z  
+Score:           3 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+<https://www.reddit.com/gallery/1r1orz0>
+
+The girl is literally a Indian teen boy, I m Indian and her dialect says 90% Indian teen boy just trolling and felt it went too deep so he had to take a death
+
+
+
+
+=============
+  
+## Reddit comment o4qiu4y
+
+    entry 118
+
+Comment URL: https://old.reddit.com/r/moistcr1tikal/comments/1r1j49t/update_on_the_anti_meme_moderator_couple/o4qiu4y/  
+Comment ID:      o4qiu4y  
+Author:          Axer3473  
+Bio:             Axer : i love the Knook, wish he loved me back  
+Account Created: 2022-08-23T02:52:09Z  
+Link Karma:      2346  
+Comment Karma:   23511  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T03:14:26Z  
+Score:           3 points  
+Post Title:      Update on the Anti meme Moderator couple  
+:::::: Reddit User Comment: ======  
+thank GOD there’s people here with brains. i thought i was going insane reading the replies in the sub, a bunch of glazers acting like it’s true. I know the mods probably deleted all the negative comments but still. this HAS to be fake
+
+
+
+
+=============
+  
+## Reddit comment o4qrwrs
+
+    entry 119
+
+Comment URL: https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4qrwrs/  
+Comment ID:      o4qrwrs  
+Author:          updateyourpenguins  
+Bio:               
+Account Created: 2022-05-25T06:28:32Z  
+Link Karma:      697  
+Comment Karma:   21798  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T04:14:05Z  
+Score:           129 points  
+Post Title:      yesterday a reddit mod made a missing post for his online gf who went offline for 2 days. and now it’s revealed that she allegedly killed herself, but people are suspicious that his gf was even real. i think charlie would find this ordeal intriguing  
+:::::: Reddit User Comment: ======  
+Dude i read the chat between the brother and the OP. When he tells op she killed herself he literally says "Shes no more more". Like dude cmon this is so obviously a catfish between the completely unrealistic texts and the fact that the picture of her is literally an actress. And everyone in the comments are just sipping the stupid juice.
+
+
+
+
+=============
+  
+## Reddit comment o4qx95l
+
+    entry 120
+
+Comment URL: https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4qx95l/  
+Comment ID:      o4qx95l  
+Author:          acbagel  
+Bio:             I''m in the empire business.  
+Account Created: 2015-07-18T22:46:20Z  
+Link Karma:      2669  
+Comment Karma:   46282  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T04:52:01Z  
+Score:           67 points  
+Post Title:      yesterday a reddit mod made a missing post for his online gf who went offline for 2 days. and now it’s revealed that she allegedly killed herself, but people are suspicious that his gf was even real. i think charlie would find this ordeal intriguing  
+:::::: Reddit User Comment: ======  
+This is so painfully fake... But I genuinely can't tell if this mod is in on it or if he is clueless about getting catfished
+
+
+
+
+=============
+  
+## Reddit comment o4qv53p
+
+    entry 121
+
+Comment URL: https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4qv53p/  
+Comment ID:      o4qv53p  
+Author:          Ms_Smythe  
+Bio:               
+Account Created: 2024-08-29T02:49:58Z  
+Link Karma:      767  
+Comment Karma:   9404  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T04:36:49Z  
+Score:           29 points  
+Post Title:      yesterday a reddit mod made a missing post for his online gf who went offline for 2 days. and now it’s revealed that she allegedly killed herself, but people are suspicious that his gf was even real. i think charlie would find this ordeal intriguing  
+:::::: Reddit User Comment: ======  
+I don't know man. It's fishy. No one talks about their dead family member like that. Maybe it's just me but even if my brother/sister isn't that close to me, at least I'd let the other person know how she passed with respect in my words. The "brother" said it like his pet lizard died.
+
+
+
+
+=============
+  
+## Reddit comment o4rbsxz
+
+    entry 122
+
+Comment URL: https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4rbsxz/  
+Comment ID:      o4rbsxz  
+Author:          Bloodmime  
+Bio:             I am Australian.  
+Account Created: 2019-12-29T12:43:15Z  
+Link Karma:      6386  
+Comment Karma:   24806  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T06:50:15Z  
+Score:           20 points  
+Post Title:      yesterday a reddit mod made a missing post for his online gf who went offline for 2 days. and now it’s revealed that she allegedly killed herself, but people are suspicious that his gf was even real. i think charlie would find this ordeal intriguing  
+:::::: Reddit User Comment: ======  
+This whole thing is just so reddit. The original missing person post was so unnecessary.
+
+
+
+
+=============
+  
+## Reddit comment o4satjj
+
+    entry 123
+
+Comment URL: https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4satjj/  
+Comment ID:      o4satjj  
+Author:          STEVMPVNK  
+Bio:             FAAELR! :   
+Account Created: 2018-04-14T15:55:49Z  
+Link Karma:      2755  
+Comment Karma:   8555  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T12:05:42Z  
+Score:           14 points  
+Post Title:      yesterday a reddit mod made a missing post for his online gf who went offline for 2 days. and now it’s revealed that she allegedly killed herself, but people are suspicious that his gf was even real. i think charlie would find this ordeal intriguing  
+:::::: Reddit User Comment: ======  
+Someone on antimeme2 made a post stating that she is actually an indian boy, the subreddit got banned just a few hours later
+
+[https://arctic\-shift.photon\-reddit.com/search?fun\=ids\&ids\=t3\_1r1orz0](https://arctic-shift.photon-reddit.com/search?fun=ids&ids=t3_1r1orz0)
+
+
+
+
+=============
+  
+## Reddit comment o4ru4ns
+
+    entry 124
+
+Comment URL: https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4ru4ns/  
+Comment ID:      o4ru4ns  
+Author:          Gigglegeist  
+Bio:             Gigi : 29/F Variety Streamer. I love the paranormal and to make people laugh! 
+
+If you ever need an ear, I am always available to chat. DMs always open!  
+Account Created: 2024-09-08T18:37:23Z  
+Link Karma:      3368  
+Comment Karma:   7614  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T09:42:12Z  
+Score:           7 points  
+Post Title:      yesterday a reddit mod made a missing post for his online gf who went offline for 2 days. and now it’s revealed that she allegedly killed herself, but people are suspicious that his gf was even real. i think charlie would find this ordeal intriguing  
+:::::: Reddit User Comment: ======  
+If the OP mod isn't in on it, my heart kind of hurts for him. It's so awful to feel. I wasn't catfished, but I had someone close to me fake his suicide and have all his friends tell me it was my fault etc. It's harrowing to lose someone you loved, regardless of if they were truthful of who they were.
+
+I have had a weird number of people in my life fake suicide and suicide attempts, some multiple times, so as sad as it is to say, I'm always extremely skeptical of this sort of thing.
+
+
+
+
+=============
+  
+## Reddit comment o4s6pae
+
+    entry 125
+
+Comment URL: https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4s6pae/  
+Comment ID:      o4s6pae  
+Author:          PrestigiousBalls_  
+Bio:               
+Account Created: 2025-09-12T16:14:43Z  
+Link Karma:      1610  
+Comment Karma:   687  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T11:33:53Z  
+Score:           6 points  
+Post Title:      yesterday a reddit mod made a missing post for his online gf who went offline for 2 days. and now it’s revealed that she allegedly killed herself, but people are suspicious that his gf was even real. i think charlie would find this ordeal intriguing  
+:::::: Reddit User Comment: ======  
+Amazing. The guy even gave himself the flair "her husband". You can't make this stuff up.
+
+
+
+
+=============
+  
+## Reddit comment o4t6ifj
+
+    entry 126
+
+Comment URL: https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4t6ifj/  
+Comment ID:      o4t6ifj  
+Author:          Bubbly-Ad-6428  
+Bio:             Sir.toad :  18+only MINORS DNI ❌️
+please be kind.
+dms are closed.
+
+  
+Account Created: 2024-10-15T02:01:53Z  
+Link Karma:      14660  
+Comment Karma:   4993  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T15:10:28Z  
+Score:           4 points  
+Post Title:      yesterday a reddit mod made a missing post for his online gf who went offline for 2 days. and now it’s revealed that she allegedly killed herself, but people are suspicious that his gf was even real. i think charlie would find this ordeal intriguing  
+:::::: Reddit User Comment: ======  
+The whole situation feels so artificial. Who goes NOOOOOOOOOO like there fucking Darth Vader over text. To there gf killing themselves none the less
+
+
+
+
+=============
+  
+## Reddit comment o4u7kzn
+
+    entry 127
+
+Comment URL: https://old.reddit.com/r/Cr1TiKaL/comments/1r1n2ki/yesterday_a_reddit_mod_made_a_missing_post_for/o4u7kzn/  
+Comment ID:      o4u7kzn  
+Author:          PlayTheBanjo  
+Bio:               
+Account Created: 2012-08-14T17:02:41Z  
+Link Karma:      7359  
+Comment Karma:   60350  
+Comment Age:     1 day ago  
+Timestamp:       2026-02-11T18:04:44Z  
+Score:           2 points  
+Post Title:      yesterday a reddit mod made a missing post for his online gf who went offline for 2 days. and now it’s revealed that she allegedly killed herself, but people are suspicious that his gf was even real. i think charlie would find this ordeal intriguing  
+:::::: Reddit User Comment: ======  
+The image of the "girlfriend" is just a screencap of [Rachel Brosnahan as Lois Lane from Superman (2025\)](https://vjackets.com/products/rachel-brosnahan-superman-lois-lane-blue-vest?srsltid=AfmBOopLjukL36GNB2cCDGr7ZnBCkev92uWkcn2Vxu5_dsUGk7m7Mxwu). Either that mod got hella catfished or he's fucking with us.
+
+
+
+
+=============
+  
+## Reddit comment o543fq2
+
+    entry 128
+
+Comment URL: https://old.reddit.com/r/Futurology/comments/1r3flg9/microsoft_ai_ceo_most_if_not_all_whitecollar/o543fq2/  
+Comment ID:      o543fq2  
+Author:          Tacosaurusman  
+Bio:               
+Account Created: 2017-11-23T15:27:45Z  
+Link Karma:      229  
+Comment Karma:   63309  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-13T05:05:24Z  
+Score:           688 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+"AI can't do your job, but an AI salesman can convince your boss to fire you and replace you with a chatbot that can’t do your job."
+
+* Cory Doctorow (that's the guy who coined the term 'enshittification')
+
+
+
+
+=============
+  
+## Reddit comment o55jeso
+
+    entry 129
+
+Comment URL: https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o55jeso/  
+Comment ID:      o55jeso  
+Author:          Cavalish  
+Bio:               
+Account Created: 2015-04-13T09:28:34Z  
+Link Karma:      27098  
+Comment Karma:   443740  
+Comment Age:     19 minutes ago  
+Timestamp:       2026-02-13T12:33:06Z  
+Score:           None  
+Post Title:      Sarcastic senior citizen  
+:::::: Reddit User Comment: ======  
+This attitude is great when sassing the cops, but anyone who has worked in customer service or retail can tell you that this type of old fella can get really tedious really fucking fast.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> these subjective tests and measures people are so confident about wreck the lives of autistic people. Every where you go, people think you are not telling the truth base don tone and body language, etc. I've read and heard the same patterns from thousands of people in autism support groups since year 2009. People think people are drunk or on drugs because of motor skill issues, speech patterns, etc. Mentally different people are treated like crap.
+>
+
+
+=============
+  
+## Reddit comment o54x5vj
+
+    entry 130
+
+Comment URL: https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o54x5vj/  
+Comment ID:      o54x5vj  
+Author:          Notesnook-Throwaway  
+Bio:               
+Account Created: 2025-10-06T20:20:58Z  
+Link Karma:      4  
+Comment Karma:   2181  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-13T09:25:07Z  
+Score:           11 points  
+Post Title:      Sarcastic senior citizen  
+:::::: Reddit User Comment: ======  
+Plenty of videos show people blow 0\.00 on a breathalyzer and to the cops that simply means it must be drugs instead of alcohol. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And if you act nervous because you are living under a police state or ICE state in year 2025 and year 2026... your nervousness around government power abusers will be interpreted as a sign of guilt over *something*. Trumpism PTSD / CPTSD. https://www.expressnews.com/columnist/elaine-ayala/article/trump-executive-order-mental-health-20160710.php "February 12, 2025 — It's a new form of PTSD — President Trump Stress Disorder — tied not just to the stresses involving his policies but the relationship..."
+>
+
+
+=============
+  
+## Reddit comment o55h69n
+
+    entry 131
+
+Comment URL: https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o55h69n/  
+Comment ID:      o55h69n  
+Author:          honk77  
+Bio:               
+Account Created: 2016-11-12T15:32:50Z  
+Link Karma:      20  
+Comment Karma:   46  
+Comment Age:     42 minutes ago  
+Timestamp:       2026-02-13T12:17:39Z  
+Score:           None  
+Post Title:      Sarcastic senior citizen  
+:::::: Reddit User Comment: ======  
+you sound like an english native, so let me uneducate you:  
+ \*their house  
+ \*their child
+
+..ffs
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> In a police state, the concern is superficial English on Reddit. Not We the People rising up to REMOVE the attitudes of dictators from society, but to make sure immigrants are harassed for possibly not using American English correctly. Language bigotry. Language as a tool of conformity instead of having any diversity or acceptance. Like a dress code rule, The Handmaiden's Tale society of mechanized dehumanizing concerns of personal expressions. People aren't allowed to be drunk, tired, worn out or impaired in any way and sound like sweet-sweet ChatGPT technically correct language.
+>
+
+
+=============
+  
+## Reddit comment o54uxjr
+
+    entry 132
+
+Comment URL: https://old.reddit.com/r/RandomVideos/comments/1r3k810/sarcastic_senior_citizen/o54uxjr/  
+Comment ID:      o54uxjr  
+Author:          iconiclabs  
+Bio:               
+Account Created: 2025-12-18T23:37:09Z  
+Link Karma:      298  
+Comment Karma:   1923  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-13T09:03:50Z  
+Score:           8 points  
+Post Title:      Sarcastic senior citizen  
+:::::: Reddit User Comment: ======  
+Lol he's not out of line he knows he can do whatever he wants because hes not doing anything wrong
+
+
+
+
+=============
+  
+## Reddit comment o5ay3ej
+
+    entry 133
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5ay3ej/  
+Comment ID:      o5ay3ej  
+Author:          LeftLiner  
+Bio:             He/him  
+Account Created: 2019-01-04T08:32:32Z  
+Link Karma:      815  
+Comment Karma:   172211  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-14T07:07:55Z  
+Score:           966 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+Not exactly. The government has banned paying for explicit sexual acts to be performed. You can still subscribe but you can't pay a performer to specifically do X. It's been given the same situation as prostitution.
+
+
+
+
+=============
+  
+## Reddit comment o5axtbk
+
+    entry 134
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5axtbk/  
+Comment ID:      o5axtbk  
+Author:          -HarmlessPotato-  
+Bio:               
+Account Created: 2022-10-13T21:32:56Z  
+Link Karma:      3285  
+Comment Karma:   33405  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-14T07:05:22Z  
+Score:           373 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+Censoring the word adult?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> BABEL_TOWER this kind of anti-public public social postings. Generic topic community of "/r/Interesting", posting title is non-specific as to meaning other than "tech giant".  Posting creator https://old.reddit.com/user/IamTheOneWhoKnocksU is 1 month Reddit account that got to first page. Do people consider "Only Fans" a technology company...
+> 
+> Anyway, the language usage is Tower of Babel drift. The image implies it is about girls working in Sweden, but online sex is about global reach. The customers making purchases from all over the world.
+>
+
+
+=============
+  
+## Reddit comment o5b16v4
+
+    entry 135
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b16v4/  
+Comment ID:      o5b16v4  
+Author:          butteryscotchy  
+Bio:             Who are you and why are you going through my profile???  
+Account Created: 2023-09-20T19:37:50Z  
+Link Karma:      14  
+Comment Karma:   54535  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-14T07:37:08Z  
+Score:           48 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+Jesus christ in heaven above. We grew up with South Park and Eminem... why the fuck is everyone censoring shit that aint even bad words?????
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> BABEL_TOWER and discussion of machine-influence on minds / culture of Reddit users. Although this could be a form of Reddit rage-bait or engagement given the 1 month account https://old.reddit.com/user/IamTheOneWhoKnocksU that posted this. The username is also provocative meme.
+>
+
+
+=============
+  
+## Reddit comment o5ay8wv
+
+    entry 136
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5ay8wv/  
+Comment ID:      o5ay8wv  
+Author:          GNB_Mec  
+Bio:               
+Account Created: 2017-01-12T01:52:06Z  
+Link Karma:      2795  
+Comment Karma:   69400  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-14T07:09:19Z  
+Score:           126 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+They banned paying for live, customized, or directed content. AFAIK, OF is still accessible in Sweden, it hurts the content makers more than anything
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Discussion replies mention religion values even if Christian religion isn't practiced as much.
+>
+
+
+=============
+  
+## Reddit comment o5axx8b
+
+    entry 137
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5axx8b/  
+Comment ID:      o5axx8b  
+Author:          OriginalMaximum949  
+Bio:               
+Account Created: 2023-06-29T05:37:35Z  
+Link Karma:      439  
+Comment Karma:   9231  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-14T07:06:20Z  
+Score:           40 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+As in should be free?
+
+
+
+
+=============
+  
+## Reddit comment o5axuop
+
+    entry 138
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5axuop/  
+Comment ID:      o5axuop  
+Author:          keirdre  
+Bio:               
+Account Created: 2009-10-17T16:58:26Z  
+Link Karma:      4508  
+Comment Karma:   43414  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-14T07:05:43Z  
+Score:           14 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+I agree, but it has been reported elsewhere. [https://www.loc.gov/item/global\-legal\-monitor/2025\-06\-10/sweden\-parliament\-criminalizes\-the\-purchase\-of\-online\-sexual\-acts/](https://www.loc.gov/item/global-legal-monitor/2025-06-10/sweden-parliament-criminalizes-the-purchase-of-online-sexual-acts/)
+
+
+
+
+=============
+  
+## Reddit comment o5awtdn
+
+    entry 139
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5awtdn/  
+Comment ID:      o5awtdn  
+Author:          EmpoweRED21  
+Bio:             Probably yappin  
+Account Created: 2020-11-23T18:02:29Z  
+Link Karma:      11499  
+Comment Karma:   70093  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-14T06:56:14Z  
+Score:           33 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+So you go to jail if you buy porn? Sounds like fake news to me
+
+
+
+
+=============
+  
+## Reddit comment o5b31rg
+
+    entry 140
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b31rg/  
+Comment ID:      o5b31rg  
+Author:          gutwyrming  
+Bio:             25+
+If you think you know me, no you don't. Shoo.  
+Account Created: 2024-12-14T02:29:36Z  
+Link Karma:      10852  
+Comment Karma:   130964  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-14T07:54:43Z  
+Score:           21 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+Criminalizing sex work has literally never accomplished anything good.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Rich and powerful people with Putin network and Epstein network is all the news every day in 2026.
+>
+
+
+=============
+  
+## Reddit comment o5b6ldn
+
+    entry 141
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b6ldn/  
+Comment ID:      o5b6ldn  
+Author:          One-Reflection-4826  
+Bio:               
+Account Created: 2024-07-26T16:20:25Z  
+Link Karma:      1  
+Comment Karma:   34711  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T08:28:51Z  
+Score:           None  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+whats so bad about OF now? i thought it was pretty much the safest way to make money with that type of stuff?
+
+
+
+
+=============
+  
+## Reddit comment o5ay8zd
+
+    entry 142
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5ay8zd/  
+Comment ID:      o5ay8zd  
+Author:          Relevant-Outcome3529  
+Bio:               
+Account Created: 2022-01-23T13:13:14Z  
+Link Karma:      52  
+Comment Karma:   2646  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-14T07:09:20Z  
+Score:           10 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+Consumers are demonized, but not the manufacturers? I would have expected that from North Korea, not from Sweden. Besides, Sweden has much bigger problems; they should be glad that men are getting their sexual kicks online and not on the street.
+
+
+
+
+=============
+  
+## Reddit comment o5b4umw
+
+    entry 143
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b4umw/  
+Comment ID:      o5b4umw  
+Author:          Amazing-Raisin-4369  
+Bio:               
+Account Created: 2020-09-03T17:44:01Z  
+Link Karma:      431  
+Comment Karma:   2114  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-14T08:11:48Z  
+Score:           2 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+You can still offer content as a creator (eg feedposts, mass messages), but custom content and chatting have been restricted. Also \- by „user“ they mean the consumer, not the creator.
+
+I don’t understand why people are hyped about this.
+
+
+
+
+=============
+  
+## Reddit comment o5azb2b
+
+    entry 144
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5azb2b/  
+Comment ID:      o5azb2b  
+Author:          xboxhaxorz  
+Bio:               
+Account Created: 2017-04-23T06:01:05Z  
+Link Karma:      18600  
+Comment Karma:   109017  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-14T07:19:14Z  
+Score:           6 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+Of course they took the feminist/ misandrist approach
+
+The women in sweden can sell content around the world, but men in sweden cant buy it
+
+
+
+
+=============
+  
+## Reddit comment o5b01en
+
+    entry 145
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b01en/  
+Comment ID:      o5b01en  
+Author:          spatchcocked-ur-mum  
+Bio:             i like dogs with people names :   
+Account Created: 2024-09-18T18:23:35Z  
+Link Karma:      1404  
+Comment Karma:   4607  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-14T07:26:17Z  
+Score:           2 points  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+i hate it, i hate that nearly 1/10 18\-24 girls have done in America......its evil. the way it corrupts young men and women. (most women make hardly any money, but the photos last forever)
+
+but freedom is much better than a government telling me what's acceptable. 
+
+trust me they wont stop there. soon it will be books they dont like, ban "anti\-government" sites. pron games, then FPS games. look at the uk for proof
+
+Those lonely broken men so scared to talk to women will still exist 
+
+is this real or bs?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Like I've said on this GitHub a few times in the past 10 days... hot girls in my high school would talk to each other in my classroom in front of me. I was a book nerd at age 15 when I was my first year in high school. I would hang out in school just reading alone and I never gossiped or shared rumors. So girls would sit near me and talk to each other as if i was not a threat. I was reading /  studying computer books and other nonfiction. Hot girls in my large high school were not dating other high school boys... they were talking about adult men. I linked the song "Check It Out" John Mellencamp. https://www.youtube.com/watch?v=8qxDBiiVjlQ This was in 1984, 1985, 1986 when I knew the age of these girls in my school classes. age 15, 16. to be a hot girl, you got the attention of powerful men when outside school at the mall or wherever these girls were meeting adult men.
+> 
+> You really wonder if people can't read between the liens about politics and fiction storytelling... if they really can't see what is going on in their own city with Epstein kind of stuff. "i hate that nearly 1/10 18-24 girls have done in America."
+> 
+> These 30 year old men who are manipulating and seducing ate 15 / age 16 girls was going on in front of me in my high school freshman and sophomore class when I knew the age of these girls. 1985, 1986. I really think people don't *listen* to what is going on around them. It isn't just "Epstein island". Powerful and manipulative men treat this as some kind of conquest and sport. The billionaire class in Bellevue, owner of sports empires... the social access that has...
+> 
+> There are some people who don't cover up their age 14 age 15 youth in the music industry and film industry.. I mean you are in front of adults and everyone is looking at you. An attractive / hot person draws influence and power brokers. People like Donald trump are in the Miss Universe in Moscow show. Sports team owners like Paul Allen / Jody Allen... I mean that's their social power over society. the Simpsons make a joke about it... Season 11, Episode 12, "Perks of the International Waters" - but private jets and private cruise ships that billionaires own allow... bypassing a lot of scrutiny.
+>
+
+
+=============
+  
+## Reddit comment o5b21bq
+
+    entry 146
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b21bq/  
+Comment ID:      o5b21bq  
+Author:          Stanford_777  
+Bio:             Stanford : [SCIENTIST][ENGINEER][RESEARCHER][CREATOR]  
+Account Created: 2023-03-16T22:30:09Z  
+Link Karma:      201  
+Comment Karma:   3507  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-14T07:45:06Z  
+Score:           1 point  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+Absolutely perfect decision. Every woman is in that business for money nowadays. Your mom, sister, gf, wife...
+
+
+
+
+=============
+  
+## Reddit comment o5b8pxk
+
+    entry 147
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5b8pxk/  
+Comment ID:      o5b8pxk  
+Author:          taxman691  
+Bio:               
+Account Created: 2025-06-23T20:37:03Z  
+Link Karma:      156  
+Comment Karma:   3194  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T08:49:27Z  
+Score:           None  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+Dumb move. Lonely losers from the US pay a bag for Swedish babes. This could’ve been a nice way to extract some capital from over the pond into the local market, and make some ladies rich from the safety of their home.
+
+
+
+
+=============
+  
+## Reddit comment o5badrx
+
+    entry 148
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5badrx/  
+Comment ID:      o5badrx  
+Author:          Annual-Awareness9487  
+Bio:               
+Account Created: 2024-10-01T05:12:16Z  
+Link Karma:      1  
+Comment Karma:   18  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T09:05:49Z  
+Score:           None  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+This is a very vague and misinformed statement. Regulated sex work should be viewed a respectable way to make money, because it’s one of the only markets where most sellers are women and most buyers are men. I feel governments are subconsciously terrified of the female demographic “taking” money from the male demographic in the industry. One’s nudes being online should not exclude them from societal acceptance or a well respected job.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Given the Epstein billionaire power brokering of manipulating women as a means to have access to the Epstein finance and technology development markets... this whole topic needs to be more in the open. Elon Musk is basically a professional baby-daddy who wants to repopulate the Earth... https://www.vanityfair.com/news/story/elon-musks-children-ashley-st-clair "Elon Musk’s Breeding Spree Is So Much Wilder Than You Thought"- I mean, owner of Twitter - you can not be much more high-profile as a role model for young boys who are attracted to rockets and film star and sports star celebrities on Twitter.
+>
+
+
+=============
+  
+## Reddit comment o5bavoe
+
+    entry 149
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5bavoe/  
+Comment ID:      o5bavoe  
+Author:          InfiniteOctave  
+Bio:               
+Account Created: 2025-08-14T17:58:38Z  
+Link Karma:      569  
+Comment Karma:   4423  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T09:10:45Z  
+Score:           None  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+It's funny how prostitution is illegal, but if I write up a contract and put up a camera...I'm just paying an actress to shoot a film.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> To me, these discussions I find it impossible to ignore how many parents are feeding their 10, 11, 12 year old children Fox News, Newsmax, and other billionaire-worship indoctrination. Wealth televangelism media systems. People do not understand Neil Postman and Marshall McLuhan media ecology. People do not have education in comparative mythology. The cults of Putin, Elon Musk and Donald Trump are very real and raging away as people worship billionaire media systems. These are extremely well financed operations! The biggest advertising and marketing agencies in the world are producing and promoting films like "Melania" 2026 to children as indoctrination. 
+> 
+> People can not face up that the { Upanishads, Bible, Torah, Quran, Book of Mormon, L Ron Hubbard } are all science fiction storytelling. The Bible storybook is 2,000 years old and people still can't find verse "1 John 4:20" and grasp that God is a metaphor, fiction! Hamlet's ghost is fiction. Parents are handing their children over to Truth Social fiction, Russia's Internet Research Agency use of monomyth fiction patterns from The Bible / Quran / Torah.
+> 
+> James Joyce has been in our public library long enough for us to "Wake" to "Finnegans Wake", Woke. MEDIA_WOKE to widespread cults. Putin and Trump are using fiction to run our society like a king and queen claims God endorses their bloodlines. RFK Jr is running our disease control systems (CDC), encouraging anti-science mythological thinking. Fiction storytelling cults. Cults of attractive fiction. Billionaires are leading and creating cults.
+> 
+> * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+> ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Swat Valley Pakistani stories. Published October 8, 2013.
+>
+
+
+=============
+  
+## Reddit comment o5bbfob
+
+    entry 150
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5bbfob/  
+Comment ID:      o5bbfob  
+Author:          KlockB  
+Bio:               
+Account Created: 2019-11-28T09:54:28Z  
+Link Karma:      14055  
+Comment Karma:   27079  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T09:16:20Z  
+Score:           None  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+Are we deadass censoring the word 'adult' now, for crying out loud
+
+
+
+
+=============
+  
+## Reddit comment o5bburu
+
+    entry 151
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1r4dtft/finally_a_country_responds_to_a_tech_giant_in_the/o5bburu/  
+Comment ID:      o5bburu  
+Author:          DmitryAvenicci  
+Bio:               
+Account Created: 2017-08-11T13:04:07Z  
+Link Karma:      1477  
+Comment Karma:   13099  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T09:20:31Z  
+Score:           None  
+Post Title:      Finally, a country responds to a tech giant in the right way  
+:::::: Reddit User Comment: ======  
+I hate when people demonise sex work.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> For the online camera performance / acting **women in Ukraine**... would you want to be raising children for Putin to kidnap / abduct / traffic? https://en.wikipedia.org/wiki/Child_abductions_in_the_Russo-Ukrainian_war No-pregnancy sex not be serving the Russian empire of indoctrination. I can not imagine being a mother and having your child kidnapped and indoctrinated into Putin's war machine. The Internet sex doesn't bring a child into the world under such billionaire-controlled Epstein / Putin / Trump / Musk sex power lording over women / abortion / women's equality. The anti-Malala Putinism since year 2013. SEE_ALSO https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ December 20, 2013 - right before the Russian war against Ukraine in February 20, 2014. 
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3meszl66syc2m https://autistics.life/@RoundSparrow/116068985056288517 }
+>
+
+
+=============
+  
+## Reddit comment o5c9tci
+
+    entry 152
+
+Comment URL: https://old.reddit.com/r/Millennials/comments/1r4l9nv/i_mean_its_not_like_its_hurting_anyone/o5c9tci/  
+Comment ID:      o5c9tci  
+Author:          WestofLeft  
+Bio:               
+Account Created: 2025-06-16T22:32:08Z  
+Link Karma:      1918  
+Comment Karma:   3571  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-14T14:03:04Z  
+Score:           522 points  
+Post Title:      I mean... It's not like it's hurting anyone...  
+:::::: Reddit User Comment: ======  
+If we don’t end it with ‘lol’ we’d get endless wellness checks
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Wellness checks, for quoting nonfiction books that don't have "LOL" ending every sentence.
+>
+
+
+=============
+  
+## Reddit comment o5cw4uw
+
+    entry 153
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4o6k8/whats_the_other_meaning_peter/o5cw4uw/  
+Comment ID:      o5cw4uw  
+Author:          white_equatorial  
+Bio:               
+Account Created: 2019-11-30T04:13:15Z  
+Link Karma:      5915  
+Comment Karma:   53780  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T16:06:01Z  
+Score:           991 points  
+Post Title:      What's the other meaning, Peter?  
+:::::: Reddit User Comment: ======  
+Autistic people will ignore this completely. They dont want anything to do with strangers
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Unless you are like me and have Hyper Empathy and concern yourself with strangers and world peace for people in Sudan, Russia, Ukraine, Iran, Afghanistan, Pakistan, etc, etc.
+>
+
+
+=============
+  
+## Reddit comment o5d0ep6
+
+    entry 154
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4o6k8/whats_the_other_meaning_peter/o5d0ep6/  
+Comment ID:      o5d0ep6  
+Author:          Repeticious  
+Bio:               
+Account Created: 2025-12-21T10:01:59Z  
+Link Karma:      1  
+Comment Karma:   332  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-14T16:27:27Z  
+Score:           305 points  
+Post Title:      What's the other meaning, Peter?  
+:::::: Reddit User Comment: ======  
+My take:
+
+BMW drivers are the biggest a\-holes on the road, and everyone honks at them because of their assholery. But with that bumper sticker, the BMW driver is just thinking “wow, these guys must really like pizza!”
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> On the World Stage, on the planet Earth of over 8 billion people.. the most entitled asshole people will come from the USA, a population of 0.34 billion people who did not have a REDDIT_BLACkOUT and instead talk about bumper stickers with their free time and spare time instead of ANYONE capable of commenting being able to repeat and quote Dr. Bandy X Lee's 27 writers on mental health of Donald Trump. USA population who will not face their addiction to commenting unimportant topics and deal with the DANGER that Donald Trump is.
+> 
+> Not just voters, not just Republicans, but EVERY PERSON (even those who are age 15 and too young to vote, but can use social media to comment) who has free time and spare time to comment on social media is not asserting authentic "rude awakening" messages about how SERIOUS AND DANGEROUS the situation is!
+> 
+> * "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
+> ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o5dpinm
+
+    entry 155
+
+Comment URL: https://old.reddit.com/r/isthisAI/comments/1r4r9zj/woman_freeing_a_mountain_lion_from_a_trap_while/o5dpinm/  
+Comment ID:      o5dpinm  
+Author:          whoknowsifimjoking  
+Bio:             whoknowsifimjoking :   
+Account Created: 2025-09-17T21:23:06Z  
+Link Karma:      1  
+Comment Karma:   35990  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-14T18:33:07Z  
+Score:           82 points  
+Post Title:      Woman freeing a mountain lion from a trap while her kids watch. Reaction of mountain lion is almost too calm  
+:::::: Reddit User Comment: ======  
+I don't even know why someone would suspect AI
+
+
+
+
+=============
+  
+## Reddit comment o5daul0
+
+    entry 156
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5daul0/  
+Comment ID:      o5daul0  
+Author:          Loose-Analyst-9680  
+Bio:             Loose_analyst-123 : I am a terrible person  
+Account Created: 2025-01-28T04:20:21Z  
+Link Karma:      134706  
+Comment Karma:   48991  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T17:19:55Z  
+Score:           2989 points  
+Post Title:      Full Course Story, Apology & Mod Election  
+:::::: Reddit User Comment: ======  
+mythical refresh pull
+
+
+
+
+=============
+  
+## Reddit comment o5daw48
+
+    entry 157
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5daw48/  
+Comment ID:      o5daw48  
+Author:          THEbadmanoftheworld  
+Bio:             Pigachu  : never gonna give you up
+never gonna let you down  
+Account Created: 2021-05-31T10:13:47Z  
+Link Karma:      87374  
+Comment Karma:   20644  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T17:20:09Z  
+Score:           1319 points  
+Post Title:      Full Course Story, Apology & Mod Election  
+:::::: Reddit User Comment: ======  
+Well now you know NOT to online date again😭🙏, Wishing the best for you Riobox and DepressedOCDartist🙏
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The person says they have autism. More concerning is the community behavior... mental health crisis of MAGA takeover of the USA is a dangerous threat to the whole world and people are spending free time and spare time doing everything to avoid nonfiction serious discussions of the topic.
+> 
+> * "the public trust is also violated if the profession fails in its duty to alert the public when a person who holds the power of life and death over us all shows signs of clear, dangerous mental impairment. We should pause if professionals are asked to remain silent when they have seen enough evidence to sound an alarm in every other situation. When it comes to dangerousness, should not the president of a democracy, as First Citizen, be subject to the same standards of practice as the rest of the citizenry?"
+> ― Bandy X. Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published October 3, 2017. PROLOGUE. Page 5.](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA5&dq=dangerousness+due+to+mental+disorder+can+become+apparent+without+a+full+diagnostic+interview+and+can+be+detected+from+a+distance&hl=en&newbks=1&newbks_redir=1&sa=X)
+> 
+> https://archive.is/o/Qobgd/https://www.reddit.com/r/antimeme2/comments/1r1orz0/rcoursemedicore7998_is_an_indian_boy_proof/o4r275i/
+> 
+> BABEL_TOWER 
+> 
+> https://archive.is/o/Qobgd/https://www.reddit.com/r/antimeme2/comments/1r1orz0/rcoursemedicore7998_is_an_indian_boy_proof/o4r46t3/
+>
+
+
+=============
+  
+## Reddit comment o5dk9la
+
+    entry 158
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5dk9la/  
+Comment ID:      o5dk9la  
+Author:          marveled_pisces  
+Bio:             Charles Darwin was right : Lol memes  
+Account Created: 2019-05-21T16:48:27Z  
+Link Karma:      1544  
+Comment Karma:   14269  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T18:07:15Z  
+Score:           69 points  
+Post Title:      Full Course Story, Apology & Mod Election  
+:::::: Reddit User Comment: ======  
+Not just banned, but 10\+ years of posts completely removed. Just for asking a question 😭
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> MAGA_VALUES **To understand the rise of Trumpism values / MAGA values USA, study these machine thinking behaviors, machine mindsets**. Deportation / ICE deporting people aggressively. July 6, 2011 when Trump started discovering the power Twitter machine logic had over the population. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 Trump applied his social engineering casino experience of media environments. High speed information into intimate touch-device iPhone audiences. A rising star / media icon / attractive nuisance that Trump became for Putin to cultivate as a symbol of hate leadership to lead NATO and USA into self-harm mindsets. November 8, 2013 sex show in Moscow, Russia was a key media experience / interview training / review session before the December 2013 announcement to the world of of "Conservative International" political movement lead by Putin, Trump, and Surkov students.
+> 
+> Understand this desire to PURGE art work for confronting power and egoism of leaders. This is a symptom of what has rising to the top of values in society. ICE deport, block-happy, book-burning (Reddit content burning), MAGA values USA. People are not resisting these thinking systems that impact every hour of every day voting and downvoting on social machine systems. People are fixated on ballot voting and not the mass dehumanization programming that the IRA has fed into USA society since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o5dk5cp
+
+    entry 159
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5dk5cp/  
+Comment ID:      o5dk5cp  
+Author:          Neat_Science936  
+Bio:               
+Account Created: 2020-12-28T06:55:07Z  
+Link Karma:      35085  
+Comment Karma:   14374  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T18:06:39Z  
+Score:           130 points  
+Post Title:      Full Course Story, Apology & Mod Election  
+:::::: Reddit User Comment: ======  
+I am really sorry for [u/DepressedOCDArtist](/u/DepressedOCDArtist) tbh
+
+[\<image\>](https://preview.redd.it/gw3mjvqk5ijg1.jpeg?width=1080&format=pjpg&auto=webp&s=b0ed59c9c683f9f4216429c0fbed13c201a3b16a)
+
+
+
+
+=============
+  
+## Reddit comment o5df0fx
+
+    entry 160
+
+Comment URL: https://old.reddit.com/r/antimeme/comments/1r4q7od/full_course_story_apology_mod_election/o5df0fx/  
+Comment ID:      o5df0fx  
+Author:          wiseguy4519  
+Bio:               
+Account Created: 2023-12-17T17:35:37Z  
+Link Karma:      461  
+Comment Karma:   9033  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T17:41:05Z  
+Score:           44 points  
+Post Title:      Full Course Story, Apology & Mod Election  
+:::::: Reddit User Comment: ======  
+The dude has autism, go easy on him. Autistic people are very vulnerable to catfishing. The "not normal behavior" is just autism.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SUPER_HYPER_NORMAL "normal" behavior is people following Donald Trump images on /r/All every hour of every day since June 16, 2015. "normal" is hate-based leadership with hundreds of millions of followers. "normal" behavior is parents who have fed Fox News into their children at age 10 and feed Donald Trump as a role model of mature responsible successful leaders... without being alarmed, disturbed, calling for Dr. Bandy X Lee's assembly of 27 mental health professionals in a nonfiction book to be steady topic of everyone on the same page since October 3, 2017 publication. "normal" is the richest people in the entire world gaslighting poor and poorly educated rural with the most powerful media systems ever created by humanity.
+> 
+> QUOTE FROM NONFICTION BOOK FOLLOWS:
+> 
+> Often, people with NPD resort to an insidious strategy called gaslighting — a term drawn from the 1938 play about a man who persuaded his wife she was crazy by, among other means, dimming the gaslights and claiming he’d never touched them. As people with NPD become increasingly psychotic, they’re determined to **convince others that they’re the “crazy” ones who can’t see reality** for what it is. Gaslighting reassures pathological narcissists that their own grip on reality remains firm because they can’t bear to acknowledge their sanity is slipping away. We might ask if we’re seeing this now, as Trump and his closest advisers appear on TV claiming he didn’t make statements that journalists often simply play back — or if **it’s a tweet**, flash an image — to prove that he did indeed say what he said.
+> 
+> Lately, these incidents have become commonplace. Many in the press and public at large now refer to them as alternative facts, alluding to Trump spokesperson Kellyanne Conway’s now infamous “explanation” for why Sean Spicer had berated the press for misreporting Trump’s inauguration size: “this was the largest audience to ever witness an inauguration, period, both in person and around the globe,” Spicer peevishly told a stunned press corps. This turned out to be patently false, though Conway defended the statement, saying Spicer had simply been providing “alternative facts.”
+> 
+> Those who **embrace Trump’s reality**, where the mainstream media lies and remains “the enemy,” signify their support with red hats bearing the inscription MAGA (Make America Great Again). Those who believe what the news reports about Trump have donned the symbol of resistance — pink pussy hats, a reference to his now infamous hot mic comments about women, “I just grab ’em by the pussy…”
+> 
+> That the country is currently split — and **our shared reality** with it — seems without question at this point.
+> 
+> ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.](https://books.google.com/books?id=pYaFDwAAQBAJ&pg=PA58&dq=insidious+strategy+called+gaslighting+%E2%80%94+a+term+drawn+from+the+1938+play+about+a+man+who+persuaded+his+wife+she+was+crazy+by&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o5dpue1
+
+    entry 161
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1r4rxdb/peter/o5dpue1/  
+Comment ID:      o5dpue1  
+Author:          Toast_Of_Doom123  
+Bio:               
+Account Created: 2016-10-06T19:12:19Z  
+Link Karma:      10273  
+Comment Karma:   4841  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-14T18:34:41Z  
+Score:           578 points  
+Post Title:      Peter  
+:::::: Reddit User Comment: ======  
+As others have said, some women get mad when they find out you're masturbating.
+
+Side note, if your partner gets upset at you for masturbating, assuming you're not neglecting your partner or their needs, that should be a red flag. What you do with your body is your choice and doesnt affect them, to try and guilt you for it is manipulative. Too many guys I know think it's normal for their partner to be upset at them for performing natural sexual maintenance.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> CHOICE_MARRIAGE_HONESTY  communicating with partners and mates.  RELIGION_CULTS_MONOMYTH_PROGRAMMING many religions teach that masturbation and sexual fantasy is a "sin" against a God. Science fiction media cultists teach this as a manipulation technique to concentrate power and wealth over populations. Time-Proven system of mind exploitation.
+>
+
+
+=============
+  
+## Reddit comment o5f4083
+
+    entry 162
+
+Comment URL: https://old.reddit.com/r/Silksong/comments/1r4yawd/e1331_has_deleted_his_account/o5f4083/  
+Comment ID:      o5f4083  
+Author:          Glacier_Pace  
+Bio:             Accountant, photographer, and a not so secret nerd.   
+Account Created: 2022-02-01T17:21:02Z  
+Link Karma:      12688  
+Comment Karma:   30636  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-14T23:06:26Z  
+Score:           75 points  
+Post Title:      E1331 HAS DELETED HIS ACCOUNT  
+:::::: Reddit User Comment: ======  
+Wow. That's an insane amount of easily findable history for this sub gone just like that. Going though his post history was a great time. 
+
+That's genuinely a bummer for anybody that wants to chronicle the timeline of the community later.
+
+
+
+
+=============
+  
+## Reddit comment o5f42wr
+
+    entry 163
+
+Comment URL: https://old.reddit.com/r/Silksong/comments/1r4yawd/e1331_has_deleted_his_account/o5f42wr/  
+Comment ID:      o5f42wr  
+Author:          Ar_tic  
+Bio:             Artic : i make like 1 post every 3 weeks on something idk i dont use reddit much anymore but HELLO ANYONE READING THIS
+
+still resisting the reddit avatars  
+Account Created: 2019-10-10T23:00:59Z  
+Link Karma:      18253  
+Comment Karma:   6220  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-14T23:06:53Z  
+Score:           53 points  
+Post Title:      E1331 HAS DELETED HIS ACCOUNT  
+:::::: Reddit User Comment: ======  
+this is like seeing the library of alexandria burn down what the fuck oh my god
+
+
+
+
+=============
+  
+## Reddit comment o5gd4fp
+
+    entry 164
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1r53rm5/air_india_flight_171_crash_pilot_deliberately_cut/o5gd4fp/  
+Comment ID:      o5gd4fp  
+Author:          Patarokun  
+Bio:               
+Account Created: 2013-05-16T13:33:10Z  
+Link Karma:      57254  
+Comment Karma:   254955  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-15T04:03:51Z  
+Score:           1967 points  
+Post Title:      Air India flight 171 crash: Pilot deliberately cut fuel switch, report reveals  
+:::::: Reddit User Comment: ======  
+We've made so much progress with airframe safety that the weakest link is now the mental health of the pilots. We're the bug that needs to be patched out.
+
+I can understand the attraction of crashing a huge plane and going out in a blaze of glory. But taking hundreds of innocent humans with you? Wild shit man.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TECH_LUST_TECH_LOVERS who hate human beings and want to die with their love, machines.
+>
+
+
+=============
+  
+## Reddit comment o5gx7gr
+
+    entry 165
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1r54j4f/barack_obama_has_confirmed_that_aliens_are_real/o5gx7gr/  
+Comment ID:      o5gx7gr  
+Author:          zehamberglar  
+Bio:             zehamberglar :   
+Account Created: 2013-04-29T16:46:12Z  
+Link Karma:      4517  
+Comment Karma:   361547  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T06:50:01Z  
+Score:           34 points  
+Post Title:      Barack Obama has confirmed that aliens are real  
+:::::: Reddit User Comment: ======  
+Are we watching the same video? He didn't confirm shit. He clearly says that this is not something he learned as President, meaning he's just saying he believes they are real.
+
+I think it's crazy that this just keeps getting repeated everywhere on reddit because UFO nerds are just slobbering over any mention of aliens that they take everything as proof.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit is full of science fiction cultists. Cults of science fiction media who mock cults of OTHER competing science fiction stories like The Bible (it is Sunday morning as I write this, an alien sky-daddy story cult of how Father of Jesus got a virgin pregnant science fiction story). It is cult vs. cult mocking and insulting. A long Levant science fiction patter of clergy mocking clergy of competing storybooks. Mosque mocking Synagogue, Church mocking Mosque science fiction venue, etc. Reddit venue mocking Church venue...
+> 
+> * “Do you believe in UFOs?’ I’m always struck by how the question is phrased, the suggestion that this is **a matter of belief and not of evidence**. I’m almost never asked, ‘How good is the evidence that UFOs are alien spaceships?” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark. Year 1995.
+>
+
+
+=============
+  
+## Reddit comment o5gmv4t
+
+    entry 166
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r55r0e/president_obama_about_aliens_in_a_new_interview/o5gmv4t/  
+Comment ID:      o5gmv4t  
+Author:          Lokaji  
+Bio:               
+Account Created: 2013-01-16T19:35:07Z  
+Link Karma:      9936  
+Comment Karma:   377720  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T05:19:12Z  
+Score:           126 points  
+Post Title:      President Obama about aliens in a new interview: "They're real"  
+:::::: Reddit User Comment: ======  
+Some people can't handle races from the same planet; imagine them trying to figure out aliens.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People of the SAME RACE can't handle the slightest variation in language expression and mental diversity. The Tower of Babel conflict metaphor is very real and serious. The same race of people fight over different favorite science fiction stories. Catholic vs. Protestant, Fox News fiction vs. Reddit fiction. Alternate universes, alternate alien, based on the media they consume.
+> 
+> * “Today, reports of the day’s events are conveyed to the viewing public by way of **alternate universes**, The Fox News cable channel conveys its **version of reality**, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+> 
+> People in THE SAME family watch Fox News HDTV fiction and can't communicate with other family members who watch MSNBC! People who read the EXACT SAME BOOK, The science fiction Quran stories from Mohammad, can't get along and fight over Shia vs. Sunni interpretations. Same skin color, same race, same city!
+> 
+> * "Do You Speak Fox? How Donald Trump’s favorite news source became a language. By Megan Garber. September 16, 2020", "You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions **consider a loss that Americans don’t have good language for**, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox." https://www.theAtlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+>
+
+
+=============
+  
+## Reddit comment o5ghwhw
+
+    entry 167
+
+Comment URL: https://old.reddit.com/r/pcmasterrace/comments/1r557x7/western_digital_runs_out_of_hdd_capacity_ceo_says/o5ghwhw/  
+Comment ID:      o5ghwhw  
+Author:          Handsome_ketchup  
+Bio:               
+Account Created: 2022-09-26T19:38:58Z  
+Link Karma:      30  
+Comment Karma:   56455  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-15T04:40:16Z  
+Score:           927 points  
+Post Title:      Western Digital runs out of HDD capacity: CEO says massive AI deals secured, price surges ahead  
+:::::: Reddit User Comment: ======  
+
+> Power supply components are next. We are fucked for the next 5 years easy.
+
+We are fucked no matter what happens. Either companies keep buying the output of entire industries with money they don't have, or AI pops and collapses the whole economy.
+
+
+
+
+=============
+  
+## Reddit comment o5gg4px
+
+    entry 168
+
+Comment URL: https://old.reddit.com/r/Weird/comments/1r54smt/angeline_jolie_and_her_brother_james_haven_had_a/o5gg4px/  
+Comment ID:      o5gg4px  
+Author:          Exact_Key_1442  
+Bio:               
+Account Created: 2022-01-25T07:47:57Z  
+Link Karma:      1235  
+Comment Karma:   1232  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-15T04:26:36Z  
+Score:           74 points  
+Post Title:      Angeline Jolie and her brother, James Haven had a running gag.  
+:::::: Reddit User Comment: ======  
+i’m convinced celebrities aren’t real people at this point.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit fandoms can't grasp why certain people are so attractive. Why entire population behaves like certain strangers are best friends when all they have ever seen is images or at venues. Worship of celebrity. People can't understand their attraction to Trump on the front page of /r/All every hour of every day since June 16, 2015. Celebrity cults.
+>
+
+
+=============
+  
+## Reddit comment o5gvviw
+
+    entry 169
+
+Comment URL: https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gvviw/  
+Comment ID:      o5gvviw  
+Author:          TuxRug  
+Bio:               
+Account Created: 2012-10-28T06:36:12Z  
+Link Karma:      16814  
+Comment Karma:   90478  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T06:37:43Z  
+Score:           1398 points  
+Post Title:      Asking someone what alternating traffic means trying to prove a point.  
+:::::: Reddit User Comment: ======  
+Gotta love the people who spend a full minute threatening to murder everyone they see for costing them two seconds of not being the main fucking character.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SENSATIONAL_CONTENT
+>
+
+
+=============
+  
+## Reddit comment o5h37ia
+
+    entry 170
+
+Comment URL: https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5h37ia/  
+Comment ID:      o5h37ia  
+Author:          18minusPi2over36  
+Bio:               
+Account Created: 2021-11-24T14:56:20Z  
+Link Karma:      26506  
+Comment Karma:   50339  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T07:47:22Z  
+Score:           3 points  
+Post Title:      Asking someone what alternating traffic means trying to prove a point.  
+:::::: Reddit User Comment: ======  
+That's one of those remarks that makes you wonder if really *everybody* is conscious.
+
+
+
+
+=============
+  
+## Reddit comment o5gujys
+
+    entry 171
+
+Comment URL: https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gujys/  
+Comment ID:      o5gujys  
+Author:          SaturnalianGhost  
+Bio:               
+Account Created: 2019-01-31T02:16:24Z  
+Link Karma:      36727  
+Comment Karma:   52831  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T06:25:37Z  
+Score:           374 points  
+Post Title:      Asking someone what alternating traffic means trying to prove a point.  
+:::::: Reddit User Comment: ======  
+America is not ok.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Competition. 
+> 
+> OPERA_A Lyrics: "America spells competition, join us in our blind ambition. Get yourself a **brand new motor car**. Someday soon we'll stop to ponder what on earth's this spell we're under... We made the grade and still we wonder who the hell we are..." https://www.youtube.com/watch?v=8U1lDNrxp04 1,852 views July 8, 2023
+>
+
+
+=============
+  
+## Reddit comment o5gw7be
+
+    entry 172
+
+Comment URL: https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gw7be/  
+Comment ID:      o5gw7be  
+Author:          DrSparkle713  
+Bio:             dramatic-storage :   
+Account Created: 2016-10-20T15:16:38Z  
+Link Karma:      32276  
+Comment Karma:   12264  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T06:40:45Z  
+Score:           56 points  
+Post Title:      Asking someone what alternating traffic means trying to prove a point.  
+:::::: Reddit User Comment: ======  
+I ran into someone like this at the grocery store the other day (also the US). Didn’t like that I parked next to him I guess? Ended up filming him after he threatened to smash all my windows in and shouted a bunch of homophobic slurs. Went on to call a woman who stepped in a whore and a c\-nt and then threaten to splatter my brains all over the parking lot before finally leaving. I said nothing this whole time. He just went ballistic on his own. 
+
+People out here are entirely nuts these days. Doesn’t give me a lot of faith in humanity.
+
+Edit: typo
+
+
+
+
+=============
+  
+## Reddit comment o5gzgti
+
+    entry 173
+
+Comment URL: https://old.reddit.com/r/confidentlyincorrect/comments/1r57epo/asking_someone_what_alternating_traffic_means/o5gzgti/  
+Comment ID:      o5gzgti  
+Author:          gpowerf  
+Bio:             El la playa  : Grew up in Caracas, Iowa and Massachusetts, and Hampshire. I mostly miss El Avila y las playas de oriente in Venezuela.  
+Account Created: 2020-11-23T16:52:36Z  
+Link Karma:      74  
+Comment Karma:   14351  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T07:11:23Z  
+Score:           6 points  
+Post Title:      Asking someone what alternating traffic means trying to prove a point.  
+:::::: Reddit User Comment: ======  
+It's very mentally stable to threaten to kill someone over a tiny traffic inconvenience. Some people are total losers. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TECH_LUST_TECH_LOVERS love for truck machine, love for the weapon system machine. LOVE_ONE_ANOTHER love thy neighbor, love thy enemy isn't optional in democracy. But humanity in USA finds the hate-based economy to produce content for Reddit.
+>
+
+
+=============
+  
+## Reddit comment o5hbtx4
+
+    entry 174
+
+Comment URL: https://old.reddit.com/r/EngineeringPorn/comments/1r57xp4/comparison_of_fixing_nuts/o5hbtx4/  
+Comment ID:      o5hbtx4  
+Author:          ollomulder  
+Bio:               
+Account Created: 2014-07-11T22:27:38Z  
+Link Karma:      98  
+Comment Karma:   32928  
+Comment Age:     24 minutes ago  
+Timestamp:       2026-02-15T09:10:57Z  
+Score:           1 point  
+Post Title:      Comparison of fixing nuts  
+:::::: Reddit User Comment: ======  
+I think he means that the washers start to disintegrate which can be seen relatively clearly in the video.
+
+
+
+
+=============
+  
+## Reddit comment o5idox3
+
+    entry 175
+
+Comment URL: https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idox3/  
+Comment ID:      o5idox3  
+Author:          bigmonkeybiggermoney  
+Bio:               
+Account Created: 2024-11-26T21:00:20Z  
+Link Karma:      13052  
+Comment Karma:   5930  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T14:18:23Z  
+Score:           None  
+Post Title:      Am I overreacting: new boyfriend was weirdly judgmental about bathroom situation  
+:::::: Reddit User Comment: ======  
+This is like getting offended by toilet paper.
+Obviously you’re not overreacting, it’s actually alarming for you to even have to ask if you are.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> OPERA_A Lyrics: "If your vagina lands in prison, then the whole world's going to listen." "Don't play stupid, don't play dumb". https://youtu.be/Bp-KeVBNz0A
+>
+
+
+=============
+  
+## Reddit comment o5idu80
+
+    entry 176
+
+Comment URL: https://old.reddit.com/r/AmIOverreacting/comments/1r5fo45/am_i_overreacting_new_boyfriend_was_weirdly/o5idu80/  
+Comment ID:      o5idu80  
+Author:          Piilootus  
+Bio:               
+Account Created: 2021-07-15T20:32:09Z  
+Link Karma:      4149  
+Comment Karma:   697246  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T14:19:15Z  
+Score:           None  
+Post Title:      Am I overreacting: new boyfriend was weirdly judgmental about bathroom situation  
+:::::: Reddit User Comment: ======  
+NOR, if his masculinity is so fragile he can't handle needing to touch period products he shouldn't be having sex at all.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Daddy issues. parenting issues. Religion indoctrination. Fox News fandom issues. Trump daddy issues. Joe Rogan daddy issues. Andrew Tate daddy issues.
+>
