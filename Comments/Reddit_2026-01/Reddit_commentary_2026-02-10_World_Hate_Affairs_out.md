@@ -2971,3 +2971,88 @@ Thats why it's set up this way, decentralized production. So not a single one ha
 > :::::: Analysis_Thoughts Commentary: ======  
 > 4 month Reddit account.
 >
+
+
+=============
+  
+## Reddit comment o5jrwi8
+
+    entry 111
+
+Comment URL: https://old.reddit.com/r/shittymoviedetails/comments/1r5l74g/in_spiderman_2_2004_toby_maguires_neighbor_ursula/o5jrwi8/  
+Comment ID:      o5jrwi8  
+Author:          Delicious-Set-3094  
+Bio:               
+Account Created: 2024-05-18T02:10:48Z  
+Link Karma:      1  
+Comment Karma:   458  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T18:29:51Z  
+Score:           64 points  
+Post Title:      In Spider-Man 2 (2004), Toby Maguire's neighbor - Ursula - does her hair as if she's a schoolgirl. This is because she's attempting to flirt with Toby Maguire, and knows his type.  
+:::::: Reddit User Comment: ======  
+Reddit has this weird obsession with calling out consenting adults when the age difference is out of the ordinary. 
+
+The Incels are really coming out of the wood work and are going as far as calling him a pedophile, get real.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World hate affairs.
+>
+
+
+=============
+  
+## Reddit comment o5k2hoa
+
+    entry 112
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1r5n4e3/young_woman_in_india_fakes_snake_transformation/o5k2hoa/  
+Comment ID:      o5k2hoa  
+Author:          pichuguy27  
+Bio:               
+Account Created: 2015-08-21T14:02:24Z  
+Link Karma:      1316  
+Comment Karma:   57485  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T19:21:27Z  
+Score:           1707 points  
+Post Title:      Young woman in India fakes snake transformation to escape arranged marriage  
+:::::: Reddit User Comment: ======  
+Good on them this is how myths start. This is a modern mythical story . A story of young woman destined to be wed given a gift allowing her to turn into a snake sheds her form and a skin to go and run away with a person she loves.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> FAMILY_HONESTY ARRANGED_MARRIAGE 
+> 
+> Native American story "Refusal of Suitors" has snake characters.
+>
+
+
+=============
+  
+## Reddit comment o5k2km6
+
+    entry 113
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1r5n4e3/young_woman_in_india_fakes_snake_transformation/o5k2km6/  
+Comment ID:      o5k2km6  
+Author:          Sunset-onthe-Horizon  
+Bio:               
+Account Created: 2014-12-24T07:05:15Z  
+Link Karma:      15327  
+Comment Karma:   113956  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T19:21:51Z  
+Score:           832 points  
+Post Title:      Young woman in India fakes snake transformation to escape arranged marriage  
+:::::: Reddit User Comment: ======  
+Smart girl, use cultural superstition to fight cultural expectations. Well done!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World Marriage Hate Affairs.
+>

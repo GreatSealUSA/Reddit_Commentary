@@ -10834,3 +10834,1435 @@ So...you guys all going to get on these Facebook, Amazon, Spotify, Twitter boyco
 > :::::: Analysis_Thoughts Commentary: ======  
 > Billionaires are wrecking society and Reddit community comments on every billionaire media domination (including Reddit itself under the thumb of non-identity influences) **to normalize** it. SATIRE_SARCASM_WASHING
 >
+
+
+=============
+  
+## Reddit comment o5jhjxc
+
+    entry 391
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jhjxc/  
+Comment ID:      o5jhjxc  
+Author:          R0LL1NG  
+Bio:             No  
+Account Created: 2020-10-02T07:32:03Z  
+Link Karma:      6355  
+Comment Karma:   54111  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T17:39:48Z  
+Score:           102 points  
+Post Title:      Is he right? Will it take generations to resecure the United States positive reputation on the world stage?  
+:::::: Reddit User Comment: ======  
+Yep. Even if the USA jails Trump and cleans up the GOP, the fact that its systems could be so easily and nefariously cuckholded for a nazi agenda, means it is going to take a long time to restore the world's trust.
+
+Like. We're gonna need to see a massive overhaul AND then its going to take a decade or two at least before we even start to believe it has been fixed.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SOCIAL_MEDIA_DID_NOT Social media did not rise up. During the Trump impeachments, there was no mass uprising REDDIT_BLACKOUT . Social media protesting to the World Wide Web in USA is incredibly absent. Protesting the USA government is openly mocked on Reddit. BILLIONAIRE_MIND_VIRUS people in USA are programmed by the billionaire class to prize entertainment / sports / celebrity above all else. We The People did not please to the world PLEASE_HELP_RESCUE with mental health professionals like Dr. Bandy X Lee did in getting 27 writers for her October 3, 2017 nonfiction book. Reddit society is conditioned to NOT ASK for help in a persistent organized way to rescue MAGA cult, Fox News HDTV cultists, Newsmax cultists, etc.
+>
+
+
+=============
+  
+## Reddit comment o5jco94
+
+    entry 392
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jco94/  
+Comment ID:      o5jco94  
+Author:          Priit123  
+Bio:               
+Account Created: 2016-11-25T05:01:06Z  
+Link Karma:      83  
+Comment Karma:   7261  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T17:15:39Z  
+Score:           95 points  
+Post Title:      Is he right? Will it take generations to resecure the United States positive reputation on the world stage?  
+:::::: Reddit User Comment: ======  
+Yes, Epstein files have been existed at least 10 years. One person is in prison and one dead. Nobody else in US is not even stepping down. This has sent a very clear message to the world, US will become a hostile "kingdom" ruled by billionaires. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ANTI_WIKI_ANTI_FAQ the USA society of social media commenting, the society, is socialized to avoid FAQ, avoid nonfiction books, avoid FAQ. Instead, people create millions and millions of high-speed low-effort commenting that puts the USA population (everyone, not just voters) all on different pages of topics. People live in filter-bubble mindsets https://en.wikipedia.org/wiki/Filter_bubble extremely critical adult education is ignored. Leaders like Dr. Bandy X Lee with serious topics. are avoided in favor of RFK Jr and other entertainment originators. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o5jb0zv
+
+    entry 393
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jb0zv/  
+Comment ID:      o5jb0zv  
+Author:          mexxonmobil  
+Bio:               
+Account Created: 2026-01-24T15:48:53Z  
+Link Karma:      40  
+Comment Karma:   2013  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T17:07:34Z  
+Score:           48 points  
+Post Title:      Is he right? Will it take generations to resecure the United States positive reputation on the world stage?  
+:::::: Reddit User Comment: ======  
+Obviously. Even if a democrat wins in 2028, maga and the epstein class aren't going to wake up and decide to be humans.
+
+There'll be a high chance the democrat will get nothing done and things will revert back to an even crazier person. This is what's going to happen unless core issues are addressed
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 22 day Reddit account. popular upvoted comment. SURKOVIAN_CHESS game playing that this is strictly a focus on "The Democrats" and not NATO vs. Russia information warfare since March 2013. IN OTHER WORDS: The topic is only representatives, not We The People being directly manipulated to avoid nonfiction since March 2013 by the Saint Petersburg Internet Research Agency. This Reddit comment serves to blame anyone but the Reddit comment community for avoiding defense of hearts and minds. Brain rot society, Reddit brain rot, is the far larger problem that impacts people not even commenting about the urgent and critical importance to constantly be quoting Dr. Bandy X Lee, promote Jen Senko's nonfiction brainwashing film, etc.
+>
+
+
+=============
+  
+## Reddit comment o5jdd21
+
+    entry 394
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jdd21/  
+Comment ID:      o5jdd21  
+Author:          Valuable_General_876  
+Bio:               
+Account Created: 2023-03-19T11:51:21Z  
+Link Karma:      251  
+Comment Karma:   400  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T17:19:03Z  
+Score:           28 points  
+Post Title:      Is he right? Will it take generations to resecure the United States positive reputation on the world stage?  
+:::::: Reddit User Comment: ======  
+Yeah, nobody is gonna trust the yanks again this century. You could put this entire administration on trial and we wouldn't trust you as far as we can throw you. Threatening to invade your allies if you aren't given an island is generally frowned upon. Plus all the other catastrophic shit that braindead rapist octogenarian is constantly pulling...
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Gullible Reddit user calling Trump "braindead". Putin and Trump have been excellent at engaging the Reddit comment section with antics and outrageous content creation. As a influencer and celebrity, Trump has exceeded every media superstar in world history. This Reddit comment is IGNORANCE_CELEBRATIONS to downplay Trump's cult power, media camera appearance power, Trump's Reality TV acting background, etc. Reddit is a cult of denial of Reddit itself being a cult venue for Trump content. Reddit distributes Putin-Trump propaganda constantly, but Reddit users are unable to study Surkovian information warfare and Surkov governing techniques and methods. Minds are too compulsively reactionary. Rephrased another way, this Reddit user "ate the onion" and thinks Trump is "braindead" when Trump has run circles around the USA playing POTUS Tony Clifton character and using Surkov student screenplays. This linked Reddit comment is an example of SURKOVIAN_ONION_EATING - mentally downplaying reality of Trump's social power.
+>
+
+
+=============
+  
+## Reddit comment o5jh99o
+
+    entry 395
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jh99o/  
+Comment ID:      o5jh99o  
+Author:          GlobuleNamed  
+Bio:               
+Account Created: 2021-09-25T20:05:27Z  
+Link Karma:      144  
+Comment Karma:   29939  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T17:38:20Z  
+Score:           12 points  
+Post Title:      Is he right? Will it take generations to resecure the United States positive reputation on the world stage?  
+:::::: Reddit User Comment: ======  
+Trump did not blow it up.
+
+Republicans did.
+
+Republican congress could have stopped the bullshit at any time.  
+ They did not because they agree with it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM Predicable Americans blame Americans reaction thinking on Reddit. Messaging to Reddit cults to blame *the other cults* and not look back for origins of the anti-NATO cult creation and organized bamboozle since year 2013. 
+> 
+> * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+>
+
+
+=============
+  
+## Reddit comment o5jblwv
+
+    entry 396
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jblwv/  
+Comment ID:      o5jblwv  
+Author:          laizalott  
+Bio:               
+Account Created: 2015-09-10T03:53:29Z  
+Link Karma:      4  
+Comment Karma:   4757  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T17:10:23Z  
+Score:           42 points  
+Post Title:      Is he right? Will it take generations to resecure the United States positive reputation on the world stage?  
+:::::: Reddit User Comment: ======  
+The world can never go back to the way it was, ever. It will always move on.
+
+In the coming years, the USA will become less and less of a major player. No politician can change that, America simply cannot exist in the modern world as it used to; China is doing too well, Europe is too united, and it will take generations to outlive the shame of so many of our people looking at Trump and thinking "he's our guy."
+
+What will be very interesting is to see 99% of Americans in 10 years claim they always hated Trump and were always against pedophiles. Gotta keep the receipts in the here and now so we don't let them change their own history.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> USA population has learned nothing good about Quran and Mosque since September 11, 2001. 9/11 lessons of studying cult behavior. RELIGION_CULTS_MONOMYTH_PROGRAMMING 
+> 
+> * "October 24, 2003 — "Jihad" is a loaded term — and a concept that illustrates a deep gulf of **miscommunication between Islam and the West**." https://www.nationalgeographic.com/culture/article/what-does-jihad-really-mean-to-muslims
+> 
+> The same thing has basically gone wrong with MAGA. Instead of going inward and facing the crisis of Fox News TV / HDTV cult since October 3, 1996 and recognizing the terrorism mental programming that Rupert Murdoch was cultivating... we did not take serious the need for INWARD INNER meditation and self-reflection to weed out out-group hate desires. One of the most notable was **Jen Senko's crowd-funding in year 2014 year 2015 for her film about brainwashing in USA of her father**. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad People did not see this inner-Jihad programming topic... and how certain media venues (like Mosque venues, right-wing conservative venues, Radio Mullah, Fox News, Newsmax, Reddit, Twitter, Alex Jones, Joe Rogan, Facebook) cultivate out-group hate patterns.
+>
+
+
+=============
+  
+## Reddit comment o5jdpyc
+
+    entry 397
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jdpyc/  
+Comment ID:      o5jdpyc  
+Author:          Sea_Hold_2881  
+Bio:             Malachite-Creek-82 :   
+Account Created: 2025-11-04T12:42:14Z  
+Link Karma:      1  
+Comment Karma:   5253  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T17:20:48Z  
+Score:           8 points  
+Post Title:      Is he right? Will it take generations to resecure the United States positive reputation on the world stage?  
+:::::: Reddit User Comment: ======  
+At this point in time there would have to a massive repudiation of MAGA at the ballot box followed successful prosecutions and convictions of the key players breaking the law today.
+
+SCOTUS would also have to demonstrate that it will stand up to authoritarians and put strong limits on presidential power.
+
+Congress would repeal all of the 'emergency power' laws that are so easily abused by authoritarian president and replace them with laws that require congress to explicitly approve any declaration of a emergency.
+
+If those 3 improbable events occur, the world could believe that MAGA was an aberration that US survived.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o5jc7xy
+
+    entry 398
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jc7xy/  
+Comment ID:      o5jc7xy  
+Author:          RealCrusader  
+Bio:               
+Account Created: 2009-12-15T09:06:48Z  
+Link Karma:      33  
+Comment Karma:   54496  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T17:13:23Z  
+Score:           12 points  
+Post Title:      Is he right? Will it take generations to resecure the United States positive reputation on the world stage?  
+:::::: Reddit User Comment: ======  
+As a new zealander. Yes. We can't trust you anymore. We fought together for over 100 years too. But the usa can't be trusted. Now. We let the first term slide but two? Gay wee red hats aren't in fashion here either ; believe it or not
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> DENIAL_ABOUNDS within the USA, there is massive denial that MAGA is a dangerous cult. Denial all over Reddit, denial all over Bluesky. People are in cults of denial itself. We have nothing to fear but denial itself. Cult deprogramming, **avoiding non-fiction adult learning**, is a crisis that is impacting every intellectual and decision-making activity in the nation. We The People are in denial. We have a national, population wide, not just voters, EVERYONE crisis of mental health.
+> 
+> * “The human brain can protect us from seeing and feeling what it believes may be too uncomfortable for us to tolerate. It can lead us to deny, defend, minimize, or rationalize away something that doesn’t fit our worldview.”
+> ― Dr. Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. Published **October 3, 2017**. Page 273. Chapter "TRUMP'S DADDY ISSUES"](https://books.google.com/books?id=g0c4DwAAQBAJ&pg=PA273&dq=%E2%80%9CThe+human+brain+can+protect+us+from+seeing+and+feeling+what+it+believes+may+be+too+uncomfortable%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o5jf22j
+
+    entry 399
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1r5jr46/is_he_right_will_it_take_generations_to_resecure/o5jf22j/  
+Comment ID:      o5jf22j  
+Author:          Appropriate_Art894  
+Bio:               
+Account Created: 2021-07-18T01:15:27Z  
+Link Karma:      1  
+Comment Karma:   18391  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-15T17:27:22Z  
+Score:           5 points  
+Post Title:      Is he right? Will it take generations to resecure the United States positive reputation on the world stage?  
+:::::: Reddit User Comment: ======  
+It would take an Incredible act of Humanity by the USA for me to think of them as anything more than a corporation Nation who’s product is cruelty, bullying and greed
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Hate Based Economy. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o5jdj1s
+
+    entry 400
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1r5k4dj/republicans_try_to_not_blame_obama_challenge/o5jdj1s/  
+Comment ID:      o5jdj1s  
+Author:          psylentj  
+Bio:               
+Account Created: 2017-09-25T07:17:48Z  
+Link Karma:      1486  
+Comment Karma:   26651  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-15T17:19:52Z  
+Score:           15 points  
+Post Title:      Republicans try to not blame Obama challenge: impossible  
+:::::: Reddit User Comment: ======  
+The truth is the republican constituants live in an inverted reality. The republican politicians know exactly what theyre doing. They know that if they repeat the same lie over and over with confidence, enough dumbasses will believe it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Inverted Reality" is in the image posting and this comment both. All ignoring Russia / Putin since year 2013. WAR_AGAINST_REALITY
+>
+
+
+=============
+  
+## Reddit comment o5ki7yh
+
+    entry 401
+
+Comment URL: https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5ki7yh/  
+Comment ID:      o5ki7yh  
+Author:          Ebonvvings  
+Bio:               
+Account Created: 2022-12-14T03:42:24Z  
+Link Karma:      337  
+Comment Karma:   48623  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T20:41:58Z  
+Score:           4166 points  
+Post Title:      US 2025 jobs numbers revised down by over 1 million  
+:::::: Reddit User Comment: ======  
+Fucking bullish bro
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> BULLSHIT_EVERYWHERE ARTIFICIAL_REALITY
+>
+
+
+=============
+  
+## Reddit comment o5kl8v3
+
+    entry 402
+
+Comment URL: https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5kl8v3/  
+Comment ID:      o5kl8v3  
+Author:          likamuka  
+Bio:               
+Account Created: 2023-10-24T07:17:02Z  
+Link Karma:      55882  
+Comment Karma:   147162  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T20:57:37Z  
+Score:           586 points  
+Post Title:      US 2025 jobs numbers revised down by over 1 million  
+:::::: Reddit User Comment: ======  
+And the cult is clapping while the world economy keeps drowning. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "cult". Reddit is a cult of mocking other cults. Media cult of Fox News vs. media cult of Reddit.
+>
+
+
+=============
+  
+## Reddit comment o5kl1jq
+
+    entry 403
+
+Comment URL: https://old.reddit.com/r/wallstreetbets/comments/1r5pdcs/us_2025_jobs_numbers_revised_down_by_over_1/o5kl1jq/  
+Comment ID:      o5kl1jq  
+Author:          Iamhungryforlife  
+Bio:               
+Account Created: 2021-08-03T17:06:58Z  
+Link Karma:      24  
+Comment Karma:   9780  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T20:56:35Z  
+Score:           214 points  
+Post Title:      US 2025 jobs numbers revised down by over 1 million  
+:::::: Reddit User Comment: ======  
+Der! Like everyone saw this coming when Trump fired the commissioner of Bureau of Labor Statistics because he didn't like the "soft" job report from July.
+
+How can anyone believe anything from this regime? 
+
+p.s. Reddit is showing me a threat as I type this. It reads..
+
+"We ban people for being overtly political."
+
+
+
+
+=============
+  
+## Reddit comment o5l6u7x
+
+    entry 404
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l6u7x/  
+Comment ID:      o5l6u7x  
+Author:          concerts85701  
+Bio:               
+Account Created: 2024-04-08T16:42:25Z  
+Link Karma:      256  
+Comment Karma:   75452  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T22:50:13Z  
+Score:           1215 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+So everyone except the bots over at [r/conservative](/r/conservative)?
+
+
+
+
+=============
+  
+## Reddit comment o5l5qdd
+
+    entry 405
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l5qdd/  
+Comment ID:      o5l5qdd  
+Author:          Lontology  
+Bio:             I like numbers.  
+Account Created: 2017-03-08T12:42:46Z  
+Link Karma:      355395  
+Comment Karma:   722713  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T22:44:08Z  
+Score:           1341 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+To do what with??? Put me in jail for making Trump memes? Lol
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes. As that would inspire more hate following to Trump. When leading with hate, you troll Reddit into Matthew 4:19 being caught with hate chasing. Reddit follows leaders of hate. Note the absence of MLK Jr quotes and lecturing (even on today, a Sunday). Note the lack of any sentiment or concept of rescuing MAGA from Putin and Murdoch manipulation. Even with all the NATO signs in public that show Russia has wrecked people into hatting good long-term stable partnerships with USA. Attacking Canada makes no sense for USA, but it is great for Putin. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o5ld98m
+
+    entry 406
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5ld98m/  
+Comment ID:      o5ld98m  
+Author:          Ihavenoideawhatidoin  
+Bio:               
+Account Created: 2013-10-17T16:35:54Z  
+Link Karma:      187  
+Comment Karma:   17578  
+Comment Age:     45 minutes ago  
+Timestamp:       2026-02-15T23:26:58Z  
+Score:           9 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+They haven’t released the Epstein files against the law. You think you’re getting a real trial?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> BEYOND_DENIAL.  Yes. The Reddit cult fandom of Trump has been thrilled that every person in the nation is manic and engaged to Trump ideas, copying Trump behaviors. Even if they claim it is satire and sarcasm, the END RESULT is living in a nation of non-stop always-on Trumpism. Any time day or night, wild antics and breaking news. High speed BREAKING NEWS ADDICTIONS are what Reddit users dream of and why Trump has so much power. Surkovian governing.
+>
+
+
+=============
+  
+## Reddit comment o5l8b64
+
+    entry 407
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l8b64/  
+Comment ID:      o5l8b64  
+Author:          sentientgorilla  
+Bio:               
+Account Created: 2016-07-12T01:42:57Z  
+Link Karma:      484  
+Comment Karma:   23769  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T22:58:18Z  
+Score:           53 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+You’re suggesting making an alternative platform to compete with Reddit. I’m for it but where would we start? I don’t have technology experience but I’m happy moving on from this place. I had to fight a ban yesterday, I won but it was clearly unfair. If you have any ideas I’m open
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Enough is ENOUGH. People need to stop threatening ICE. ICE employees are a cult to Fox News HDTV. Ice is a cult to Truth Social media systems. ICE is a cult to Newsmax. Start addressing the CULT and MENTAL HEALTH issues. Nobody is taking the high road of sustained education, re-education, adult education. Stand up for authentic goodness. Stop celebrating ignorance, stop celebrating MAGA failures and ICE failures as "wins", none of this is goodness. People have ABANDONED actually desiring an INTELLIGENT and REASONABLY thinking nation. Call for people to follow, teach, quote, study, repeat Dr. Bandy X Lee's 27 contributors to her October 3, 2017 nonfiction book.
+>
+
+
+=============
+  
+## Reddit comment o5la1uv
+
+    entry 408
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5la1uv/  
+Comment ID:      o5la1uv  
+Author:          Haunting-Ad788  
+Bio:               
+Account Created: 2020-08-10T16:11:48Z  
+Link Karma:      160  
+Comment Karma:   274100  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T23:08:10Z  
+Score:           148 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+We’re really going to let America collapse to appease the whims of a child rapist with dementia who tried to stage a coup of the country and faced zero consequences. What an absolute fucking joke America has been turned into by this clown and his cult.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "cult". Reddit is also a cult. EVERYONE is avoiding Dr. Bandy X Lee and Jen Senko's leadership. It has become a CULT of commenting over and over about the OTHER CULTS. Media cultists vs. media cultists. Everyone has fallen into the quagmire of Fox News mindsets, everyone has been dragged down to where Fox News was in year 2015. Mindsets are wrecked. TURN TO Dr. Bandy X Lee's leadership! Turn to Jen Senko's example. CRY OUT LOUD! Cry for mental health help on cults, nonfiction cult deprogramming REAL_PEOPLE_ADMIT ADMIT TO THE CULT PROBLEMS IN A SEROUS NON-SNARK NON-MOCKING WAY! End the mockery. Admit that Putin wrecked your neighbors hearts and minds.
+>
+
+
+=============
+  
+## Reddit comment o5l9aw3
+
+    entry 409
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l9aw3/  
+Comment ID:      o5l9aw3  
+Author:          Kermit_the_hog  
+Bio:             Kermit The Hog :   
+Account Created: 2019-04-12T18:46:56Z  
+Link Karma:      15  
+Comment Karma:   342377  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T23:03:55Z  
+Score:           36 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+Reddit should really have known this administration would leak, if not openly publicize, any iota of cooperation provided to discourage users from using Reddit and damage not just a *‘raging hotbed of woke ideology’* but literally a platform in direct competition with the president’s own branded platform (truth social) and X.
+
+Like every minute of the day Reddit is potentially taking money out of the president and Elon’s pockets. OF COURSE he and those in his orbit are actively going to try to hurt you at every chance!
+
+They can’t possibly be surprised, so I am astonished they didn’t attempt to get out in front of it somehow.
+
+Sorry to say it, but way to suck guys.
+
+Edit: I’m not even saying Reddit would have realistically had a choice (the administration is certainly not above making real threats). I can imagine how they could have been painted in a lose\-lose situation our DOJ openly being Trump’s attack dog as it is . I just think there is no way they shouldn’t have expected it to be used offensively against them.
+
+For the love of god businesses, no matter what promises they make, pulling your pants down for Trump is not going to secure you anything other than him eventually posting your naked photos whenever he decides he needs to hurt you. Unless you also have gotten pictures of him with his pants down, you’re only gotten played. He is not capable of things like “good will” or “friendship” or allying with anyone. That is not how organized crime or the mob works.
+
+Plus he has repeatedly turned on everyone eventually and after 10 years of this, give up on thinking you can eek through this playing along, however disapprovingly.
+
+The mob gets you by getting you so afraid of being outed for things you did, knowingly or unknowingly, that would hurt you if they came to light. Then they coerce you, or trick you, into making increasingly self damaging decisions until one day you realize you are essentially working for them with no potential escape. Again for the love of god, don’t walk into that trap willingly or without protest because otherwise it will absolutely end badly eventually.
+
+The government is really the ultimate tool for a mobster, because it eliminates the startup cost for them. Because you are literally supposed to willingly cooperate with them, if not legally required to, for those first self\-damaging steps. That is why it is so fucking important we not elect a government run by a mobster!!! (This is all so infuriating!)
+
+
+
+
+=============
+  
+## Reddit comment o5l93t1
+
+    entry 410
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l93t1/  
+Comment ID:      o5l93t1  
+Author:          Dirt290  
+Bio:             Dirt290 : Not much here.  
+Account Created: 2015-11-13T00:51:36Z  
+Link Karma:      110370  
+Comment Karma:   64425  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T23:02:50Z  
+Score:           14 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+No it's people that failed.
+
+We all failed, so far.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes. WE THE PEOPLE have to make a case for authentic democracy and sharing. It's Sunday... LOVE_ONE_ANOTHER is not optional. We can't have cults of people whose desire is to go around with gangs of hate to wreck the lives of women. Or gangs of hate that are programmed by billionaires to fuck-over poor people and punch-down. Love and compassion are not optional. A hate-based economy is a shit place to live. The motivation that hate provides is aggressive and wrecks things for the children. Future is trashed with hate as an objective and hate-based systems. AMERICANS_HATE_AMERICANS
+>
+
+
+=============
+  
+## Reddit comment o5l82oo
+
+    entry 411
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l82oo/  
+Comment ID:      o5l82oo  
+Author:          Aprice40  
+Bio:               
+Account Created: 2013-03-27T20:51:37Z  
+Link Karma:      2236  
+Comment Karma:   13891  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T22:57:01Z  
+Score:           34 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+So.... time to delete my profile and never use reddit again?
+
+
+
+
+=============
+  
+## Reddit comment o5lbrw3
+
+    entry 412
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5lbrw3/  
+Comment ID:      o5lbrw3  
+Author:          CAM6913  
+Bio:             Rolling Ridge woodworks :   
+Account Created: 2019-07-12T13:54:30Z  
+Link Karma:      5030  
+Comment Karma:   169344  
+Comment Age:     56 minutes ago  
+Timestamp:       2026-02-15T23:18:11Z  
+Score:           16 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+On the bright side we’ll get to meet in person at one of his wearhouses turned into a consecrated camp. FYI : don’t take a shower.
+
+
+
+
+=============
+  
+## Reddit comment o5l8579
+
+    entry 413
+
+Comment URL: https://old.reddit.com/r/law/comments/1r5s9r6/reddit_is_voluntarily_giving_dhs_info_of_users/o5l8579/  
+Comment ID:      o5l8579  
+Author:          ChecksAndBalanz  
+Bio:               
+Account Created: 2025-03-08T18:31:10Z  
+Link Karma:      11015  
+Comment Karma:   20736  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T22:57:24Z  
+Score:           25 points  
+Post Title:      Reddit is Voluntarily Giving DHS Info of Users Who Criticize ICE | Administrative Subpoenas Being Used Against Free Speech?  
+:::::: Reddit User Comment: ======  
+Considering how God\-awful the mods and administrators of Reddit are, why should I be surprised by this?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account. And expanding the point: Reddit admins and Reddit moderators behave like ICE, masked secret police, reporting and removing people without identity.
+>
+
+
+=============
+  
+## Reddit comment o5kadwz
+
+    entry 414
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r5ngps/sober_people_being_arrested_nationwide_for_dui/o5kadwz/  
+Comment ID:      o5kadwz  
+Author:          Burgerkingsucks  
+Bio:             Burgerkingsucks : I think Burger King is the worst place ever. I will not rest until this scourge is eradicated from the face of the earth. (Figuratively not literally)  
+Account Created: 2014-10-17T03:13:04Z  
+Link Karma:      4345  
+Comment Karma:   55570  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-15T20:01:12Z  
+Score:           5159 points  
+Post Title:      Sober people being arrested nationwide for DUI  
+:::::: Reddit User Comment: ======  
+We need to figure out a way to scale back the degree the police can infringe upon our rights. As of now if the moron who barely passed high school suspects something of you with no good evidence, they can ruin your life.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> POLICE_STATE
+>
+
+
+=============
+  
+## Reddit comment o5k7igu
+
+    entry 415
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r5ngps/sober_people_being_arrested_nationwide_for_dui/o5k7igu/  
+Comment ID:      o5k7igu  
+Author:          chimpyjnuts  
+Bio:               
+Account Created: 2013-01-16T23:45:49Z  
+Link Karma:      206  
+Comment Karma:   48401  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-15T19:46:42Z  
+Score:           979 points  
+Post Title:      Sober people being arrested nationwide for DUI  
+:::::: Reddit User Comment: ======  
+IMHO, I always believed that in high\-probability situations (like seeing a car leave a bar at closing time) the cops will pretty much invent a reason to pull the car over. If they are drunk, it's unlikely they will later contest the reason for the stop, if they are not they will be happy to just be let go. Going after sober people seems unnecessary.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> USA lore stories on Reddit thread, lots of replies. Maximum egoism. 
+> 
+> My experience: From August 1999 to February 2009 I lived in an RV many of those years worked from home since August 1999. Many a days working in bars on Sunday through Thursday when they are not busy to get WiFi on my laptop all over the USA at happy hour 2pm to 6pm for food specials. Then go into the parking lot and watch TV / movies / read until 11pm and go find a place to park the RV on the street. Amazing how many cities in USA you see people come in after work (or off work early) at 3:30pm to 5pm and slam down 5 to 10 drinks in 60 to 90 minutes and then go drive home. Horrific ethics. Driving in rush hour 5pm to 7pm drunk.
+>
+
+
+=============
+  
+## Reddit comment o5lh53a
+
+    entry 416
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r5ngps/sober_people_being_arrested_nationwide_for_dui/o5lh53a/  
+Comment ID:      o5lh53a  
+Author:          sykeed  
+Bio:               
+Account Created: 2014-10-08T23:31:09Z  
+Link Karma:      5164  
+Comment Karma:   3690  
+Comment Age:     42 minutes ago  
+Timestamp:       2026-02-15T23:50:20Z  
+Score:           None  
+Post Title:      Sober people being arrested nationwide for DUI  
+:::::: Reddit User Comment: ======  
+GA has "Drug Whisper" cops. They bring you in and say they can tell you are on something without any tests. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Autistic people have real trouble with police like that. People who think they can instantly detect if you are telling lies or nervous because of eye contact, gestures, speech patterns.
+> 
+> * "Autistic individuals are roughly seven times more likely to encounter law enforcement than neurotypical peers, with nearly 20% having interactions by adulthood, often leading to, dangerous misunderstandings due to, communication differences. Behaviors like avoiding eye contact, stimming, or non-responsiveness can be misinterpreted as defiance, causing, potentially, fatal escalations."; "Misinterpretation of Behaviors: Self-stimulatory behaviors (rocking, hand-flapping) or, avoiding eye contact may be mistaken for guilt, drug use, or mental instability."; "Communication Barriers: Autistic individuals may not respond to, verbal commands instantly, or may become non-verbal (shutdown) under stress."; "Sensory Overload: Flashing lights, sirens, and, multiple officers can trigger, a, "fight-or-flight" response." - Google Search summary. 2026-02-15 evening USA.
+>
+
+
+=============
+  
+## Reddit comment o5jo5ru
+
+    entry 417
+
+Comment URL: https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5jo5ru/  
+Comment ID:      o5jo5ru  
+Author:          Ohuigin  
+Bio:               
+Account Created: 2016-09-28T03:42:17Z  
+Link Karma:      35772  
+Comment Karma:   490412  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-15T18:11:49Z  
+Score:           None  
+Post Title:      Trump's plot to 'steal' the midterm elections is becoming clear  
+:::::: Reddit User Comment: ======  
+JULY 28, 2024 \- Reuters: [Trump tells Christians they won't have to vote after this election](https://www.reuters.com/world/us/trump-tells-christians-they-wont-have-vote-after-this-election-2024-07-27/)
+
+It’s becoming clearer *now*…? **Now?** 
+
+***NOW?!?!?***
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top-voted comment. One of the saddest things is Reddit community. You have a technically experienced community, but they are so compulsive in creating fresh unique comments all on different pages at slightly different times... they do not see the forest for the trees. Reddit community has the knowledge and skills to organize, but can not see the complete ABSENCE of organization.
+> 
+> I've proposed "Every 47 Hours" everyday people get together (whoever is available) for 90 minutes and do a FAQ and Wiki edits. https://GitHub.com/GreatSealUSA/Brainrot_Society_47/tree/main/Every_47_Hours Publish a "top 10" or "top 15" list every 47 hours of PRIORITIES and AWARENESS education and teaching (for graphic artists, comics, etc). Start organizing an INTELLECTUAL resistance and RESCUE people from billionaire Fox News, billionaire Musk Twitter, billionaire Facebook, billionaire Truth Social, etc.
+> 
+> We The People, no matter if eligible to vote or even in the USA, have it in our interest to organize the most important information that keeps us on a long-term path of goodness. The anti-FAQ anti-Wiki behaviors have drowned out "getting on the same page" of important topics. ANTI_WIKI_ANTI_FAQ
+>
+
+
+=============
+  
+## Reddit comment o5jq5fe
+
+    entry 418
+
+Comment URL: https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5jq5fe/  
+Comment ID:      o5jq5fe  
+Author:          blondiAngel  
+Bio:             Tyler 🎀 : Cute, clingy, and always ready to steal your attention✨  
+Account Created: 2025-11-05T00:53:37Z  
+Link Karma:      1  
+Comment Karma:   1935  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-15T18:21:24Z  
+Score:           None  
+Post Title:      Trump's plot to 'steal' the midterm elections is becoming clear  
+:::::: Reddit User Comment: ======  
+This is absolutely chilling. The fact that Trump openly admitted at the National Prayer Breakfast that he "needed to win for his own ego" shows this was never about serving the country. When someone tells you who they are, believe them.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account. Highly upvoted (2nd).
+>
+
+
+=============
+  
+## Reddit comment o5jnh7l
+
+    entry 419
+
+Comment URL: https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5jnh7l/  
+Comment ID:      o5jnh7l  
+Author:          Master_Stuff4699  
+Bio:               
+Account Created: 2025-10-23T05:25:15Z  
+Link Karma:      4  
+Comment Karma:   112  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-15T18:08:30Z  
+Score:           None  
+Post Title:      Trump's plot to 'steal' the midterm elections is becoming clear  
+:::::: Reddit User Comment: ======  
+Sickening that half the country fell for this child molestor’s lies
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account. Promoting the idea that half the country is the crisis. Why isn't "the good half" of the nation rescuing the other half? Real people ADMIT we have a MASSIVE mental health crisis in our nation. REAL_PEOPLE_ADMIT Why is Dr. Bandy X Lee being ignored and her 27 contributors to her October 3, 2017 book not being quoted over and over every day on Reddit... why isn't Reddit organizing a blackout protest? If it is only "half the nation" in a cult to Trump engagement and Trump media, why are ALL people ignoring Dr. Bandy X Lee since year 2017? 
+> 
+> My answer is that it is a TOTAL NATION cult, 100%, not 50%, not 30%. EVERYONE, even non-voters. Because quoting and citing Dr. Bandy X Lee's leadership and calling for, begging, people to follow and support Dr. Lee's is an OBVIOUS GOODNESS MOVE. But media cultists only want to comment over and over how much they hate other Americans. This avoidance of serious nonfiction learning has been going on since year 2017 when her book was published. AMERICANS_HATE_AMERICANS
+>
+
+
+=============
+  
+## Reddit comment o5l81k4
+
+    entry 420
+
+Comment URL: https://old.reddit.com/r/politics/comments/1r5l8k2/trumps_plot_to_steal_the_midterm_elections_is/o5l81k4/  
+Comment ID:      o5l81k4  
+Author:          _Chaos_Star_  
+Bio:               
+Account Created: 2019-08-26T23:21:36Z  
+Link Karma:      241  
+Comment Karma:   22737  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-15T22:56:51Z  
+Score:           None  
+Post Title:      Trump's plot to 'steal' the midterm elections is becoming clear  
+:::::: Reddit User Comment: ======  
+Whilst it's tempting to say "you are only just realizing this now!?", it's important that the possibility is being discussed publicly and through the media constantly, as awareness is important. So, the existence of the article is good.
+
+A few comments:
+
+* There's no one plot. You're going to see a multi\-pronged approach to shutting down elections, disenfranchising voters, intimidating voters, changing the results, preventing their acceptance/certification, and invalidating the results. There's no single diabolical scheme. It's many of them. All at once. Hoping one will work.
+* It's not because they're worried about what happens next or that there may be consequences for what they're doing. Maybe it's in the back of their mind, but it's not the reason. They have power, influence, and are making a crap ton of money. They want to keep all three of these, forever.
+* There's no maybe. There are no conditions. They will cheat and do diabolical things to keep their stranglehold on the things they want. What is important is that we push and fight back at every stage, with every attempt.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The problem is people come to social platforms every day, and REACT to the White House. People are in feedback loops of reaction-commenting to Trump / MAGA / Kremlin / White House. ANTI_WIKI_ANTI_FAQ
+>
+
+
+=============
+  
+## Reddit comment o5ksef0
+
+    entry 421
+
+Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1r5n9aa/this_lying_sack_of_shit_and_the_weirdos_that/o5ksef0/  
+Comment ID:      o5ksef0  
+Author:          NebulaNinja  
+Bio:               
+Account Created: 2013-01-20T20:00:42Z  
+Link Karma:      65517  
+Comment Karma:   196091  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T21:34:01Z  
+Score:           4 points  
+Post Title:      This lying sack of shit and the weirdos that enabled him have caused irreparable harm to us all. Even Grok (Nazi Al) knows it's suspect.  
+:::::: Reddit User Comment: ======  
+[I'm really not sure how you fake a bullet captured in a photograph.](https://www.nytimes.com/video/us/politics/100000009570661/photographer-captures-bullet-streaking-past-trump.html) Or is this photographer, \[Doug Mills,]() who's covered the White House with his photography since 1983, part of the conspiracy too?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit is a cult of mocking Trump. A cult of mockery. Trump leads the mockery and Reddit cult follows the leader. TRUMP_FANDOM Why isn't there a FAQ or Wiki about this shooting? Why are these low-effort social media shit-postings and shit-commenting prized just like Truth Social is full of shit-posting and shit-commenting. After years, nobody has assembled a FAQ? ANTI_WIKI_ANTI_FAQ This is a cult of ignorance on Reddit that loves shit-commenting. A MEDIA CULT. High-speed commenting addictions. This is not "Progressive H.Q.", this shit-posting shit-commenting is behaving like ignorant MAGA.
+>
+
+
+=============
+  
+## Reddit comment o5k7tv8
+
+    entry 422
+
+Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1r5n9aa/this_lying_sack_of_shit_and_the_weirdos_that/o5k7tv8/  
+Comment ID:      o5k7tv8  
+Author:          Past_Throat_7414  
+Bio:               
+Account Created: 2025-12-11T09:36:34Z  
+Link Karma:      1  
+Comment Karma:   17  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-15T19:48:19Z  
+Score:           17 points  
+Post Title:      This lying sack of shit and the weirdos that enabled him have caused irreparable harm to us all. Even Grok (Nazi Al) knows it's suspect.  
+:::::: Reddit User Comment: ======  
+Yeah this whole thing felt like a vibes‑based psyop from the jump. The framing, the timing, the “heroic survivor” narrative, the magically pristine ear, all of it. Wild how many people will treat a single photo like it’s gospel as long as it fits their team’s storyline.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. "vibes‑based psyop". No evidence, no proof. Vibes media, vibe-based social media commenting. SURKOV_WARFARE There are FAR MORE IMPORTANT DANGEROUS MATTERS TO PROMOTE on Reddit right now EVERY DAY. NOT_GOOD_ENOUGH Dr. Bandy X Lee should be quoted, linked, cited constantly on Reddit to address the mental health issues of Trump!
+>
+
+
+=============
+  
+## Reddit comment o5lqvor
+
+    entry 423
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r5v37z/robin_williams_on_trump_in_2012_and_he_owns_all/o5lqvor/  
+Comment ID:      o5lqvor  
+Author:          SingStreet55  
+Bio:               
+Account Created: 2021-03-22T12:08:38Z  
+Link Karma:      171  
+Comment Karma:   12580  
+Comment Age:     45 minutes ago  
+Timestamp:       2026-02-16T00:47:52Z  
+Score:           757 points  
+Post Title:      Robin Williams on Trump in 2012: And he owns all these beauty pageants. Miss America, Miss Universe. Isn't that a bit like Michael Vick owning a series of pet stores? It's a f-cking catch and release program for him. This is a man who said, 'My daughter is hot.'  
+:::::: Reddit User Comment: ======  
+I wish we had listened. Robin would be so disappointed in us.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> WE WERE LISTENING! DENIAL_ABOUNDS Russia won a psychological war! SEE_ALSO: "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md
+> 
+> It makes zero sense why MAGA USA would INVITE a Chinese virus, a virus from Wuhan, China and not defend against it as biological warfare! People are in a cult of nonsense! We have factual evidence since year 2014, before COVID-19 https://www.bbc.com/news/world-us-canada-45294192
+> 
+> It makes zero sense for rural farm-town Americans to believe a New Your City slickster / playboy who flies around in private jets and and is everything sleazy that rural folks do not like about city folks! He is divorced, he bullshits constantly. it is all INCREDIBLY OBVIOUS! SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Donald_Trump_is_so_Obvious.md
+> 
+> People do not get the mechanics and details of Russian information war. The signs are all there, anti-NATO attacking Canada. Anti-NATO attacking Greenland. Dropping support for Ukraine in favor of Putin. Even meeting in summer of 2025 with Putin in Alaska! But people keep blowing their minds out laughing and joking about Trump.
+> 
+> The NONSENSE scrambled minds, the cult behaviors, people are not RESCUING MAGA. People are not teaching nonfiction cult deprogramming. People NEED to get in line and cheer and support and repeat quotes from Dr. Bandy X. Lee. Start EDUCATING and TEACHING the general public, everyday people, what Dr. Bandy X Lee has published and assembled.
+>
+
+
+=============
+  
+## Reddit comment o5lttg3
+
+    entry 424
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r5v37z/robin_williams_on_trump_in_2012_and_he_owns_all/o5lttg3/  
+Comment ID:      o5lttg3  
+Author:          LLAPSpork  
+Bio:               
+Account Created: 2022-04-05T18:29:18Z  
+Link Karma:      6592  
+Comment Karma:   36478  
+Comment Age:     35 minutes ago  
+Timestamp:       2026-02-16T01:05:56Z  
+Score:           52 points  
+Post Title:      Robin Williams on Trump in 2012: And he owns all these beauty pageants. Miss America, Miss Universe. Isn't that a bit like Michael Vick owning a series of pet stores? It's a f-cking catch and release program for him. This is a man who said, 'My daughter is hot.'  
+:::::: Reddit User Comment: ======  
+[\<image\>](https://preview.redd.it/dsobj5wnarjg1.jpeg?width=960&format=pjpg&auto=webp&s=e3eeb45398f08efca8593c84ca837b620b9b0dde)
+
+I genuinely don’t understand how Trump has so many supporters.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> COMPREHENDING_UNDERSTANDING Everyone, not just Republicans, not just MAGA, has been manipulated by Russia. Core symptom is the avoidance of nonfiction serious learning. Dr. Bandy X Lee being ignored is a SYMPTOM of the Russian information warfare. Reddit users should be commenting about Dr. Bandy X Lee every front-page posting, every hour of every day, until MAGA cult is dealt with. Reddit's commenting about Dr. Lee should be covered in the press as a newsworthy social movement. People need to stop mocking MAGA and treat it as a rescue operation. Surkov won since year 2013.
+> 
+> * "When NPD and psychopathy combine, they form a pattern of behavior called malignant narcissism. This isn’t a diagnosis, but a term coined by psychoanalyst Erich Fromm and elaborated on by personality disorder expert, Otto Kernberg, to describe people so driven by feeling special that they essentially see other people as **pawns in their game** of kill or be killed, whether metaphorically or literally. Hitler, who murdered millions, Kim Jong-un, who’s suspected of ordering his uncle’s and brother-in-law’s deaths, and **Vladimir Putin, who jokes about “liquidating journalists”** — no doubt all fall in the category of malignant narcissist (among possessing other pernicious traits, like sadism, or delight in hurting others)."
+> ― Bandy X Lee, The Dangerous Case of Donald Trump: [27 Psychiatrists and Mental Health Experts Assess a President. PUBLISHED October 3, 2017. Page 58.](https://books.google.com/books?id=716HDwAAQBAJ&pg=PA58&dq=%22driven+by+feeling+special+that+they+essentially+see+other+people%22&hl=en&newbks=1&newbks_redir=1&sa=X)
+>
+
+
+=============
+  
+## Reddit comment o5lm4pk
+
+    entry 425
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lm4pk/  
+Comment ID:      o5lm4pk  
+Author:          sabhall12  
+Bio:             Ravel991 : ...  
+Account Created: 2017-03-15T19:36:17Z  
+Link Karma:      56181  
+Comment Karma:   157420  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-16T00:19:34Z  
+Score:           2513 points  
+Post Title:      AOC talks about the pain and the vitriol she has faced by the democrats, how they told her she was an enemy and that mainstream democrats have to swallow medicine on how younger voters stand on issues like Palestine  
+:::::: Reddit User Comment: ======  
+She is fighting against both sides for her cause, it's pathetic behaviour by the Dems when she is a more staunch advocate than many in the party.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We have a population that prizes shit-commenting and shit-posting above nonfiction serious books for adult learning. It was not always this way. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o5lp2dd
+
+    entry 426
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lp2dd/  
+Comment ID:      o5lp2dd  
+Author:          UsagisImpact  
+Bio:               
+Account Created: 2024-11-06T12:58:22Z  
+Link Karma:      227  
+Comment Karma:   6144  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-16T00:37:02Z  
+Score:           102 points  
+Post Title:      AOC talks about the pain and the vitriol she has faced by the democrats, how they told her she was an enemy and that mainstream democrats have to swallow medicine on how younger voters stand on issues like Palestine  
+:::::: Reddit User Comment: ======  
+If you work in a space with Boomers (and older generations) this is par for the course. She has good ideas but they will never move on them because they’re coming from her.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The cult of celebrity and cult of deception leaders DECEPTION_LEADERSHIP runs all the way down to the 15 year-old kids. Billionaires have the 15 year old kids prizing influencers that are just as shitty in their ambitions for power as Donald Trump. Cults of low-effort commenting and mocking sources and insult sources is a problem from elderly to youth, everyone. This is part of the reason I push dead authors and books on paper, people need to break free from the current values of Twitter-thinking "sound bites" as Carl Sagan called it in year 1995.
+>
+
+
+=============
+  
+## Reddit comment o5lndf7
+
+    entry 427
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r5ujs4/aoc_talks_about_the_pain_and_the_vitriol_she_has/o5lndf7/  
+Comment ID:      o5lndf7  
+Author:          CorsoReno  
+Bio:               
+Account Created: 2024-07-13T12:54:02Z  
+Link Karma:      1  
+Comment Karma:   32188  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-16T00:26:51Z  
+Score:           920 points  
+Post Title:      AOC talks about the pain and the vitriol she has faced by the democrats, how they told her she was an enemy and that mainstream democrats have to swallow medicine on how younger voters stand on issues like Palestine  
+:::::: Reddit User Comment: ======  
+She’s hardly even that left wing lmao. Especially when you compare her to dems of the past
+
+It’s embarrassing in this country that any hint of ‘left of center’ politics is treated like poison.
+
+We’re so fucked
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Left vs. right brain rot. People need to focus on fiction vs. nonfiction. Fiction outsells nonfiction. All our media systems large and small have bent far into Russian mythology patterns since year 2013.
+>
+
+
+=============
+  
+## Reddit comment o5ndnzl
+
+    entry 428
+
+Comment URL: https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5ndnzl/  
+Comment ID:      o5ndnzl  
+Author:          klparrot  
+Bio:               
+Account Created: 2010-09-04T21:16:58Z  
+Link Karma:      1  
+Comment Karma:   285539  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-16T07:59:48Z  
+Score:           None  
+Post Title:      MAGA Candidate Outed as New Owner of Epstein Property  
+:::::: Reddit User Comment: ======  
+It should be scanned with ground\-penetrating radar for remains, and the buildings razed, all trace of them removed. It's not the sort of thing or place suitable for a museum, it would only attract creeps.
+
+
+
+
+=============
+  
+## Reddit comment o5m6qb8
+
+    entry 429
+
+Comment URL: https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5m6qb8/  
+Comment ID:      o5m6qb8  
+Author:          Original_Astronaut_4  
+Bio:               
+Account Created: 2020-07-04T04:00:32Z  
+Link Karma:      115  
+Comment Karma:   2734  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-16T02:28:39Z  
+Score:           32 points  
+Post Title:      MAGA Candidate Outed as New Owner of Epstein Property  
+:::::: Reddit User Comment: ======  
+And what about him freaking winning the lottery!?!?
+
+
+
+
+=============
+  
+## Reddit comment o5mt1zd
+
+    entry 430
+
+Comment URL: https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5mt1zd/  
+Comment ID:      o5mt1zd  
+Author:          GoodIdea321  
+Bio:               
+Account Created: 2012-07-07T02:48:22Z  
+Link Karma:      2072  
+Comment Karma:   182111  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-16T05:02:37Z  
+Score:           None  
+Post Title:      MAGA Candidate Outed as New Owner of Epstein Property  
+:::::: Reddit User Comment: ======  
+They're not interested in learning, that's more or less why we're in this position. Millions of Americans who think they know everything worth learning and anything more is a nuisance.
+
+
+
+
+=============
+  
+## Reddit comment o5mr6ao
+
+    entry 431
+
+Comment URL: https://old.reddit.com/r/politics/comments/1r5u109/maga_candidate_outed_as_new_owner_of_epstein/o5mr6ao/  
+Comment ID:      o5mr6ao  
+Author:          E-2theRescue  
+Bio:             40, trans woman, Jewish-German descendant.
+
+I was 10 years old, in August 1995, when I started suffering from extreme gender dysphoria. Trans kids exist.  
+Account Created: 2025-04-01T01:00:33Z  
+Link Karma:      14414  
+Comment Karma:   77745  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-16T04:48:35Z  
+Score:           None  
+Post Title:      MAGA Candidate Outed as New Owner of Epstein Property  
+:::::: Reddit User Comment: ======  
+LMAO! It really is a fucking cover\-up, isn't it? Give the land to a MAGA so that he can protect the property where children were raped!
+
+And people think this is all fake. It's the world's largest cover\-up in the entire world's history.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Bible verse "1 John 4:20" not being the introduction every Sunday (as a reminder) is perhaps the biggest cover-up in world history. It leads to bamboozle after bamboozle. People are more convinced of magical ghost spirits and UFO sightings than they are convinced of poisoning the planet might possibly harm their beloved { pet dog, pet kitten, pet cat, children, self }. How can any person think putting fire smoke into your lungs might not have some health impact, yet people defended smoking as not causing cancer or other complications. Alcohol in USA society is still treated a a non-toxic chemical. 
+> 
+> * “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back. So the old bamboozles tend to persist as the new ones rise.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**, page 241.
+>
+
+
+=============
+  
+## Reddit comment o5mjq3y
+
+    entry 432
+
+Comment URL: https://old.reddit.com/r/TwoXChromosomes/comments/1r5yj7s/woman_dies_after_being_denied_health_care_because/o5mjq3y/  
+Comment ID:      o5mjq3y  
+Author:          s_bgood  
+Bio:               
+Account Created: 2018-01-01T19:33:26Z  
+Link Karma:      167  
+Comment Karma:   18933  
+Comment Age:     10 hours ago  
+Timestamp:       2026-02-16T03:55:05Z  
+Score:           958 points  
+Post Title:      Woman dies after being denied health care because she was pregnant  
+:::::: Reddit User Comment: ======  
+The ProPublica article broke my heart. Linking because it gives a clearer picture of how poorly this woman was treated: [https://www.propublica.org/article/north\-carolina\-abortion\-laws\-ciji\-graham](https://www.propublica.org/article/north-carolina-abortion-laws-ciji-graham)
+
+I have a heart condition and the fact the electrophysiologist let her leave in that state is malpractice. They should have their license stripped immediately.
+
+Being a woman in this country is downright terrifying. I'm so sorry to Ciji and the other women who have lost their lives due to this nonsense.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> for the record. I do indeed write 2 or 3 long paragraphs and delete them without even a temporary record. I can't even muster picking a quote from the many that echo in my head when reading these experiences.
+> 
+> There are thoughts in my mind in 1996 that come back to me. When I pondered if people would keep building systems that were dehumanizing or if there would be a rise of social movements like Martin Luther King Jr who had made compassion popular enough that it got recorded and passed down. But would we continue to stop passing down authentic joy and goodness and keep elevating a kind of manipulating mind-tricking mindsets that concentrate power and wealth.
+> 
+> * “Ours is the first age in which many thousands of the best-trained individual minds have made it a full-time business to get inside the collective public mind.”
+> ― Marshall McLuhan, The Mechanical Bride : Folklore of Industrial Man. year 1951.
+>
+
+
+=============
+  
+## Reddit comment o5mtfkz
+
+    entry 433
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5mtfkz/  
+Comment ID:      o5mtfkz  
+Author:          Preeng  
+Bio:               
+Account Created: 2023-06-13T22:42:04Z  
+Link Karma:      951  
+Comment Karma:   108183  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-16T05:05:33Z  
+Score:           105 points  
+Post Title:      it's so obvious  
+:::::: Reddit User Comment: ======  
+Nah, I don't think he stole 2016\. If you look at the video of him watching the announcement that he won, he looks mortified. The plan was to lose and then grift off of accusing the Democrats of cheating
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People act like it is a 3 hour event to be President for 4 years. Trump could have quit before the election. He could resign at any time. the fantasy people have that Trump's travel to/front the White House is all some kind of accident is ridiculous. It takes labor and effort. Trump is not passive and inactive. Trump breaks convention on thousands and thousands of President issues. He could quit and say that that the USA is so corrupt that it should all be burned down. Such a dramatic quitting  would probably inspire We The People to wreck goodness more than we already have.
+> 
+> The anti-goodness Trump is leading is hard work, labor. Even his media appearances and being on camera is exhausting. His mind is working at full capacity to promote hate leadership (which Reddit follows, hate harder competition, always more hate in following Trump's lead. Always more Reddit fiction and bullshit in the face of Trump's bullshit and fiction).
+>
+
+
+=============
+  
+## Reddit comment o5ne7k7
+
+    entry 434
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5ne7k7/  
+Comment ID:      o5ne7k7  
+Author:          7StarSailor  
+Bio:               
+Account Created: 2020-09-19T13:44:01Z  
+Link Karma:      9276  
+Comment Karma:   44703  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-16T08:04:50Z  
+Score:           15 points  
+Post Title:      it's so obvious  
+:::::: Reddit User Comment: ======  
+It's honestly so confusing to me that Trump trying to steal the 2020 election with fake electors and fake signatures and stuff isn't part of public conciousness.
+
+There were trials and hearings and everything but many don't seem to know about what he tried to pull off there.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People are drowning important topics as "Advice Animals" on Reddit /r/AdviceAnimals memes. People do have the concept of a nonfiction book, people do know what Wiki systems look like. But they would rather create comment after comment over and over and over. It's so sickening that people think all being on different pages at different times is not a "We the People" problem. The October 3, 2017 nonfiction book by Dr. Bandy X Lee with 27 contributors isn't good enough for people to find common ground to teach, educate, and quote from. NOT_GOOD_ENOUGH
+>
+
+
+=============
+  
+## Reddit comment o5md2mg
+
+    entry 435
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5md2mg/  
+Comment ID:      o5md2mg  
+Author:          Krail  
+Bio:               
+Account Created: 2012-01-25T00:16:41Z  
+Link Karma:      4985  
+Comment Karma:   286931  
+Comment Age:     11 hours ago  
+Timestamp:       2026-02-16T03:09:38Z  
+Score:           85 points  
+Post Title:      it's so obvious  
+:::::: Reddit User Comment: ======  
+This is what's meant by "every accusation is a confession."
+
+You throw around baseless accusations all the time so that when someone throws legitimate accusations against you, they look like they're playing the same stupid game.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It works. ANTI_REALITY people choose liars as leaders. The kind of serious thoughtful people who would write a book explaining a common problem are ignored, and then people can't resist their compulsive attraction to celebrity.
+> 
+> * "By bringing together in compact form all of the arts of show business — music, drama, imagery, humor, celebrity — the television commercial has mounted the most serious assault on capitalist ideology since the publication of Das Kapital. To understand why, we must remind ourselves that capitalism, like science and liberal democracy, was an outgrowth of the Enlightenment. Its principal theorists, even its most prosperous practitioners, believed capitalism to be based on the idea that both buyer and seller are sufficiently mature, well informed and reasonable to engage in transactions of mutual self-interest. If greed was taken to be the fuel of the capitalist engine, then surely rationality was the driver. The theory states, in part, that competition in the marketplace requires that the buyer not only knows what is good for him **but also what is good**. If the seller produces nothing of value, as determined by a rational marketplace, then he loses out. It is the assumption of rationality among buyers that spurs competitors to become winners, and winners to keep on winning. Where it is assumed that a buyer is unable to make rational decisions, laws are passed to invalidate transactions, as, for example, those which prohibit children from making contracts. In America, there even exists in law a requirement that sellers must tell the truth about their products, for **if the buyer has no protection from false claims, rational decision-making is seriously impaired**." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Year 1985.
+>
+
+
+=============
+  
+## Reddit comment o5mlp9z
+
+    entry 436
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5mlp9z/  
+Comment ID:      o5mlp9z  
+Author:          ashtag_swag  
+Bio:               
+Account Created: 2013-10-13T00:53:04Z  
+Link Karma:      3  
+Comment Karma:   2857  
+Comment Age:     10 hours ago  
+Timestamp:       2026-02-16T04:09:00Z  
+Score:           -2 points  
+Post Title:      it's so obvious  
+:::::: Reddit User Comment: ======  
+Just another crackpot reddit theory. Nothing to see here
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Anti-citation, anti-quotation, anti-nonfiction. "Advice Animals".
+>
+
+
+=============
+  
+## Reddit comment o5mjx5e
+
+    entry 437
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5mjx5e/  
+Comment ID:      o5mjx5e  
+Author:          myychair  
+Bio:               
+Account Created: 2013-06-04T14:06:43Z  
+Link Karma:      455  
+Comment Karma:   102864  
+Comment Age:     10 hours ago  
+Timestamp:       2026-02-16T03:56:27Z  
+Score:           6 points  
+Post Title:      it's so obvious  
+:::::: Reddit User Comment: ======  
+They do this with everything. They accuse others of doing it so when they get caught and accused of the same thing looks like petty retaliation.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> In other words, they play language games. People manipulate other people with communications timing and messaging. Yet, Reddit society does not turn to any serious nonfiction on the subject and instead favors low-effort commenting, more commenting, and commenting yet again. And the commenting does not repeat and assert that all information is not equal.  Reddit commenting is a cult.
+> 
+> * “There is a cult of ignorance in the United States, and there has always been. The strain of anti-intellectualism has been a constant thread winding its way through our political and cultural life, nurtured by the false notion **that democracy means that 'my ignorance is just as good as your knowledge.”** ― Isaac Asimov. Year 1980.
+> 
+> Communications timing and messages is used to create fiction, untrue, ignorant statements. Then people RACE at high speeds to Apple iPhone / Apple iPad / Android devices to comment upon that ignorance. And the commenting does not show serious and persistent concern that we all need to be focusing on Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death".
+> 
+> We are in a feedback loop, MAGA vs non-MAGA, in thousands of variations. Our computing information systems have overrun the human brain with looping shit-talking shit-commenting shit-posting. The USA invented social media, the USA invented TCP/IP. The USA is in feedback loops about Epstein and Trump.
+> 
+> Social post { https://autistics.life/@RoundSparrow/116080043002884460 https://bsky.app/profile/roundsparrow.bsky.social/post/3mexwptbyec2i }
+>
+
+
+=============
+  
+## Reddit comment o5nkhck
+
+    entry 438
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5nkhck/  
+Comment ID:      o5nkhck  
+Author:          TheNutsMutts  
+Bio:               
+Account Created: 2024-05-03T14:57:32Z  
+Link Karma:      2  
+Comment Karma:   26999  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-16T09:04:23Z  
+Score:           4 points  
+Post Title:      it's so obvious  
+:::::: Reddit User Comment: ======  
+
+> Those who would've staged the attempt couldn't care less about collateral damage, even if it was someone as selfless as a firefighter.
+
+So it would be Trump..... *and* the Secret Service as part of this plot? And the FBI who investigated it? And the bipartisan congressional committee who investigated it?
+
+They all looked into it, would have found evidence that it was staged.... and *all* decided to go along with the hoax to benefit Trump?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit commenting section is attracted to shit information. Shit knowledge. IGNORANCE_CELEBRATIONS "Advice Animals"
+>
+
+
+=============
+  
+## Reddit comment o5m0z6v
+
+    entry 439
+
+Comment URL: https://old.reddit.com/r/AdviceAnimals/comments/1r5wg7m/its_so_obvious/o5m0z6v/  
+Comment ID:      o5m0z6v  
+Author:          I_just_made  
+Bio:             The Man, The Myth, The Legend. :   
+Account Created: 2014-10-20T02:39:16Z  
+Link Karma:      1  
+Comment Karma:   89762  
+Comment Age:     12 hours ago  
+Timestamp:       2026-02-16T01:51:45Z  
+Score:           54 points  
+Post Title:      it's so obvious  
+:::::: Reddit User Comment: ======  
+The assassination plot theory is so tiresome.
+
+One thing to clarify before presenting the scenarios: Trump claims that the bullet grazed his ear; nothing suggests that is true. If it was, they would have been chomping at the bit to release the medical records for it. And, just think about the odds of that happening; they are insanely low. The kid missed, and by a larger margin than Trump wants you to believe.
+
+That said, what most like happened was either:
+
+1. A shot hit something, fragmented the bullet, and one of the fragments nicked the ear.
+2. In the scuffle to cover Trump, a piece of gear nicked his ear.
+
+I think it is probably the first one.
+
+But to say this was all faked? The blood squib ideas are ridiculous, especially when you consider that someone was actually killed. So they faked this by... shooting near the person they are trying to fake making the attempt on? Come on fellas.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TRUMP_FANDOM Reddit is a cult of low-information shit-commenting and shit-posting and shit-thinking. Reddit is a cult to Trump's leadership of national enshitification. Reddit is a cult of commenting about Trump's shit. A media cult, a cult of media content. Never has one person, Trump at age 80, ever been easier to insult and mock. Reddit community has created low-effort commenting and insulting of Trump as a perpetual joking machine. Surkov won since March 2013. Infinite Jest by David Foster Wallace is proven by Reddit community perpetually commenting about Trump. Neil Postman's information media theory of 1985 proven by Reddit community.
+> 
+> We have moved beyond television only to Reddit shit-posting shit-commenting shit-favoring mindsets. Feedback looping with Donald Trump. We are in a gaming loop of shit flinging between Trump and Reddit. High-speed commenting over and and over and over for more than a decade about how much Trump is  { moron, stupid, dumb, idiot, smelly, orange skin, retarded, dementia } because of TCP/IP medium.
+> 
+> * "In the Huxleyan prophecy, Big Brother does not watch us, by his choice. We watch him, by ours. There is no need for wardens or gates or Ministries of Truth. When a population becomes distracted by trivia, when **cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience and their public business a vaudeville act**, then a nation finds itself at risk; culture-death is a clear possibility.
+> In America, Orwell’s prophecies are of small relevance, but Huxley’s are well under way toward being realized. For America is engaged in the world’s most ambitious experiment to accommodate itself to the **technological distractions made possible by the electric plug**. This is an experiment that began slowly and modestly in the mid-nineteenth century and has now, in the latter half of the twentieth, reached a perverse maturity in America’s consuming love-affair with television. As nowhere else in the world, Americans have moved far and fast in bringing to a close the age of the slow-moving printed word, and have granted to television sovereignty over all of their institutions. By ushering in the Age of Television, America has given the world the clearest available glimpse of the Huxleyan future." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. year 1985.
+>

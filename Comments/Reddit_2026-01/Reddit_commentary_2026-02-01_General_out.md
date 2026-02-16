@@ -4620,3 +4620,207 @@ NOR, if his masculinity is so fragile he can't handle needing to touch period pr
 > :::::: Analysis_Thoughts Commentary: ======  
 > Daddy issues. parenting issues. Religion indoctrination. Fox News fandom issues. Trump daddy issues. Joe Rogan daddy issues. Andrew Tate daddy issues.
 >
+
+
+=============
+  
+## Reddit comment o5kbati
+
+    entry 177
+
+Comment URL: https://old.reddit.com/r/news/comments/1r5og06/fbi_dna_recovered_from_glove_found_near_guthrie/o5kbati/  
+Comment ID:      o5kbati  
+Author:          Fsharp7sharp9  
+Bio:               
+Account Created: 2014-05-19T23:59:14Z  
+Link Karma:      24  
+Comment Karma:   734631  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-15T20:05:55Z  
+Score:           4320 points  
+Post Title:      FBI: DNA recovered from glove found near Guthrie home that appears to match glove worn by suspect  
+:::::: Reddit User Comment: ======  
+*Approximately 16 gloves were found in various spots near the house, most of which were searchers’ gloves that had been discarded, the FBI said.*
+
+Facepalmed so hard reading that, I may have concussed myself
+
+
+
+
+=============
+  
+## Reddit comment o5kxckq
+
+    entry 178
+
+Comment URL: https://old.reddit.com/r/AmIOverreacting/comments/1r5r1z3/aio_my_friends_boyfriend_posted_a_picture_on_his/o5kxckq/  
+Comment ID:      o5kxckq  
+Author:          BrokenMeasure  
+Bio:               
+Account Created: 2023-05-14T23:01:51Z  
+Link Karma:      723  
+Comment Karma:   8848  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-15T21:59:20Z  
+Score:           None  
+Post Title:      Aio? My friend's boyfriend posted a picture on his Instagram of valentines gifts he gave to a friend that's a girl.  
+:::::: Reddit User Comment: ======  
+No this can’t be real 😂😭
+
+
+
+
+=============
+  
+## Reddit comment o5lt6oy
+
+    entry 179
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1r5v37z/robin_williams_on_trump_in_2012_and_he_owns_all/o5lt6oy/  
+Comment ID:      o5lt6oy  
+Author:          FIRST_DATE_ANAL  
+Bio:             Doodely  
+Account Created: 2013-12-04T18:39:41Z  
+Link Karma:      16291  
+Comment Karma:   57726  
+Comment Age:     36 minutes ago  
+Timestamp:       2026-02-16T01:02:00Z  
+Score:           40 points  
+Post Title:      Robin Williams on Trump in 2012: And he owns all these beauty pageants. Miss America, Miss Universe. Isn't that a bit like Michael Vick owning a series of pet stores? It's a f-cking catch and release program for him. This is a man who said, 'My daughter is hot.'  
+:::::: Reddit User Comment: ======  
+I mean he’s in a whole shit load of great movies. Check out The Fisher King. He is in so many more highly acclaimed movies than this but it’s one that flew under the radar from me for too long
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Excellent films that teach important monomyth goodness patterns.
+>
+
+
+=============
+  
+## Reddit comment o5mwm85
+
+    entry 180
+
+Comment URL: https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5mwm85/  
+Comment ID:      o5mwm85  
+Author:          AkudamaEXE  
+Bio:               
+Account Created: 2025-02-09T18:35:52Z  
+Link Karma:      572  
+Comment Karma:   4165  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-16T05:30:09Z  
+Score:           364 points  
+Post Title:      After spending years talking about how daughters are useless, LowTierGod accidently reveals the rumors about him having a daughter are true by accidently showing a notepad about his child support payments.  
+:::::: Reddit User Comment: ======  
+Father is a bit of a stretch no? It sounds like he doesn’t even see his kid. This makes him a bum with 10k bill that’s just gonna keep going up
+
+
+
+
+=============
+  
+## Reddit comment o5ngdk7
+
+    entry 181
+
+Comment URL: https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5ngdk7/  
+Comment ID:      o5ngdk7  
+Author:          streetwearbonanza  
+Bio:             stop lurking my profile weirdo. if your profile is private why are you checking mine? 
+
+ I don't really check my notifications sorry  
+Account Created: 2019-08-04T01:57:58Z  
+Link Karma:      2773  
+Comment Karma:   130353  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-16T08:25:13Z  
+Score:           17 points  
+Post Title:      After spending years talking about how daughters are useless, LowTierGod accidently reveals the rumors about him having a daughter are true by accidently showing a notepad about his child support payments.  
+:::::: Reddit User Comment: ======  
+He is definitely a huge asshole but there's no reason for people to say racist shit to him
+
+
+
+
+=============
+  
+## Reddit comment o5msub4
+
+    entry 182
+
+Comment URL: https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5msub4/  
+Comment ID:      o5msub4  
+Author:          Odd_Phone_1439  
+Bio:               
+Account Created: 2026-01-19T01:19:22Z  
+Link Karma:      1  
+Comment Karma:   662  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-16T05:00:59Z  
+Score:           311 points  
+Post Title:      After spending years talking about how daughters are useless, LowTierGod accidently reveals the rumors about him having a daughter are true by accidently showing a notepad about his child support payments.  
+:::::: Reddit User Comment: ======  
+thank you microsoft for exposing streamers with your notepad enshitification
+
+
+
+
+=============
+  
+## Reddit comment o5msui5
+
+    entry 183
+
+Comment URL: https://old.reddit.com/r/LivestreamFail/comments/1r60c5e/after_spending_years_talking_about_how_daughters/o5msui5/  
+Comment ID:      o5msui5  
+Author:          irsw  
+Bio:               
+Account Created: 2013-09-16T02:33:09Z  
+Link Karma:      661  
+Comment Karma:   109641  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-16T05:01:02Z  
+Score:           55 points  
+Post Title:      After spending years talking about how daughters are useless, LowTierGod accidently reveals the rumors about him having a daughter are true by accidently showing a notepad about his child support payments.  
+:::::: Reddit User Comment: ======  
+"taken from me" is a disgusting framing
+
+
+
+
+=============
+  
+## Reddit comment o5o4z0n
+
+    entry 184
+
+Comment URL: https://old.reddit.com/r/technology/comments/1r657he/ai_hard_drives_are_already_sold_out_for_the/o5o4z0n/  
+Comment ID:      o5o4z0n  
+Author:          dragonblade_94  
+Bio:               
+Account Created: 2015-11-19T00:10:52Z  
+Link Karma:      499  
+Comment Karma:   127735  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-16T12:08:07Z  
+Score:           44 points  
+Post Title:      AI: Hard drives are already sold out for the entire year, says Western Digital  
+:::::: Reddit User Comment: ======  
+It's not just prices being affected, it's availability.
+
+The OEM I work for is having a hell of a time getting HDD forecast fulfilled. Lower capacity drives are all getting EOL'd as priority shifts to high\-caps, and those high\-caps are all on strict allocation.
+
+If this was just an excuse to jack prices, I feel like they would be thrilled to sell us the quantities we need.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======   
+> CONTEXT_ASSERTION: my commentary here is about the whole reply context. This specific message is not what i'm addressing but the more banal messages claiming the hard drive shortage is completely fabricated. People claiming the supply is fine and only the price is being increased. The actual message I'm targeted is in response to the Reddit hive minded thinking that does not engage nonfiction. 
+> 
+> DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM the Reddit comment section is full of low-effort commenting that deflects away form what billionaires are doing to the common man. Reddit tech cultists, cults of billionaire providers, love fiction but do not assert nonfiction and reality in the face of billionaires.
+> 
+> * April 9, 1944 USA Vice-President Henry Wallace: “The American fascists are most easily recognized by their deliberate perversion of truth and fact. Their newspapers and propaganda carefully cultivate every fissure of disunity… They claim to be super-patriots, but they would destroy every liberty guaranteed by the Constitution. They demand free enterprise, but are the spokesmen for monopoly and vested interest. Their final objective toward which all their deceit is directed is to capture political power so that, using the power of the state and the power of the market simultaneously, they may keep the common man in eternal subjection.”
+>
