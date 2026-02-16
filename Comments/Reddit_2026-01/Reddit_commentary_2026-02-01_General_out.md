@@ -4817,7 +4817,7 @@ If this was just an excuse to jack prices, I feel like they would be thrilled to
 
 
 > [!NOTE]
-> :::::: Analysis_Thoughts Commentary: ======
+> :::::: Analysis_Thoughts Commentary: ======   
 > CONTEXT_ASSERTION: my commentary here is about the whole reply context. This specific message is not what i'm addressing but the more banal messages claiming the hard drive shortage is completely fabricated. People claiming the supply is fine and only the price is being increased. The actual message I'm targeted is in response to the Reddit hive minded thinking that does not engage nonfiction. 
 > 
 > DEFLECTION_FROM_BILLIONAIRES_AND_PUTINISM the Reddit comment section is full of low-effort commenting that deflects away form what billionaires are doing to the common man. Reddit tech cultists, cults of billionaire providers, love fiction but do not assert nonfiction and reality in the face of billionaires.
