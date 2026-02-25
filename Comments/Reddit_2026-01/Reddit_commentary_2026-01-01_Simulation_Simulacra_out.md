@@ -4283,3 +4283,665 @@ If Joe Rogan could read he would be very upset
 > 
 > Reddit is a cult of mockery and mocking, lead by Donald Trump - professional media Reality TV creator working with an army of Fox News HDTV fiction authors, etc. Reddit is not RESISTING the anti-intellectual cults, Reddit is amplifying the ignorance worship and ritualizing the worship of ignorance.
 >
+
+
+=============
+  
+## Reddit comment o5qnrii
+
+    entry 138
+
+Comment URL: https://old.reddit.com/r/International/comments/1r6i4du/this_is_how_we_start_to_make_america_great_again/o5qnrii/  
+Comment ID:      o5qnrii  
+Author:          chickenboneneck  
+Bio:               
+Account Created: 2013-04-17T20:50:49Z  
+Link Karma:      7948  
+Comment Karma:   116159  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-16T19:51:02Z  
+Score:           8 points  
+Post Title:      This is how we start to make America great again...  
+:::::: Reddit User Comment: ======  
+Just an FYI, every single 'Trump loving American' in this thread is either a bot or a foreign troll. Dont even engage them.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This whole front page Reddit posting is a fake image, fantasy visual politics, this is simulation of resistance. Why is Reddit not having a blackout? ROUTINE_NO_NEED_TO_RESIST_OR_ORGANIZE_INTELLECTUAL_UPRISING
+>
+
+
+=============
+  
+## Reddit comment o5qgknj
+
+    entry 139
+
+Comment URL: https://old.reddit.com/r/International/comments/1r6i4du/this_is_how_we_start_to_make_america_great_again/o5qgknj/  
+Comment ID:      o5qgknj  
+Author:          72chevnj  
+Bio:               
+Account Created: 2013-12-18T04:02:16Z  
+Link Karma:      721  
+Comment Karma:   13075  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-16T19:16:17Z  
+Score:           1 point  
+Post Title:      This is how we start to make America great again...  
+:::::: Reddit User Comment: ======  
+Only problem is, next in line ain't much better.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It's far from the ONLY problem. The major problems are that people keep COMMENTING and posting IMAGES of Donald Trump like this one. People keep commenting and more commenting with all their spare time and free time. People are stuck "inside the box thinking", over and over. Why is Reddit not promoting Dr. Bandy X Lee's nonfiction leadership and education for the general public? Why is Reddit not organizing online protesting? REDDIT_BLACKOUT
+>
+
+
+=============
+  
+## Reddit comment o5qpibe
+
+    entry 140
+
+Comment URL: https://old.reddit.com/r/International/comments/1r6i4du/this_is_how_we_start_to_make_america_great_again/o5qpibe/  
+Comment ID:      o5qpibe  
+Author:          CMDR_Arnold_Rimmer  
+Bio:             Commander Arnold Rimmer  : I'm Commander Arnold Rimmer, but my friends call me "Ace"
+
+I'm here to save the world and I know what you're thinking, "What a guy"
+
+Smoke me a kipper I'll be back for breakfast!  
+Account Created: 2024-07-14T12:58:53Z  
+Link Karma:      5223  
+Comment Karma:   36451  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-16T19:59:31Z  
+Score:           1 point  
+Post Title:      This is how we start to make America great again...  
+:::::: Reddit User Comment: ======  
+No, you fix your laws and your attitude first.
+
+You had the chance as a country to vote for an actual politician, but you decided the TV star was a better politician. 
+
+Crazy.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1055" height="648" alt="image" src="https://github.com/user-attachments/assets/3e2caaed-5885-41b5-9a72-e68b8dc7aa95" />
+> 
+> BEYOND_DENIAL Yes. Fix the Reddit community attitudes. Fix the mindsets! We The People are the problem. Stop this simulation of resisting with dumb images. Be serious, use NONFICTION, stop feeding your high-speed fiction addiction to fake images - that's exactly what billionaires are creating for you with the most powerful media systems ever created by humanity. ChatGPT fake images. And you are here posting MORE fake Photoshop and other fiction content. **The attitude towards nonfiction adult education** needs to be fixed! Dear Reddit cult of Trump images: "fix your laws and your attitude first. You had the chance as a country to vote for an actual politician, but you decided the TV star was a better politician."
+> 
+> Social post { https://autistics.life/@RoundSparrow/116082476985909143 https://bsky.app/profile/roundsparrow.bsky.social/post/3meyzamx4sc2m }
+>
+
+
+=============
+  
+## Reddit comment o5xmjm9
+
+    entry 141
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1r7ia9e/freedom_of_speech_in_danger/o5xmjm9/  
+Comment ID:      o5xmjm9  
+Author:          AnarchiaKapitany  
+Bio:             no.  
+Account Created: 2022-11-15T10:23:48Z  
+Link Karma:      11992  
+Comment Karma:   490969  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-17T21:02:59Z  
+Score:           1591 points  
+Post Title:      Freedom of Speech in Danger..  
+:::::: Reddit User Comment: ======  
+I'm a social media user, but not a US citizen, thus you have no jurisdiction over me, so for the record: FUCK ICE.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top-voted most popular comment.
+>
+
+
+=============
+  
+## Reddit comment o5xlxec
+
+    entry 142
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1r7ia9e/freedom_of_speech_in_danger/o5xlxec/  
+Comment ID:      o5xlxec  
+Author:          sdmichael  
+Bio:               
+Account Created: 2014-01-09T04:01:33Z  
+Link Karma:      4569  
+Comment Karma:   478243  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-17T21:00:01Z  
+Score:           268 points  
+Post Title:      Freedom of Speech in Danger..  
+:::::: Reddit User Comment: ======  
+If true, any of you Republicans and Conservatives care to blame this on Liberals or Democrats? Surely all that talk about how Liberals/Democrats want to silence different political opinions must be true, right?
+
+Or... Now hear me out... SHUT THE FUCK UP. We will never trust or believe you again.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Government is shutting up Reddit users. So Reddit audience predictably demands others to shut up. Everyone in agreement on the cult of silencing other people. RESISTING_WHAT_EXACTLY
+>
+
+
+=============
+  
+## Reddit comment o639lja
+
+    entry 143
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1r89lky/he_only_had_good_relationships/o639lja/  
+Comment ID:      o639lja  
+Author:          god_forsaked_me  
+Bio:               
+Account Created: 2025-10-12T22:00:53Z  
+Link Karma:      1  
+Comment Karma:   16504  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-18T17:41:50Z  
+Score:           739 points  
+Post Title:      He only had good relationships  
+:::::: Reddit User Comment: ======  
+Funny how his widowed wife is having the time of her life now that he's gone.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 4 month Reddit account, top upvoted popular comment. This whole Twitter screenshot pattern is **manipulation of Reddit fandom of Charlie Kirk to simulate resisting**. What is NOT being resisted: spending free time and spare time on these low-effort tiny Twitter-think mindset patterns Elon Musk promotes. This pattern of junk "dead man Kirk is next POTUS candidate" is the killing of the "Woke Mind Virus" that Musk is doing to Reddit. SEE_ALSO: https://www.LeMonde.FR/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+>
+
+
+=============
+  
+## Reddit comment o645b0q
+
+    entry 144
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1r8djyo/just_lol/o645b0q/  
+Comment ID:      o645b0q  
+Author:          KendrickBlack502  
+Bio:               
+Account Created: 2024-05-16T02:14:01Z  
+Link Karma:      20813  
+Comment Karma:   189128  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-18T20:03:27Z  
+Score:           53 points  
+Post Title:      Just lol  
+:::::: Reddit User Comment: ======  
+Is Gym even jewish?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The anti-FAQ anti-Wiki culture of Reddit commenting consumes free time and spare time all on low-effort shit-postings off Twitter, simulation of resistance. Non sense of urgency to organize a serious intellectual resistance with priority topics. ANTI_WIKI_ANTI_FAQ
+>
+
+
+=============
+  
+## Reddit comment o67etgq
+
+    entry 145
+
+Comment URL: https://old.reddit.com/r/International/comments/1r8rw0c/potential_war_on_iran_should_be_called_the/o67etgq/  
+Comment ID:      o67etgq  
+Author:          The_Japans  
+Bio:               
+Account Created: 2024-07-29T10:26:46Z  
+Link Karma:      8  
+Comment Karma:   2549  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-19T07:34:58Z  
+Score:           32 points  
+Post Title:      Potential war on Iran should be called "The Epstein war".  
+:::::: Reddit User Comment: ======  
+Fuck the American soldiers. Iranians are the ones who risk being slaughtered to deflect focus from a Mossad pedophile.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> EPSTEIN_FANDOM wants to have amusement parks named after Epstein. Epstein fandom on Reddit wants his name all over everything. Cult of rich white sex men labels on everything. This is not a call for goodness, this is a cal to put famous names in media. This isn't a protest, this is a simulation of a protest.
+> 
+> * "But the Democrat’s response to this “tax and spend” is “No we don’t, nah nah na-nah nah: invest” **This is political debate in a democracy. No it’s not. It’s the simulation** of politics." - Duke University, Texan Rick Roderick. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+>
+
+
+=============
+  
+## Reddit comment o67nxbc
+
+    entry 146
+
+Comment URL: https://old.reddit.com/r/BuyFromEU/comments/1r8u3bd/trumps_betrayal_of_allies_has_sparked/o67nxbc/  
+Comment ID:      o67nxbc  
+Author:          CharmingCrust  
+Bio:               
+Account Created: 2025-03-23T20:45:34Z  
+Link Karma:      1207  
+Comment Karma:   37596  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-19T09:02:21Z  
+Score:           917 points  
+Post Title:      Trump’s Betrayal of Allies Has Sparked Unprecedented ‘Buy European’ Trend  
+:::::: Reddit User Comment: ======  
+They have no idea what they have started. Not only have I removed myself from most American tech except a few (like Reddit lol). That has had a cascading effect where I have realized what ADDS value to my life and what is just NOISE.
+
+I come from the pre internet era so the switch isn't dramatically insane for me. There is little I can't do with Linux and Python that actually creates value for me.
+
+There are very few product, almost none, that I haven't been able to find a European alternative for.
+
+Get a French degoogled Fair phone. Buy your local cola. Buy your local toothpaste brand. Focus on your local community because that's where you actually have some control over the outcome.
+
+Let the American Colonies return to their out of sight out of mind status.
+
+Europe needs our own digital infrastructure, our own military capabilities, our own consumer products, our own checks and balance and most important of all: We need our own Payment and Financial structures, completely isolated from American fascist influence.
+
+Focus, take control, identify value, live your LIFE as YOU want it.
+
+Edit: I was made aware that Fairphone is Dutch, not French. It's all good.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "They have no idea". Yes, they do. This is a mass dehumanization war of All. WAR_ALL_AGAINST_ALL - started by Surkov students on the World Wide Web in March 2013. People aren't resisting the war of all hate all. This is not resisting what is happening, this is not calling for cult rescue of Russia and USA, this is behaving as conditioned in the simulation Surkov students created.
+>
+
+
+=============
+  
+## Reddit comment o67sluf
+
+    entry 147
+
+Comment URL: https://old.reddit.com/r/BuyFromEU/comments/1r8u3bd/trumps_betrayal_of_allies_has_sparked/o67sluf/  
+Comment ID:      o67sluf  
+Author:          IntrinsicPalomides  
+Bio:               
+Account Created: 2012-02-24T19:02:41Z  
+Link Karma:      874  
+Comment Karma:   16804  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-19T09:49:07Z  
+Score:           1 point  
+Post Title:      Trump’s Betrayal of Allies Has Sparked Unprecedented ‘Buy European’ Trend  
+:::::: Reddit User Comment: ======  
+Indeed, i stopped basically as soon as he came in and started being a twat. Discovered that Sainsbury's own brand cola for example is just as good or better in the case of their cola zero and 1/3 \- 1/4 of the price.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> HYPER_SIMPLE_TRIVIALIZE_BANAL_SELF_ONLY_CONCERN As long as ONE person is discussing it, then that's all that matters. Egoism. Trump vales of egoism. It made the front page of /r/All because of the subreddit community. The people of USA are the ones who need to see it first thing in the morning. Because USA people are a cult of anti-reality, fiction media cult, and this is nonfiction.
+>
+
+
+=============
+  
+## Reddit comment o686ywd
+
+    entry 148
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1r8x41v/you_are_living_in_their_country_bo/o686ywd/  
+Comment ID:      o686ywd  
+Author:          datskinny  
+Bio:             Ethiopian. From Ethiopia. In Ethiopia.  
+Account Created: 2014-01-21T12:37:29Z  
+Link Karma:      104432  
+Comment Karma:   98559  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-19T11:55:29Z  
+Score:           540 points  
+Post Title:      You are living in their country, Bo  
+:::::: Reddit User Comment: ======  
+Please tell me this is satire
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This is a nation that can't resist satire, sarcasm, surreal comedy, absurd humor. Surkov won. Repeating: CAN NOT RESIST. Reddit community is not resisting. SATIRE_SARCASM_WASHING that Reddit community has done every single hour of every single day since June 16, 2015 has wrecked the nations. People have blown their minds in USA. Surkov students won.
+>
+
+
+=============
+  
+## Reddit comment o679xnp
+
+    entry 149
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o679xnp/  
+Comment ID:      o679xnp  
+Author:          GhostDrax  
+Bio:             Typing something for now  
+Account Created: 2012-09-14T06:07:37Z  
+Link Karma:      264  
+Comment Karma:   5494  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-19T06:51:52Z  
+Score:           665 points  
+Post Title:      Hakeem Jeffries on DHS Shutdown: "Why are we in this moment? It's because Republicans have decided they would rather shut down FEMA, TSA, and Coast Guard, than get ICE under control. American people know that ICE needs to be reigned in. And if that doesn't happen, DHS funding will not move forward."  
+:::::: Reddit User Comment: ======  
+….and because we received another pinky swear that THIS time the Republicans will think about enforcing laws, we are going to give ICE more money.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> CONDITIONED_OPPOSITION
+>
+
+
+=============
+  
+## Reddit comment o679tqq
+
+    entry 150
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o679tqq/  
+Comment ID:      o679tqq  
+Author:          FaultyTowerz  
+Bio:               
+Account Created: 2011-04-17T05:01:18Z  
+Link Karma:      446  
+Comment Karma:   26084  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-19T06:50:57Z  
+Score:           164 points  
+Post Title:      Hakeem Jeffries on DHS Shutdown: "Why are we in this moment? It's because Republicans have decided they would rather shut down FEMA, TSA, and Coast Guard, than get ICE under control. American people know that ICE needs to be reigned in. And if that doesn't happen, DHS funding will not move forward."  
+:::::: Reddit User Comment: ======  
+Fuck this demonstrably controlled\-opposition motherfucker.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit community is not resisting, they are in a simulation of resistance since March 2013 when the Saint Petersburg Internet Research Agency was ramping up, invading USA media systems commenting. DENIAL_ABOUNDS -this Reddit user is only describing - which is not *resisting*. Tiny Twitter-length message comments to avoid nonfiction learning. Trapped "inside the box", commenting box on Reddit, thinking. Surkov won. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+>
+
+
+=============
+  
+## Reddit comment o67f7gd
+
+    entry 151
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o67f7gd/  
+Comment ID:      o67f7gd  
+Author:          Donnicton  
+Bio:               
+Account Created: 2012-07-31T14:58:15Z  
+Link Karma:      4023  
+Comment Karma:   165229  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-19T07:38:30Z  
+Score:           16 points  
+Post Title:      Hakeem Jeffries on DHS Shutdown: "Why are we in this moment? It's because Republicans have decided they would rather shut down FEMA, TSA, and Coast Guard, than get ICE under control. American people know that ICE needs to be reigned in. And if that doesn't happen, DHS funding will not move forward."  
+:::::: Reddit User Comment: ======  
+He doesn't *want* to stop Republicans. Corpocrats like Jeffries and Schumer are controlled opposition and this is all a dog and pony show played out on the suffering of government employees who won't get paid for the duration while nothing ultimately actually gets done in the end.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SOCIAL_MEDIA_DID_NOT "He doesn't want to stop Republicans" - the media cult **commenting cults on Reddit do not want to stop Republicans** / MAGA... no desire to stop Trumpism. People are entirely addicted to the TCP/IP notification network delivery of back and forth mocking that Putin and Trump agreed and created. Reddit is in extreme self-denial, lacking self-awareness that they are NOT RESISTING by mocking. Reddit community does not see that everyone is scattered and fragmented in reactionary mindsets. Social media has not stood up to media addiction of Fox News HDTV because the mocking back and forth is EVERYONE, not just MAGA cult! WANT_TO_STOP_THE_SHIT_SHOW_SHIT_COMMENTING_ADDICTIONS_MEDIA
+> 
+> OPERA_A Is anybody LISTENING? Neil Postman 1985 book, nonfiction on paper, 184 pages - EXPLAINS if you LISTEN to the book. We are in a high-speed messaging feedback loop. MAGA mocks, Reddit mocks back. Back and forth anti-listening. Surkov won since March of year 2013. Smartphones did not always exist! The Apple iPad didn't always have a central role in politics! Trump is an actor performing Kremlin screenplays. https://www.youtube.com/watch?v=yjpSoEOUgKE Dance with Neil Postman, you never dance with learning nonfiction from Neil Postman! 1,685,598 views September 18, 2014
+>
+
+
+=============
+  
+## Reddit comment o68szf3
+
+    entry 152
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o68szf3/  
+Comment ID:      o68szf3  
+Author:          jrr6415sun  
+Bio:               
+Account Created: 2006-04-17T07:06:24Z  
+Link Karma:      6832  
+Comment Karma:   207406  
+Comment Age:     27 minutes ago  
+Timestamp:       2026-02-19T14:14:35Z  
+Score:           None  
+Post Title:      Hakeem Jeffries on DHS Shutdown: "Why are we in this moment? It's because Republicans have decided they would rather shut down FEMA, TSA, and Coast Guard, than get ICE under control. American people know that ICE needs to be reigned in. And if that doesn't happen, DHS funding will not move forward."  
+:::::: Reddit User Comment: ======  
+The plan is to put us all in detention centers
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+>
+
+
+=============
+  
+## Reddit comment o67l6l5
+
+    entry 153
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r8rz5o/hakeem_jeffries_on_dhs_shutdown_why_are_we_in/o67l6l5/  
+Comment ID:      o67l6l5  
+Author:          They_Killed_Kenny_13  
+Bio:               
+Account Created: 2023-10-25T20:52:03Z  
+Link Karma:      84  
+Comment Karma:   10347  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-19T08:35:18Z  
+Score:           34 points  
+Post Title:      Hakeem Jeffries on DHS Shutdown: "Why are we in this moment? It's because Republicans have decided they would rather shut down FEMA, TSA, and Coast Guard, than get ICE under control. American people know that ICE needs to be reigned in. And if that doesn't happen, DHS funding will not move forward."  
+:::::: Reddit User Comment: ======  
+"The Nazis are a bit much." Jeffries if he was alive in 1935\.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> In other words, Reddit comment is criticizing that people (Hakeem Jeffries) are in denial and avoiding the reality of the situation. Downplaying, making a mockery. WAR_AGAINST_REALITY lost... War Against Reality was won by Russia against USA. We The People in USA, **including the Reddit comment creators. are AVOIDING: Dr. Bandy X Lee, Jen Senko, Peter Pomerantsev. Nonfiction Peter Pomerantsev avoided, nonfiction Jen Senko avoided, nonfiction Dr. Lee avoided (with 27 contributors). We The People** are commenting on social systems and not commenting about the hearts and minds lost to commenting itself, avoiding calls to intellectual nonfiction teaching and learning on RELEVANT CRITICAL APPLICABLE topics.
+>
+
+
+=============
+  
+## Reddit comment o68rtdx
+
+    entry 154
+
+Comment URL: https://old.reddit.com/r/videos/comments/1r8ypcg/epstein_files_epsteinbannon_texts_spark_maga/o68rtdx/  
+Comment ID:      o68rtdx  
+Author:          boot2skull  
+Bio:               
+Account Created: 2012-03-06T10:07:07Z  
+Link Karma:      12263  
+Comment Karma:   1018456  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-19T14:08:08Z  
+Score:           None  
+Post Title:      Epstein files: Epstein-Bannon texts spark MAGA civil war, Wexner gets deposed  
+:::::: Reddit User Comment: ======  
+If MAGA wasn’t a cult they might have an ounce of objectivity and freak out at the implications that the president is compromised by multiple parties. All he has done is hurt relationships with our allies and sow discord across the country, exactly what you might do if you had a world leader in your pocket.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "If MAGA wasn’t a cult" ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING  
+> 
+> What kind of cult is MAGA? People think it is a cult of Donald Trump. Nope. Trump is a television cult member. Trump is a cult to Twitter and Fox News. ESSENTIAL_STUDY_MAGA July 6, 2011 when Trump embraced the Twitter media cult, a cult of 140 character media techniques. https://TheOutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 
+> 
+> Why is Reddit comment community not turning to **nonfiction books** about cult deprogramming? It is not resisting to just say "If MAGA wasn’t a cult". If MAGA is a cult of Fox News HDTV, Newsmax HDTV, /r/Conservative Reddit commenting cult - why is Reddit not RESCUING THE USA - doing CIVIC DUTY - and cult deprogramming teaching and education to put an end to the fiction cults? Why just keep commenting about cults year after year after year since year 2013 and not actually have an intellectual mental health education uprising on Reddit, sustained and repeating, until the mental fiction addiction problems are cured?
+>
+
+
+=============
+  
+## Reddit comment o69h5uo
+
+    entry 155
+
+Comment URL: https://old.reddit.com/r/International/comments/1r92gpq/_/o69h5uo/  
+Comment ID:      o69h5uo  
+Author:          TheRealSlimShady2024  
+Bio:               
+Account Created: 2024-07-30T22:11:03Z  
+Link Karma:      1  
+Comment Karma:   1134  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-19T16:17:32Z  
+Score:           124 points  
+Post Title:      💔  
+:::::: Reddit User Comment: ======  
+The Israeli military members actually seem to enjoy it which is truly terrifying, they had no shame in proudly posting videos of themselves blowing up civilians inside their homes in Gaza.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+>
+
+
+=============
+  
+## Reddit comment o6kx9ub
+
+    entry 156
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1ran5iq/james_talarico_schools_lauren_boebert_on_how/o6kx9ub/  
+Comment ID:      o6kx9ub  
+Author:          Termina1Antz  
+Bio:               
+Account Created: 2024-12-21T01:46:14Z  
+Link Karma:      241  
+Comment Karma:   6418  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-21T10:30:00Z  
+Score:           1043 points  
+Post Title:      James Talarico schools Lauren Boebert on how conservatives/republicans are doing the things that they accuse liberals/democrats of over the years!  
+:::::: Reddit User Comment: ======  
+Anytime he made a point, she’d appeal to humor. She didn’t understand the words he was saying.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> In other words: Billionaire Rupert Murdoch has programmed MAGA to joke-away at "Liberal Laughs" and "Liberal Tears". A mass dehumanization technique of Rupert Murdoch, Putin, Musk, Trump. JOKE_COMEDY_POWER_IS_MAGA_IS_TRUMP_IS_SURKOV
+>
+
+
+=============
+  
+## Reddit comment o6kwn1l
+
+    entry 157
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1ran5iq/james_talarico_schools_lauren_boebert_on_how/o6kwn1l/  
+Comment ID:      o6kwn1l  
+Author:          Chunklob  
+Bio:             None :   
+Account Created: 2019-03-17T22:03:46Z  
+Link Karma:      3902  
+Comment Karma:   57503  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-21T10:23:45Z  
+Score:           281 points  
+Post Title:      James Talarico schools Lauren Boebert on how conservatives/republicans are doing the things that they accuse liberals/democrats of over the years!  
+:::::: Reddit User Comment: ======  
+He's trying to have an intelligent conversation and she's trying to get sound bites.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> She is trying to utilize the medium, broadcasting, TCP/IP on Reddit posting, to "be a meme". She is exploiting the Reddit fandom. The replies commenting about her are only simulation of resisting. Reddit is a fandom to mocking. Reddit can not see the time-counting of Trees, the growth of the Entire Forest, the grown of Brain Rot. Reddit fandom to MAGA can not see that joke-washing jokes is following the Trump leadership. Joking about serious topics for "sound bites", is joining in with MAGA behaviors and values.
+> 
+> * Year 1995: “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second sound bites** (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning — not just of science, but of anything — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+> 
+> Reddit community "eats the onion", the attraction of the bitter taste of the sound bites and joke-washing of MAGA is what attracts the Reddit cult fandom. Reddit comment community: SOCIAL_CULT_HATE_WATCHING_FANDOM
+>
+
+
+=============
+  
+## Reddit comment o6ky3jt
+
+    entry 158
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1ran5iq/james_talarico_schools_lauren_boebert_on_how/o6ky3jt/  
+Comment ID:      o6ky3jt  
+Author:          RightRudderr  
+Bio:               
+Account Created: 2024-01-26T18:09:59Z  
+Link Karma:      97  
+Comment Karma:   34957  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-21T10:38:00Z  
+Score:           66 points  
+Post Title:      James Talarico schools Lauren Boebert on how conservatives/republicans are doing the things that they accuse liberals/democrats of over the years!  
+:::::: Reddit User Comment: ======  
+Hydrogen bomb vs coughing baby. Schooling Boebert is like destroying your pet hamster in a debate.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This Reddit audience is not resisting, this is adopting the very technique of MAGA. This is what assimilation looks like, this Reddit comment. This conditioned reaction is how Trump has so much power. This Reddit comment user does not grasp Neil Postman's 1985 book "Amusing Ourselves To Death" and has been manipulated into not recognizing the extreme danger and threat that ignorance viral meme content (which made to front page /r/All of Reddit because of her win of media systems as an influence). This failure to study, remember, and understand Neil Postman's teachings is why we are in this mess. Reddit is a cult of the cultists. Mocking is not resisting the cult, mocking is a shared value of parallel cults. A total mockery. FEEDBACK_LOOP_MEDIA_CULTS_PLATFORM_TO_PLATFORM_MOCKERY_USA Reddit mocking Television. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o6l50e6
+
+    entry 159
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1ran5iq/james_talarico_schools_lauren_boebert_on_how/o6l50e6/  
+Comment ID:      o6l50e6  
+Author:          This-Dude_Abides  
+Bio:               
+Account Created: 2021-03-30T20:10:13Z  
+Link Karma:      3743  
+Comment Karma:   69197  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-21T11:43:14Z  
+Score:           46 points  
+Post Title:      James Talarico schools Lauren Boebert on how conservatives/republicans are doing the things that they accuse liberals/democrats of over the years!  
+:::::: Reddit User Comment: ======  
+She is not serious and does not care. She just wants to keep honking her horn and continue her clown show \- Awooga awooga
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit comment creator "This-Dude_Abides" in this media appearance (comment) is not serious and does not care. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING we are FAR FAR FAR BEYOND needs to describe MAGA media usage. We The People, comment creators on Reddit, are not showing self-awareness and compulsively mocking in feedback loops with MAGA. Surkov won since March 2013. WHAT IS ABSENT: quoting nonfiction from Neil Postman. Quoting nonfiction from Dr. Bandy X Lee. Asserting mental health and cult education as a rescue operation. Not just commenting about what MAGA is leading with, but actually using nonfiction to educate our way to a society-wide understanding of media cults and the danger of MAGA.
+>
+
+
+=============
+  
+## Reddit comment o6kw3vc
+
+    entry 160
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1ran5iq/james_talarico_schools_lauren_boebert_on_how/o6kw3vc/  
+Comment ID:      o6kw3vc  
+Author:          jizzyfarts69  
+Bio:               
+Account Created: 2025-12-19T09:32:54Z  
+Link Karma:      1  
+Comment Karma:   113  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-21T10:18:29Z  
+Score:           78 points  
+Post Title:      James Talarico schools Lauren Boebert on how conservatives/republicans are doing the things that they accuse liberals/democrats of over the years!  
+:::::: Reddit User Comment: ======  
+This dude needs to be president. Teach people some decency
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Short-length message, Twitter-thinking, Tweet-mindsets as programmed by Musk Twitter owner. The attitude of this Reddit message is that the President is the holy savior of People who teaches decency. While Fox News and Rupert Murdoch and Putin's Saint Petersburg Internet Research Agency are FAR MORE the cause of the indecency. This Reddit comment message plays right into the billionaires in that it implies nothing can be done today and now and only if a "POTUS" is elected can the situation be turned around years down the road. Instead of fixing things using Reddit comments RIGHT NOW THIS MORNING, to instead let the problem of Fox News HDTV mindsets continue for several more years until a new POTUS saves everyone. RESISTING_WHAT_EXACTLY
+>
+
