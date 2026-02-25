@@ -16,6 +16,9 @@ MAGA media cult, Russian Trumpism topic Reddit comments:
 
 7. [February 2026 2026-**02-21** Trumpism MAGA USA](Reddit_2026-01/Reddit_commentary_2026-02-21_Trumpism_out.md)
 
+8. [February 2026 2026-**02-25** Trumpism MAGA USA State of the Union](Reddit_2026-01/Reddit_commentary_2026-02-25_Trumpism_out.md)
+
+
 &nbsp;
 
 # Simulation echo-chamber [filter-bubble](https://en.wikipedia.org/wiki/Filter_bubble)
@@ -34,7 +37,9 @@ Reddit comments:
 
 1. [January 2026 2026-01-24 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-01-24_World_Hate_Affairs_out.md)
 
-1. [February 2026 2026-02-10 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-02-10_World_Hate_Affairs_out.md)
+2. [February 2026 2026-02-10 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-02-10_World_Hate_Affairs_out.md)
+
+3. [February 2026 2026-02-23 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-02-23_World_Hate_Affairs_out.md)
 
 &nbsp;
 

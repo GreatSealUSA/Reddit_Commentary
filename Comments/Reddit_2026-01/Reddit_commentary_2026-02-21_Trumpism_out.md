@@ -5645,3 +5645,112 @@ The first poster is someone in my neighborhood \- I saw the post, recognized my 
 > :::::: Analysis_Thoughts Commentary: ======  
 > MEDIA_ECOLOGY_OBSERVATION
 >
+
+
+=============
+  
+## Reddit comment o79mdme
+
+    entry 197
+
+Comment URL: https://old.reddit.com/r/politics/comments/1re2hy2/discussion_thread_responses_to_the_2026_state_of/o79mdme/  
+Comment ID:      o79mdme  
+Author:          Agnos  
+Bio:               
+Account Created: 2010-12-31T16:35:56Z  
+Link Karma:      634  
+Comment Karma:   331887  
+Comment Age:     16 minutes ago  
+Timestamp:       2026-02-25T03:55:15Z  
+Score:           None  
+Post Title:      Discussion Thread: Responses to the 2026 State of the Union Address  
+:::::: Reddit User Comment: ======  
+Next time they claim Trump is losing his faculty, is senile, cannot articulate 2 sentences...remember he spoke for almost 2 hours. He is a hateful felon, con\-man, pedophile, racist, narcissist...but not senile, he knows what he is doing.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> BEYOND_DENIAL beyond the common denial that Trump and Putin are "weak", and not laboring very hard to harm the USA.
+>
+
+
+=============
+  
+## Reddit comment o79lp5i
+
+    entry 198
+
+Comment URL: https://old.reddit.com/r/politics/comments/1re2hy2/discussion_thread_responses_to_the_2026_state_of/o79lp5i/  
+Comment ID:      o79lp5i  
+Author:          fractalcoholic  
+Bio:               
+Account Created: 2012-05-02T02:08:32Z  
+Link Karma:      141  
+Comment Karma:   910  
+Comment Age:     24 minutes ago  
+Timestamp:       2026-02-25T03:51:01Z  
+Score:           None  
+Post Title:      Discussion Thread: Responses to the 2026 State of the Union Address  
+:::::: Reddit User Comment: ======  
+I hate Trump, but that was a good speech, chock full of lies and the rest was red meat. He stuck to the script, classic
+
+
+
+
+=============
+  
+## Reddit comment o79qkgi
+
+    entry 199
+
+Comment URL: https://old.reddit.com/r/politics/comments/1re33py/trump_uses_state_of_the_union_to_demonize/o79qkgi/  
+Comment ID:      o79qkgi  
+Author:          everettescott  
+Bio:               
+Account Created: 2017-10-24T17:25:56Z  
+Link Karma:      3711  
+Comment Karma:   36284  
+Comment Age:     12 minutes ago  
+Timestamp:       2026-02-25T04:22:10Z  
+Score:           None  
+Post Title:      Trump uses State of the Union to demonize transgender kids and their families  
+:::::: Reddit User Comment: ======  
+
+> “These people are crazy. I’m telling you, they’re crazy. Boy oh boy. We’re lucky we have a country with people like this. Democrats are destroying our country, but we’ve stopped it just in the nick of time.”
+
+Ah, yes. The president of the 'people'. Keeping us together in times of strife.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Crazy". Donald Trump gets quoted on mind / brain issues all the time. I.Q. "crazy" tonight, etc. Reddit community quotes Donald Trump. NOT_GOOD_ENOUGH what Reddit community always seems to avoid: quoting Dr. Bandy X Lee's 27 contributors to her October 3, 2017 book about mental health. Reddit commenting community seems to not find a woman leader good enough to follow.
+> 
+> * "As people with NPD become increasingly psychotic, they’re determined to convince others that they’re the “crazy” ones who can’t see reality for what it is. Gaslighting reassures pathological narcissists that their own grip on reality remains firm because they can’t bear to acknowledge their sanity is slipping away. We might ask if we’re seeing this now, as Trump and his closest advisers appear on TV claiming he didn’t make statements that journalists often simply play back — or if it’s a tweet, flash an image — to prove that he did indeed say what he said." ― Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017. Page 58.
+>
+
+
+=============
+  
+## Reddit comment o79jpe2
+
+    entry 200
+
+Comment URL: https://old.reddit.com/r/PoliticalHumor/comments/1re1mln/if_trump_could_read_he_would_be_so_mad/o79jpe2/  
+Comment ID:      o79jpe2  
+Author:          Own-Opinion-2494  
+Bio:               
+Account Created: 2021-04-29T01:52:56Z  
+Link Karma:      5  
+Comment Karma:   109889  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-25T03:38:56Z  
+Score:           None  
+Post Title:      If Trump could read he would be so mad  
+:::::: Reddit User Comment: ======  
+“Doesn’t read and doesn’t listen”
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Front page posting on Reddit. DOWNPLAYING_DANGER_MINIMIZING_THREATS - acting like Donald Trump isn't a clear and present danger. Trump clearly can read. The problem is that the entire society, not just MAGA, is **avoiding relevant serious nonfiction book reading**. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION - for example: "Bandy X Lee, The Dangerous Case of Donald Trump: 27 Psychiatrists and Mental Health Experts Assess a President. October 3, 2017." Instead, people are reading Truth Social screen shots, Twitter screen shots, low-information upvoting as a source of entertainment and comedy about Trump. Trump leads, Reddit app users follow. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+>
