@@ -37,7 +37,9 @@ Reddit comments:
 
 1. [January 2026 2026-01-24 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-01-24_World_Hate_Affairs_out.md)
 
-1. [February 2026 2026-02-10 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-02-10_World_Hate_Affairs_out.md)
+2. [February 2026 2026-02-10 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-02-10_World_Hate_Affairs_out.md)
+
+3. [February 2026 2026-02-23 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-02-23_World_Hate_Affairs_out.md)
 
 &nbsp;
 
