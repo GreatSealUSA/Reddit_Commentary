@@ -62,3 +62,65 @@ as long as we keep fighting each other over absolutely irrelevant nonsense, the 
 > 
 > * "Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practice these tough habits of thought, **we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers**" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 38
 >
+
+
+=============
+  
+## Reddit comment o7b3u4r
+
+    entry 3
+
+Comment URL: https://old.reddit.com/r/therewasanattempt/comments/1reac0l/to_say_you_were_in_texas/o7b3u4r/  
+Comment ID:      o7b3u4r  
+Author:          Pretend_Meet_88  
+Bio:               
+Account Created: 2020-11-28T15:38:40Z  
+Link Karma:      2595  
+Comment Karma:   1926  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-25T11:21:27Z  
+Score:           433 points  
+Post Title:      to say you were in Texas  
+:::::: Reddit User Comment: ======  
+Another lie his supporters will defend to their dying days.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TRUMP_FANDOM Reddit commenting community. A photograph of Donald Trump gets upvoted to the front-page of /r/All Reddit constantly all the time, over and over, images of Reality TV celebrity Donald Trump to the cult media venue Reddit app. CLICKBAIT_TITLE with non-specific generic teasing of content that gets you to see the photograph of Donald Trump because the title on Reddit community is manipulation. 
+> 
+> This entire posting is a gullible Reddit fandom of Trump. Consumers of "The Apprentice" Reality TV who can't grasp this is part of the POTUS Tony Clifton character and Surkov student screenplays! WHITE_HOUSE_REALITY_WARFARE_FICTION_AVOIDING_NONFICTION_ON_WARFARE - this is organized information warfare since March of year 2013, and Reddit users in February 2026 still eat it up without being able to **cite serious nonfiction** on the subject! It is not enough to just call out one tree, bark at one tree, and not recognize (self-awareness) Reddit is living in a forest! The inability to cite common **on the same page** nonfiction books on paper is the crisis! This is Putin-Trump power! 
+> 
+> 1. From September 9, 2014 which is 11 years 5 months and some 2 weeks ago, which is **more than a decade** - we could have kept repeating it and defeated Putin's capure of USA hearts and minds: https://www.TheAtlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev. At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the **most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.**” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. **It reinvents reality, creating mass hallucinations** that then translate into political action."
+> 
+> 2. [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of **Americans have dissociated from reality**,” Charlie Warzel wrote “I’m **Running Out of Ways to Explain** How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu
+>
+
+
+=============
+  
+## Reddit comment o7bg19w
+
+    entry 4
+
+Comment URL: https://old.reddit.com/r/SipsTea/comments/1rec1ed/this_is_so_damnn_true/o7bg19w/  
+Comment ID:      o7bg19w  
+Author:          xprecious_clue  
+Bio:               
+Account Created: 2026-02-18T12:33:14Z  
+Link Karma:      1  
+Comment Karma:   182  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-25T12:50:25Z  
+Score:           49 points  
+Post Title:      This is so Damnn true  
+:::::: Reddit User Comment: ======  
+Why do so many people make their entire personality about someone who does not know they exist?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 7-day Reddit account. TOP upvoted most popular comment. Posting title is generic clickbait. CLICKBAIT_TITLE REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Asking simple "engaging" social media technique questions. PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING There are FAR MORE IMPORTANT NONFICTION topics to be promoting on social media, such as: Jen Senko nonfiction, Dr. Bandy X Lee nonfiction, Neil Postman nonfiction! PUT AN END TO TRUMPISM, **please stop** LIVING in the toxic ocean of Trump junk mindsets!
+> 
+> ANSWER: The addiction to commenting about politicians on media systems, celebrity fandom, is what is driving society now. What exactly do people believe Donald Trump's talent and gift to be? I see a Reality TV star, a media influencer, and a nation of media cults. Do people think he is a good business man? I think he has a charming personality that charms the pants off men, charms women into supporting nasty aggressive men (like Epstein, Elon Musk), charms money out of people, charms power out of people. A media personality, an actor who is acting a Tony Clifton performance with Surkov student boosted screenplays... TRUMP_CHARMING_ACTOR_ACTING
+>
