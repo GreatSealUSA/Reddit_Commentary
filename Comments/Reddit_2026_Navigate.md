@@ -29,6 +29,8 @@ Reddit comments:
 
 1. [January 2026 2026-01 Simulation Simulacra concerns](Reddit_2026-01/Reddit_commentary_2026-01-01_Simulation_Simulacra_out.md)
 
+2. [February 2026 2026-02-24 Simulation Simulacra non-resistance concerns](Reddit_2026-01/Reddit_commentary_2026-02-24_Simulation_Simulacra_out.md)
+
 &nbsp;
 
 # World Hate Affairs
