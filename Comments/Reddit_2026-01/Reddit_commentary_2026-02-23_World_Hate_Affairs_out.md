@@ -952,3 +952,316 @@ The additional footage shows the earlier altercation inside the train in which t
 > :::::: Analysis_Thoughts Commentary: ======  
 > The Internet mob mentality of audience tends to blame { drug use, race, etc }. What this entire posting points at is { confusion, shallow understanding, superficial mindsets, reactionary mindsets, comprehending, ambiguity, tiredness, CONTEXT_BEWILDERMENT } of the woman. It is like parenting and marriages in general... if people focused more on how poorly society and the human brain deals with stress, ambiguity, being tired, competition, chases we might start to recognize common conflicts all over the world as... common.
 >
+
+
+=============
+  
+## Reddit comment o7b1wwr
+
+    entry 35
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b1wwr/  
+Comment ID:      o7b1wwr  
+Author:          Oddisredit  
+Bio:               
+Account Created: 2025-12-14T07:10:50Z  
+Link Karma:      3  
+Comment Karma:   6121  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-25T11:04:57Z  
+Score:           498 points  
+Post Title:      ISIS sympathisers lured gay and bisexual teenagers into bashings via dating apps in Sydney  
+:::::: Reddit User Comment: ======  
+No one wants to be called a bigot
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. Extreme tiny-short commenting mindsets. Elon Musk programmed simple-think Twitter billionaire ideas. Reddit commenting community is a playground of ignorance on history of travel technology, immigration, conflicts. One of the most ignorant statements you could make. The human race is PROUD of bigotry. The clergy for Levant religions have found huge popularity promoting bigotry over favorite science fiction book. BOOK_SUPREMACY bigotry. It is a matter of pride, they have special holidays! Ramadan, Christmas, Easter!
+> 
+> Democracy does not work without "love thy neighbor", "love thy enemy". DEMOCRACY_DOES_NOT_WORK_WITHOUT_LOVE_THY_NEIGHBOR_COMPASSION_VALUES Published year 1988 as lessons from George Lucas to Star Wars science fiction fandom, **nonfiction book**:
+> 
+> CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In **biblical thinking**, we live in exile.
+> 
+> BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut — by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+> 
+> CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and **to human beings rather than just to their own community**. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. **They have disqualified themselves for the future.**
+> 
+> MOYERS: What kind of new myth do we need?
+> 
+> CAMPBELL: We need myths that will identify the individual **not with his local group** but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+> 
+> MOYERS: There is something about that on the Great Seal of the United States.
+> 
+> CAMPBELL: That’s what the Great Seal is all about.
+>
+
+
+=============
+  
+## Reddit comment o7baq9r
+
+    entry 36
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7baq9r/  
+Comment ID:      o7baq9r  
+Author:          Oddisredit  
+Bio:               
+Account Created: 2025-12-14T07:10:50Z  
+Link Karma:      3  
+Comment Karma:   6121  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-25T12:14:41Z  
+Score:           None  
+Post Title:      ISIS sympathisers lured gay and bisexual teenagers into bashings via dating apps in Sydney  
+:::::: Reddit User Comment: ======  
+Can you find a Christian group that engaged in this?
+
+
+
+
+=============
+  
+## Reddit comment o7b5uua
+
+    entry 37
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b5uua/  
+Comment ID:      o7b5uua  
+Author:          Dwaltster  
+Bio:               
+Account Created: 2014-09-17T05:44:00Z  
+Link Karma:      6338  
+Comment Karma:   6909  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-25T11:38:00Z  
+Score:           127 points  
+Post Title:      ISIS sympathisers lured gay and bisexual teenagers into bashings via dating apps in Sydney  
+:::::: Reddit User Comment: ======  
+That's idiotic. My god
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> HIGH_SPEED_REACTIONARY_MINDSETS tiny-short reaction commenting.
+>
+
+
+=============
+  
+## Reddit comment o7b6ozt
+
+    entry 38
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1re86by/isis_sympathisers_lured_gay_and_bisexual/o7b6ozt/  
+Comment ID:      o7b6ozt  
+Author:          loolem  
+Bio:               
+Account Created: 2013-02-01T08:46:37Z  
+Link Karma:      6433  
+Comment Karma:   34541  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-25T11:44:38Z  
+Score:           9 points  
+Post Title:      ISIS sympathisers lured gay and bisexual teenagers into bashings via dating apps in Sydney  
+:::::: Reddit User Comment: ======  
+Pretty sure that’s fake. I remember reading about this and how it was being peddled by that far right opposition leader that lost his own seat last election because Canadians realised he was a numpty.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> WIDE_RADICAL_DOUBT_ABOUT_REAL
+>
+
+
+=============
+  
+## Reddit comment o7apqq3
+
+    entry 39
+
+Comment URL: https://old.reddit.com/r/confidentlyincorrect/comments/1re8bxz/someone_got_their_history_tests_handed_back_face/o7apqq3/  
+Comment ID:      o7apqq3  
+Author:          DiamondL0st  
+Bio:               
+Account Created: 2025-12-19T14:41:31Z  
+Link Karma:      1  
+Comment Karma:   16436  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-25T09:13:44Z  
+Score:           174 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Why do they always have to speak in the most smug condescending way possible, it's infuriating.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. 3rd most popular root comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - why is Reddit community IGNORANCE_CELEBRATIONS of this screen shot. Notice there is **no date of this screen shot**, timeless presentation of it. It has been on the Reddit /r/All front page multiple times. One instance of it previously on Reddit **May 20, 2025** https://old.reddit.com/r/ShitAmericansSay/comments/1krghsa/maam_canada_didnt_even_fight_in_ww2_so_maybe_sit/(Note the dates are not removed from this older image) The original date goes back even further: January 21, 2025. More than 13 months ago. This is extreme low-information-upvoting https://en.wikipedia.org/wiki/Low_information_voter SIMULATION_SIMULACRA this is people feeling smug about *how dumb* a tiny-short message is. When there are FAR MORE SERIOUS topics. This is fiction storytelling from another media platform, far more popular than nonfiction learning. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION why are people not teaching nonfiction about the cults of ignorance from high-speed media systems? 
+> 
+> * “no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is **that study and learning — not just of science, but of anything** — are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
+> 
+> Also note the Reddit account that created the front-page /r/All posting was a 6 day account https://old.reddit.com/user/_BabyFever with history only going back 24 hours with extreme pro-ignorance content. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+>
+
+
+=============
+  
+## Reddit comment o7agf00
+
+    entry 40
+
+Comment URL: https://old.reddit.com/r/Damnthatsinteresting/comments/1re6xv4/in_2021_the_austria_village_fucking_changed_its/o7agf00/  
+Comment ID:      o7agf00  
+Author:          ExplosiveCoyote  
+Bio:               
+Account Created: 2025-11-28T04:24:50Z  
+Link Karma:      18  
+Comment Karma:   3263  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-25T07:46:40Z  
+Score:           407 points  
+Post Title:      In 2021, the Austria village "Fucking" changed its name to "Fugging" due to people constantly stealing their sign  
+:::::: Reddit User Comment: ======  
+I think that’s still funny enough to get stolen
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World Fucking Affairs. Understanding the power of Putin, Trump, banal leaders lies in studying these behaviors with the sign-stealing and the attitudes of word-image addictions on Reddit commenting. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE things don't just TRAGEDY_OF_THE_COMMONS themselves, it takes a inner desire to take the commons sign in the media signage symbolism mindset tragedy.
+>
+
+
+=============
+  
+## Reddit comment o7btzd9
+
+    entry 41
+
+Comment URL: https://old.reddit.com/r/technology/comments/1ree20k/ais_cant_stop_recommending_nuclear_strikes_in_war/o7btzd9/  
+Comment ID:      o7btzd9  
+Author:          neat_stuff  
+Bio:               
+Account Created: 2006-07-14T18:09:59Z  
+Link Karma:      752  
+Comment Karma:   23234  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-25T14:10:27Z  
+Score:           4764 points  
+Post Title:      AIs can’t stop recommending nuclear strikes in war game simulations - Leading AIs from OpenAI, Anthropic, and Google opted to use nuclear weapons in simulated war games in 95 per cent of cases  
+:::::: Reddit User Comment: ======  
+Nobody thought to make them play tic tac toe a bunch of times first?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> UNIFIED_THEORY_FICTION_NONFICTION WarGames June 3, 1983 Artificial Intelligence topic film.
+>
+
+
+=============
+  
+## Reddit comment o7du5tp
+
+    entry 42
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1renfrv/cuba_says_four_shot_dead_on_usregistered_speedboat/o7du5tp/  
+Comment ID:      o7du5tp  
+Author:          ChirpyOfficial  
+Bio:               
+Account Created: 2025-12-08T12:07:26Z  
+Link Karma:      933  
+Comment Karma:   4693  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-25T19:46:24Z  
+Score:           2025 points  
+Post Title:      Cuba says four shot dead on US-registered speedboat  
+:::::: Reddit User Comment: ======  
+FL7726SH Florida registered boat, shot at by the Cuban Coast Guard after Florida vessel opened fire.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. Top upvoted, most-popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7k3703
+
+    entry 43
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_first_chief_warrant_officer_5_to/o7k3703/  
+Comment ID:      o7k3703  
+Author:          ArcticFlamingoDisco  
+Bio:               
+Account Created: 2025-10-01T16:22:49Z  
+Link Karma:      1  
+Comment Karma:   8012  
+Comment Age:     57 minutes ago  
+Timestamp:       2026-02-26T18:22:21Z  
+Score:           None  
+Post Title:      Eric Slover, the first Chief Warrant Officer 5 to ever be awarded the Medal of Honor.  
+:::::: Reddit User Comment: ======  
+In my entire time in, I saw two butter bars screw up very badly. One was telling off a CSM, the other was ordering a CWO 3 or 4 (couldn't tell) to do something menial. Kinda front of us lower enlisted.
+
+We literally all booked it as soon as warrant put down his coffee.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World Affairs of following Power.
+>
+
+
+=============
+  
+## Reddit comment o7k3m30
+
+    entry 44
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_first_chief_warrant_officer_5_to/o7k3m30/  
+Comment ID:      o7k3m30  
+Author:          Paxton-176  
+Bio:             Paxton-176 : I like the old reddit better.  
+Account Created: 2015-01-10T06:00:20Z  
+Link Karma:      1407  
+Comment Karma:   428442  
+Comment Age:     57 minutes ago  
+Timestamp:       2026-02-26T18:24:17Z  
+Score:           None  
+Post Title:      Eric Slover, the first Chief Warrant Officer 5 to ever be awarded the Medal of Honor.  
+:::::: Reddit User Comment: ======  
+Warrant Officers basically make their own rules. The paper says they are under Officers, but in reality these guys know more than everyone else. They are true experts in their fields. They also can skip PT and put their hands in their pockets. They are that powerful. Also don't have to show up to work most of the time.
+
+
+
+
+=============
+  
+## Reddit comment o7jhjel
+
+    entry 45
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1rfdmu4/eric_slover_the_first_chief_warrant_officer_5_to/o7jhjel/  
+Comment ID:      o7jhjel  
+Author:          cixelsyd17  
+Bio:               
+Account Created: 2019-01-26T18:13:43Z  
+Link Karma:      1595  
+Comment Karma:   14594  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-26T16:42:26Z  
+Score:           None  
+Post Title:      Eric Slover, the first Chief Warrant Officer 5 to ever be awarded the Medal of Honor.  
+:::::: Reddit User Comment: ======  
+Technically you are saluting the Medal and not the recipient. The whole idea is the actions taken were bigger than self.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World Symbolism Affairs. Capture the Symbol, capture the power. SYMBOLISM_INVERSION_MANIPULATION Invert the symbolism meaning in the minds, and everyone follows POTUS Tony Clifton. 
+> 
+> * "All life, all thought, all meditation, is to be governed by the authority of the shepherds of the group \[the Church\]; and **there can be no doubt, from what we know of the history of this tradition**, that this authority was imposed and maintained by force. But any religious **symbol, so interpreted that it refers not to a thought-transcending mystery but to a thought-enveloping social order**, misappropriates to the lower principle the values of the higher and so (to use a theological turn of phrase) sets Satan in the seat of God." - https://TheseThingsInside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+>
