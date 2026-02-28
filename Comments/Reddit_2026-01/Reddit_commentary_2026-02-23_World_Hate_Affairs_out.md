@@ -1265,3 +1265,1646 @@ Technically you are saluting the Medal and not the recipient. The whole idea is 
 > 
 > * "All life, all thought, all meditation, is to be governed by the authority of the shepherds of the group \[the Church\]; and **there can be no doubt, from what we know of the history of this tradition**, that this authority was imposed and maintained by force. But any religious **symbol, so interpreted that it refers not to a thought-transcending mystery but to a thought-enveloping social order**, misappropriates to the lower principle the values of the higher and so (to use a theological turn of phrase) sets Satan in the seat of God." - https://TheseThingsInside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
 >
+
+
+=============
+  
+## Reddit comment o7lspjy
+
+    entry 46
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1rfp08c/look_whos_subreddit_is_on_a_ukrainian_air_defense/o7lspjy/  
+Comment ID:      o7lspjy  
+Author:          Glittering_Laugh_958  
+Bio:             Glittering : Jewelry obsessed Bruins fan living to give my student loans the best possible life  
+Account Created: 2023-03-12T22:16:05Z  
+Link Karma:      57532  
+Comment Karma:   103422  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-26T23:19:56Z  
+Score:           398 points  
+Post Title:      Look who’s subreddit is on a Ukrainian air defense turret! Thanks to the organizers and participants of this joint fundraiser that raised $73,000  
+:::::: Reddit User Comment: ======  
+This timeline is fucking wild.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Military Pop Culture content creators. Alas, peace and repeating the 1954 Equation from MLK Jr. is in no way popularity in the Donald Trump nation of toxic popularity. All the mental health workers should be trying to talk Russia out of war since year 2014, instead anti-intellectual pro-violence is popular.
+>
+
+
+=============
+  
+## Reddit comment o7lssgv
+
+    entry 47
+
+Comment URL: https://old.reddit.com/r/popculturechat/comments/1rfp08c/look_whos_subreddit_is_on_a_ukrainian_air_defense/o7lssgv/  
+Comment ID:      o7lssgv  
+Author:          speedy-jackrabbit  
+Bio:               
+Account Created: 2024-04-16T05:59:43Z  
+Link Karma:      829  
+Comment Karma:   2604  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-26T23:20:23Z  
+Score:           891 points  
+Post Title:      Look who’s subreddit is on a Ukrainian air defense turret! Thanks to the organizers and participants of this joint fundraiser that raised $73,000  
+:::::: Reddit User Comment: ======  
+Highly amused that these are all country or military\-based subreddits, and then here's one where people talk shit about celebrities.
+
+
+
+
+=============
+  
+## Reddit comment o7ndrro
+
+    entry 48
+
+Comment URL: https://old.reddit.com/r/KidsAreFuckingStupid/comments/1rfvuaq/yes_the_whole_cup/o7ndrro/  
+Comment ID:      o7ndrro  
+Author:          bluecado  
+Bio:               
+Account Created: 2012-12-05T00:14:31Z  
+Link Karma:      764  
+Comment Karma:   2642  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-27T04:57:03Z  
+Score:           65 points  
+Post Title:      Yes, the whole cup  
+:::::: Reddit User Comment: ======  
+Why is she dressed like a child bride?
+
+
+
+
+=============
+  
+## Reddit comment o7n6dwa
+
+    entry 49
+
+Comment URL: https://old.reddit.com/r/KidsAreFuckingStupid/comments/1rfvuaq/yes_the_whole_cup/o7n6dwa/  
+Comment ID:      o7n6dwa  
+Author:          iwillbeawriterongod  
+Bio:               
+Account Created: 2026-01-07T11:35:15Z  
+Link Karma:      147  
+Comment Karma:   5650  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-27T04:07:15Z  
+Score:           24 points  
+Post Title:      Yes, the whole cup  
+:::::: Reddit User Comment: ======  
+I am not christian, so please educate me. What is the sense behind eating "body of christ" and drinking "blood of christ".
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account
+>
+
+
+=============
+  
+## Reddit comment o7o3461
+
+    entry 50
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1rfvp0a/favorite_terrible_actor_who_seems_like_a_pretty/o7o3461/  
+Comment ID:      o7o3461  
+Author:          modbroccoli  
+Bio:               
+Account Created: 2025-08-11T19:00:27Z  
+Link Karma:      251  
+Comment Karma:   9053  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-27T08:26:40Z  
+Score:           -32 points  
+Post Title:      Favorite terrible actor who seems like a pretty cool person in real life?  
+:::::: Reddit User Comment: ======  
+Please write down all of your greatest accomplishments. I'd like to understand if you are qualified to have an opinion on literally anything.
+
+edit: aww, widdle boys of Reddit don't like having to know what the fuck they're talking about, hunh? It's rough out there champ, all those pretty girls paying you no attention hunh? Go watch some anime and rage masturbate, I'm sure you'll feel better.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account
+>
+
+
+=============
+  
+## Reddit comment o7naryn
+
+    entry 51
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1rfvp0a/favorite_terrible_actor_who_seems_like_a_pretty/o7naryn/  
+Comment ID:      o7naryn  
+Author:          FuinFirith  
+Bio:               
+Account Created: 2024-07-18T22:05:53Z  
+Link Karma:      16472  
+Comment Karma:   59985  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-27T04:36:30Z  
+Score:           60 points  
+Post Title:      Favorite terrible actor who seems like a pretty cool person in real life?  
+:::::: Reddit User Comment: ======  
+"Cinema" is Hollywoodian for "Allah".
+
+
+
+
+=============
+  
+## Reddit comment o7ozlp0
+
+    entry 52
+
+Comment URL: https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7ozlp0/  
+Comment ID:      o7ozlp0  
+Author:          9lobaldude  
+Bio:             A global guy  
+Account Created: 2021-09-21T12:59:46Z  
+Link Karma:      450761  
+Comment Karma:   266303  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T13:00:35Z  
+Score:           298 points  
+Post Title:      Yet another Brexit prediction turns to dust. Europhobes said if we left the EU, other countries would follow. Wrong. In fact, the opposite has happened – nations are clamouring to get in  
+:::::: Reddit User Comment: ======  
+Brexit was Putin’s most successful operation
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes, because extremely serious topics like this are given 140 characters or less comments on Reddit. The Saint Petersburg Internet Research Agency accelerated what Neil Postman 1985 and Carl Sagan 1995 warned. And people today are so conditioned to avoid serous nonfiction books on Reddit commenting, they can't even see the extreme avoidance of providing author names, dates, timelines,details. https://en.wikipedia.org/wiki/Low_information_voter Low-information upvoting on Reddit is every single minute day and night, not just designated election days, but any minute of any day. HYPER_BANALISATION
+>
+
+
+=============
+  
+## Reddit comment o7oydn1
+
+    entry 53
+
+Comment URL: https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7oydn1/  
+Comment ID:      o7oydn1  
+Author:          hoopjoness  
+Bio:               
+Account Created: 2020-11-10T19:14:19Z  
+Link Karma:      103  
+Comment Karma:   39776  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T12:52:42Z  
+Score:           173 points  
+Post Title:      Yet another Brexit prediction turns to dust. Europhobes said if we left the EU, other countries would follow. Wrong. In fact, the opposite has happened – nations are clamouring to get in  
+:::::: Reddit User Comment: ======  
+I do wonder how Brits feel about Nigel Farage today. I saw he’s their right wing party leader 
+
+With ties to Russia still going strong obvs
+
+[https://youtube.com/shorts/2aS\-DRM3yu8?si\=bhQVPuyPeJZW39kB](https://youtube.com/shorts/2aS-DRM3yu8?si=bhQVPuyPeJZW39kB)
+
+Crazy how people can’t see these sinister tricks :(
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> MAXIMUM_PUTINIZATION
+>
+
+
+=============
+  
+## Reddit comment o7p0600
+
+    entry 54
+
+Comment URL: https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7p0600/  
+Comment ID:      o7p0600  
+Author:          GazelleScary7844  
+Bio:               
+Account Created: 2024-05-11T15:35:07Z  
+Link Karma:      44  
+Comment Karma:   2860  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T13:04:11Z  
+Score:           64 points  
+Post Title:      Yet another Brexit prediction turns to dust. Europhobes said if we left the EU, other countries would follow. Wrong. In fact, the opposite has happened – nations are clamouring to get in  
+:::::: Reddit User Comment: ======  
+I'm a brit and many of us fucking hate him.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes, I can tell from the extremely simple logic messaging that you hate. Instead of educating and teaching using high-speed information systems of Reddit, it's just predictable programmed hate reacting. FAITH_IN_HATE - today is February 27 - this was written February 28:
+> 
+> **The 1954 Equation**
+> 
+> February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+> 
+> "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+>
+
+
+=============
+  
+## Reddit comment o7ozq9i
+
+    entry 55
+
+Comment URL: https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7ozq9i/  
+Comment ID:      o7ozq9i  
+Author:          sur0g  
+Bio:               
+Account Created: 2018-12-09T20:07:12Z  
+Link Karma:      11472  
+Comment Karma:   13766  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T13:01:23Z  
+Score:           84 points  
+Post Title:      Yet another Brexit prediction turns to dust. Europhobes said if we left the EU, other countries would follow. Wrong. In fact, the opposite has happened – nations are clamouring to get in  
+:::::: Reddit User Comment: ======  
+The whole Brexit thing was a psyop from the outside.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "The whole Brexit thing was a psyop from the outside" - under 140 characters, as the Elon Musk Twitter richest man in the world wants people thinking. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION No links off-Reddit, message does not name "Cambridge Analytica" or Saint Petersburg "Internet Research Agency". Popular upvoted comment that normalizes psyop without any specific meaning. No lessons to learn, no education for adults needed, anti-intellectual anti-teaching Reddit fandom of said psyop. Exactly what is this Reddit comment resisting,nothing. It is pro-ignorance and pro-simple-thing. 
+> 
+> * https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, **it raises the question of whether we are actually living in a democracy or not.**” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this **powerful new way**,” David tells me.
+>
+
+
+=============
+  
+## Reddit comment o7pbl1r
+
+    entry 56
+
+Comment URL: https://old.reddit.com/r/europe/comments/1rg5jog/yet_another_brexit_prediction_turns_to_dust/o7pbl1r/  
+Comment ID:      o7pbl1r  
+Author:          External-Orchid8461  
+Bio:               
+Account Created: 2023-08-03T10:59:27Z  
+Link Karma:      109  
+Comment Karma:   1015  
+Comment Age:     49 minutes ago  
+Timestamp:       2026-02-27T14:09:35Z  
+Score:           None  
+Post Title:      Yet another Brexit prediction turns to dust. Europhobes said if we left the EU, other countries would follow. Wrong. In fact, the opposite has happened – nations are clamouring to get in  
+:::::: Reddit User Comment: ======  
+I'd say Steven Bannon and Cambridge Analytica had a more significant influence over this referendum.
+
+There were always an important euroskeptical sentiment among the Brits and it seems that company tipped enough the balance in favor of Brexit.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Yes, Cambridge Analytica doctors need to be front and center. Along with Dr. Bandy X Lee's 27 contributors to her October 3, 2017 book
+>
+
+
+=============
+  
+## Reddit comment o7ps4co
+
+    entry 57
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rg9hwk/introducing_the_reddit_funded_antidrone_turret/o7ps4co/  
+Comment ID:      o7ps4co  
+Author:          exig  
+Bio:               
+Account Created: 2014-01-24T20:55:53Z  
+Link Karma:      14906  
+Comment Karma:   23037  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T15:33:45Z  
+Score:           None  
+Post Title:      Introducing the Reddit funded anti-drone turret purchased for Ukraine  
+:::::: Reddit User Comment: ======  
+I wanna see this baby in action!
+
+
+
+
+=============
+  
+## Reddit comment o7p7w18
+
+    entry 58
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7p7w18/  
+Comment ID:      o7p7w18  
+Author:          Just_the_nicest_guy  
+Bio:               
+Account Created: 2024-05-14T17:51:56Z  
+Link Karma:      371  
+Comment Karma:   396565  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T13:49:07Z  
+Score:           2849 points  
+Post Title:      U.S. tells embassy staff in Israel to leave now if they want amid Trump threats to attack Iran  
+:::::: Reddit User Comment: ======  
+
+> if they want
+
+We are at DEFCON meh; whatever.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TRUMP_FANDOM on Reddit commenting about the affairs.
+>
+
+
+=============
+  
+## Reddit comment o7pdufh
+
+    entry 59
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7pdufh/  
+Comment ID:      o7pdufh  
+Author:          JackC1126  
+Bio:               
+Account Created: 2019-11-27T20:20:39Z  
+Link Karma:      38515  
+Comment Karma:   387373  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-27T14:21:58Z  
+Score:           740 points  
+Post Title:      U.S. tells embassy staff in Israel to leave now if they want amid Trump threats to attack Iran  
+:::::: Reddit User Comment: ======  
+“If they want” is so funny lol
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The 2nd-most upvoted popular comment. 140 characters or less. IGNORANCE_CELEBRATIONS of how Tony Clifton POTUS provides so much funny and amusing entertainment for Reddit media cult followers.
+>
+
+
+=============
+  
+## Reddit comment o7p7gtw
+
+    entry 60
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rg6ys3/us_tells_embassy_staff_in_israel_to_leave_now_if/o7p7gtw/  
+Comment ID:      o7p7gtw  
+Author:          xdeltax97  
+Bio:             Fan of Star Wars, Tomb Raider, Warhammer, Mass Effect, Stargate, Cyberpunk, Halo and just an overall Video gamer, what else is there to say?
+
+Oh, and anime, cats…chicken parmigiana lol.  
+Account Created: 2017-02-15T21:32:56Z  
+Link Karma:      126255  
+Comment Karma:   502074  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T13:46:48Z  
+Score:           613 points  
+Post Title:      U.S. tells embassy staff in Israel to leave now if they want amid Trump threats to attack Iran  
+:::::: Reddit User Comment: ======  
+Something fucky is afoot
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> See the user's profile, fan of "Star Wars", George Lucas fan. But banalizing Levant world hate affairs, tiny-short thinking. 1988 Power of Myth book created at Skywalker Ranch, NONFICTION, avoided by tiny-short messaging fandoms on Reddit. Pro-ignorance pro-fiction leadership celebrations. Realty TV Trumpism fans. SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Specific/Bill_Moyers_Worship_Celebrities.md
+>
+
+
+=============
+  
+## Reddit comment o7rfxlj
+
+    entry 61
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rggzw3/oscar_winner_susan_sarandon_i_was_fired_by_my/o7rfxlj/  
+Comment ID:      o7rfxlj  
+Author:          Federal-Actuator-267  
+Bio:             swayze1025 :   
+Account Created: 2021-06-09T04:19:14Z  
+Link Karma:      482  
+Comment Karma:   3189  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T20:20:13Z  
+Score:           2191 points  
+Post Title:      Oscar winner Susan Sarandon: “I was fired by my agency for marching and calling for a ceasefire in Gaza. It even became impossible for me to appear on TV. I couldn't do any major film...”  
+:::::: Reddit User Comment: ======  
+Susan Sarandon is bigger than Hollywood ✨✨✨
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> If only people would listen to Susan's work. So many World Hate Affairs would be resolved.
+> 
+> * "Volume One of Mythos was released in 1999. Volume Two was released in 2000. Both parts are narrated by Susan Sarandon." https://en.wikipedia.org/wiki/Mythos_(film)
+>
+
+
+=============
+  
+## Reddit comment o7rgkca
+
+    entry 62
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rggzw3/oscar_winner_susan_sarandon_i_was_fired_by_my/o7rgkca/  
+Comment ID:      o7rgkca  
+Author:          Severus-Snape-DaGod  
+Bio:             Snape  : The man of my dreams is a woman 💅🏼  
+Account Created: 2025-10-15T14:57:12Z  
+Link Karma:      57348  
+Comment Karma:   202671  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T20:23:25Z  
+Score:           1423 points  
+Post Title:      Oscar winner Susan Sarandon: “I was fired by my agency for marching and calling for a ceasefire in Gaza. It even became impossible for me to appear on TV. I couldn't do any major film...”  
+:::::: Reddit User Comment: ======  
+Calling for a ceasefire or advocating for Palestinian human rights should not cost someone their career. The fact that people are being punished or silenced for expressing that view raises serious concerns. Like the BBC censoring "Free Palestine".
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 4 month Reddit account. The 2nd-most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7spy6t
+
+    entry 63
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1rgl8rr/justice_has_been_served/o7spy6t/  
+Comment ID:      o7spy6t  
+Author:          sillygoth_  
+Bio:               
+Account Created: 2025-10-28T02:40:40Z  
+Link Karma:      1  
+Comment Karma:   1179  
+Comment Age:     19 minutes ago  
+Timestamp:       2026-02-28T00:26:13Z  
+Score:           None  
+Post Title:      Justice has been served  
+:::::: Reddit User Comment: ======  
+Highly unlikely. Any functional democracy would hold those people accountable. What you describe could only happen on reality TV.
+
+
+
+
+=============
+  
+## Reddit comment o7sb874
+
+    entry 64
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1rgl8rr/justice_has_been_served/o7sb874/  
+Comment ID:      o7sb874  
+Author:          Corner_Post  
+Bio:               
+Account Created: 2018-12-13T11:25:11Z  
+Link Karma:      30923  
+Comment Karma:   73092  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T23:00:57Z  
+Score:           235 points  
+Post Title:      Justice has been served  
+:::::: Reddit User Comment: ======  
+Unsure the truth as separate article says the killer turned herself in and had previously refused DNA testing. Original post seems weird as DNA testing has been around for a long time…
+
+[https://amp.scmp.com/news/people\-culture/article/3331605/japan\-man\-rents\-wifes\-murder\-flat\-20\-years\-preserve\-crime\-scene\-spends\-us145000](https://amp.scmp.com/news/people-culture/article/3331605/japan-man-rents-wifes-murder-flat-20-years-preserve-crime-scene-spends-us145000)
+
+“His hopes were finally realised when the suspect gave herself up to police in Nagoya, central Japan. She was the man’s classmate at secondary school and had a crush on him.”
+
+This article says same thing. She confessed after being anxious for decades. She had previously refused to provide DNA sample. Only after she confessed did she allow DNA sample which they matched (… they already had the DNA from the scene from decades ago).
+
+<https://www.asahi.com/sp/ajw/articles/16134415>
+
+
+
+
+=============
+  
+## Reddit comment o7t50s7
+
+    entry 65
+
+Comment URL: https://old.reddit.com/r/Damnthatsinteresting/comments/1rgpqdn/norwegian_consumer_council_has_published_a_video/o7t50s7/  
+Comment ID:      o7t50s7  
+Author:          emoore3006  
+Bio:               
+Account Created: 2025-01-19T23:49:51Z  
+Link Karma:      1271  
+Comment Karma:   1198  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T01:58:16Z  
+Score:           803 points  
+Post Title:      Norwegian Consumer Council has published a video about the Ens*ittification of the world, in order to get the EU to respond to this sh*t  
+:::::: Reddit User Comment: ======  
+The enshittification of everything is a cancerous symptom of greed
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> NYC Premiere: October 15, 1940. General/Wide Releases: The film rolled out in different regions on varying dates, such as October 23 in Philadelphia, October 25 in Pittsburgh, and October 31 in Chicago.
+> 
+> "We want to live by each other’s happiness - not by each other’s misery. We don’t want to hate and despise one another. In this world there is room for everyone. And the good earth is rich and can provide for everyone. The way of life can be free and beautiful, but we have lost the way. Greed has poisoned men’s souls, has barricaded the world with hate, has goose-stepped us into misery and bloodshed. We have developed speed, but we have shut ourselves in. Machinery that gives abundance has left us in want. Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost…" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+>
+
+
+=============
+  
+## Reddit comment o7t64xx
+
+    entry 66
+
+Comment URL: https://old.reddit.com/r/Damnthatsinteresting/comments/1rgpqdn/norwegian_consumer_council_has_published_a_video/o7t64xx/  
+Comment ID:      o7t64xx  
+Author:          PursueProgress  
+Bio:             LogicOverLikes : Cautiously optimistic.  
+Account Created: 2025-06-19T20:15:47Z  
+Link Karma:      1  
+Comment Karma:   26209  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T02:05:13Z  
+Score:           955 points  
+Post Title:      Norwegian Consumer Council has published a video about the Ens*ittification of the world, in order to get the EU to respond to this sh*t  
+:::::: Reddit User Comment: ======  
+I have NEVER felt this seen.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Shit-posting shit-commenting following of Donald Trump all over serious topics on Reddit is what got us here. People think shit-commenting about Donald Trump is amusing and funny. Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o7u9eqa
+
+    entry 67
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rgv6a2/israeli_defense_minister_we_have_launched/o7u9eqa/  
+Comment ID:      o7u9eqa  
+Author:          MakitaKhrushchev  
+Bio:               
+Account Created: 2023-09-20T18:58:40Z  
+Link Karma:      838  
+Comment Karma:   2332  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T06:45:28Z  
+Score:           550 points  
+Post Title:      Israeli Defense minister: We have launched preemptive strike against Iran  
+:::::: Reddit User Comment: ======  
+U.S. has started bombing as well per NYT
+
+
+
+
+=============
+  
+## Reddit comment o7u6zhb
+
+    entry 68
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rgv6a2/israeli_defense_minister_we_have_launched/o7u6zhb/  
+Comment ID:      o7u6zhb  
+Author:          Right-Tomorrow-34  
+Bio:             justaguywholikestorun : floating, wanna join ?   
+Account Created: 2025-09-21T06:13:11Z  
+Link Karma:      1329  
+Comment Karma:   5948  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T06:24:11Z  
+Score:           4417 points  
+Post Title:      Israeli Defense minister: We have launched preemptive strike against Iran  
+:::::: Reddit User Comment: ======  
+Always on weekend, guess how many shorted markets on Friday xd
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month Reddit account. 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7ubh6w
+
+    entry 69
+
+Comment URL: https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participating_in_the_israeli/o7ubh6w/  
+Comment ID:      o7ubh6w  
+Author:          RiggityRyGuy  
+Bio:               
+Account Created: 2018-06-09T08:04:56Z  
+Link Karma:      3729  
+Comment Karma:   95210  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T07:03:33Z  
+Score:           2358 points  
+Post Title:      The United States is participating in the Israeli strikes against Iran, AP sources say  
+:::::: Reddit User Comment: ======  
+If you run on no new wars but routinely get us involved in military conflict you’d think people would be annoyed at the lying lol
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Most popular comment, most upvoted. 140 character thinking. "LOL". AMUSEMENT_COMEDY_WASHING_TRUMP_AS_FUNNY_MEDIA_SANEWASHING and parroting Trump talking point. Gullible Reddit fandom. This incredibly popular,most upvoted,low-information upvoter message is in no way resisting Trump and cheering on Trump as a source of "LOL". DEAtH_BY_LOL https://en.wikipedia.org/wiki/Low_information_voter
+>
+
+
+=============
+  
+## Reddit comment o7uaz8e
+
+    entry 70
+
+Comment URL: https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participating_in_the_israeli/o7uaz8e/  
+Comment ID:      o7uaz8e  
+Author:          Snip3rjoe  
+Bio:               
+Account Created: 2011-09-23T13:49:34Z  
+Link Karma:      706  
+Comment Karma:   32922  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T06:59:12Z  
+Score:           1617 points  
+Post Title:      The United States is participating in the Israeli strikes against Iran, AP sources say  
+:::::: Reddit User Comment: ======  
+The MAGA slogan of NO NEW WARS while Trump was campaigning is now
+
+"No, New wars."
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2nd most popular, most upvoted comment. 140 character Tweet-thinking. CHUCKLEHEAD_NATION in no way is this comment *resisting* Trump and MAGA, it is a fandom joke-washing that Trump is a great source of chuckles and amusements for high-speed notification addicts.
+>
+
+
+=============
+  
+## Reddit comment o7ub1tq
+
+    entry 71
+
+Comment URL: https://old.reddit.com/r/news/comments/1rgvrtt/the_united_states_is_participating_in_the_israeli/o7ub1tq/  
+Comment ID:      o7ub1tq  
+Author:          Tough_Representative  
+Bio:               
+Account Created: 2019-03-08T05:47:37Z  
+Link Karma:      3057  
+Comment Karma:   6323  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T06:59:49Z  
+Score:           1023 points  
+Post Title:      The United States is participating in the Israeli strikes against Iran, AP sources say  
+:::::: Reddit User Comment: ======  
+So much for that "ceasefire" that Trump took credit for back in June of last year 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3rd most popular comment, most upvoted. 140 character Tweet-thinking. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE this comment is not resisting MAGA values, it describes them as routine low-effort commenting source of media stimulation and engagement.
+>
+
+
+=============
+  
+## Reddit comment o7uq5j3
+
+    entry 72
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7uq5j3/  
+Comment ID:      o7uq5j3  
+Author:          wotsit_sandwich  
+Bio:               
+Account Created: 2018-08-06T13:12:07Z  
+Link Karma:      19711  
+Comment Karma:   71160  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T09:17:40Z  
+Score:           None  
+Post Title:      Here we go  
+:::::: Reddit User Comment: ======  
+I cant listen to this right now, but did the president just declare war wearing a baseball cap?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top-most upvoted popular comment. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES People are going to war, and the mot **POPULAR** Reddit comment is to comment about TRUMP_FANDOM celebrity concerns of clothing and fashion. This is RIGHT OUT OF WAR_PEACE_GLOBAL_VILLAGE by Marshall McLuhan! This Reddit community isn't resisting TRUMP_CHARMING - the audience is being charmed by Trump to be as superficial about war as Trump is.
+> 
+> * "Fashion is, as it were, the poor man's art, the usually unbought grace of life which he participates in only as a spectator. In sensory terms fashion has a kind of infallibility about it. As with hit tunes and hit pictures and hit entertainments, **fashion rushes in to fill the vacuum in our senses created by technological displacements**." - page 21. War and Peace in the Global Village, year 1968. Marshall McLuhan. SEE_ALSO: https://www.ⵠ.net/War_Peace_Global_Village (my educational website)
+>
+
+
+=============
+  
+## Reddit comment o7une58
+
+    entry 73
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7une58/  
+Comment ID:      o7une58  
+Author:          cassidyc3141  
+Bio:               
+Account Created: 2013-05-19T18:26:36Z  
+Link Karma:      221  
+Comment Karma:   7430  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T08:52:00Z  
+Score:           None  
+Post Title:      Here we go  
+:::::: Reddit User Comment: ======  
+That FIFA peace prize is not working.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SATIRE_SARCASM_WASHING Reddit fandom of Trump is joke-washing sane-washing Trump.
+>
+
+
+=============
+  
+## Reddit comment o7un8sd
+
+    entry 74
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1rgx26o/here_we_go/o7un8sd/  
+Comment ID:      o7un8sd  
+Author:          GlitchedBlueprint  
+Bio:               
+Account Created: 2026-01-13T09:35:32Z  
+Link Karma:      129  
+Comment Karma:   1705  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T08:50:40Z  
+Score:           None  
+Post Title:      Here we go  
+:::::: Reddit User Comment: ======  
+The hat tells you how serious he takes this.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. Attracted to Trump fashion, like orange skin, as the topic. This is not resisting Trump. Concerned with superficial matters. SUPER_HYPER_NORMAL
+>
+
+
+=============
+  
+## Reddit comment o7uo2ad
+
+    entry 75
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7uo2ad/  
+Comment ID:      o7uo2ad  
+Author:          atehrani  
+Bio:               
+Account Created: 2011-05-13T01:45:03Z  
+Link Karma:      516  
+Comment Karma:   39777  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T08:58:08Z  
+Score:           1484 points  
+Post Title:      The president of peace, just launched another war in the Middle East. What are your thoughts?  
+:::::: Reddit User Comment: ======  
+"In order to get elected BarackObama will start a war with Iran" \- Trump, Nov 29, 2011
+
+"BarackObama will attack Iran to get re\-elected." \- Trump, Jan 17, 2012
+
+"Now that Obama's poll numbers are in tailspin \- watch for him to launch a strike on Libya or Iran. He is desperate." \- Trump, Oct 9, 2012
+
+"I predict that President Obama will at some point start a war with Iran in order to save face!" \- Trump, Sept 16, 2013
+
+"Remember that I predicted a long time ago that President Obama will attack Iran because of his inability to negotiate properly \- not skilled!" \- Trump, Nov 11, 2013
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ANTI_WIKI_ANTI_FAQ the Reddit culture prizes commenting engagement that Trump provides. The avoidance of using Wiki or FAQ to get everyone on the same page in a thoughtful non-reactionary way is there if you look for it. This is a war dangerous situation,and yet again the 27 mental health people that Dr. Bandy X Lee assembled for her October 3, 2017 nonfiction books should be quoted and repeated...and Reddit commenting cult ignores relevant nonfiction books on paper.
+>
+
+
+=============
+  
+## Reddit comment o7ur1kc
+
+    entry 76
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7ur1kc/  
+Comment ID:      o7ur1kc  
+Author:          Slow_Flatworm_881  
+Bio:               
+Account Created: 2025-11-02T23:39:05Z  
+Link Karma:      1  
+Comment Karma:   2306  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T09:26:24Z  
+Score:           27 points  
+Post Title:      The president of peace, just launched another war in the Middle East. What are your thoughts?  
+:::::: Reddit User Comment: ======  
+There’s nothing like a good war to effect regime change in the country with the second largest oil reserves in the world!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o7unfo4
+
+    entry 77
+
+Comment URL: https://old.reddit.com/r/AskReddit/comments/1rgx06k/the_president_of_peace_just_launched_another_war/o7unfo4/  
+Comment ID:      o7unfo4  
+Author:          dull_storyteller  
+Bio:               
+Account Created: 2022-03-18T21:32:45Z  
+Link Karma:      46914  
+Comment Karma:   205358  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T08:52:24Z  
+Score:           287 points  
+Post Title:      The president of peace, just launched another war in the Middle East. What are your thoughts?  
+:::::: Reddit User Comment: ======  
+He’s just after peace.
+
+He wants a piece of Venezuela, a piece of Greenland, two pieces of Canada (as a treat)
+
+He’s big into piece.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS Trump leads as an actor who is acting to create entertainment, Reddit follows Trump. Entertainment Reality TV leadership, We The People on Reddit follow with entertainment mindsets.
+>
+
+
+=============
+  
+## Reddit comment o7udel8
+
+    entry 78
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7udel8/  
+Comment ID:      o7udel8  
+Author:          Hoodyroo  
+Bio:               
+Account Created: 2019-05-08T10:13:37Z  
+Link Karma:      1100  
+Comment Karma:   2752  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T07:20:49Z  
+Score:           1895 points  
+Post Title:      Iranian people cheering for bombs hitting the Islamic Republic's Supreme Leader's house in Tehran  
+:::::: Reddit User Comment: ======  
+Another instance of reddit breaking news for me before anything else
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> High-speed notification delivery addiction is Trumpism values. Always reacting.
+>
+
+
+=============
+  
+## Reddit comment o7ucv3j
+
+    entry 79
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7ucv3j/  
+Comment ID:      o7ucv3j  
+Author:          SHODAN117  
+Bio:               
+Account Created: 2020-10-21T08:16:22Z  
+Link Karma:      828  
+Comment Karma:   28064  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T07:15:55Z  
+Score:           927 points  
+Post Title:      Iranian people cheering for bombs hitting the Islamic Republic's Supreme Leader's house in Tehran  
+:::::: Reddit User Comment: ======  
+Here we go again, again.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fandom getting their weekend entertainment. This isn't resisting, it's extreme low-thinking 140 character Twitter reacting.
+>
+
+
+=============
+  
+## Reddit comment o7ufzwx
+
+    entry 80
+
+Comment URL: https://old.reddit.com/r/PublicFreakout/comments/1rgvu85/iranian_people_cheering_for_bombs_hitting_the/o7ufzwx/  
+Comment ID:      o7ufzwx  
+Author:          dashcam4life  
+Bio:             sddjikn : fjhui  
+Account Created: 2012-07-03T00:42:41Z  
+Link Karma:      12163  
+Comment Karma:   39884  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T07:44:24Z  
+Score:           282 points  
+Post Title:      Iranian people cheering for bombs hitting the Islamic Republic's Supreme Leader's house in Tehran  
+:::::: Reddit User Comment: ======  
+Everybody needs to get ready for a shit ton of propaganda.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Outbreak of mind-fucking. People have been cheering on every outbreak since March of year 2013. MOB_MENTALITY_FIRE_DRILLS
+>
+
+
+=============
+  
+## Reddit comment o7tw8ov
+
+    entry 81
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rgt6l5/cillian_murphy_at_a_recent_qa_when_asked_by_an/o7tw8ov/  
+Comment ID:      o7tw8ov  
+Author:          GiveMeSomeSunshine3  
+Bio:               
+Account Created: 2025-03-14T14:37:00Z  
+Link Karma:      793108  
+Comment Karma:   120843  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-28T04:58:01Z  
+Score:           1766 points  
+Post Title:      Cillian Murphy at a recent Q&A, when asked by an audience member (who was also a doctor) about how he copes with playing such traumatised characters: “You’re a doctor? see, now that’s a real job”  
+:::::: Reddit User Comment: ======  
+He had said something similar in a 2019 interview too:
+
+[\<image\>](https://preview.redd.it/nqesgm9236mg1.jpeg?width=1640&format=pjpg&auto=webp&s=3ea099d88d5832ebef81eb1b4e2d2f73a23e121f)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account, most-upvoted popular. As for the whole topic of acting fiction vs. reality and people behaving as if fiction is more difficult: UNIFIED_THEORY_FICTION_NONFICTION
+>
+
+
+=============
+  
+## Reddit comment o7uxds8
+
+    entry 82
+
+Comment URL: https://old.reddit.com/r/therewasanattempt/comments/1rgz6n3/to_criticize/o7uxds8/  
+Comment ID:      o7uxds8  
+Author:          LousyReputation7  
+Bio:               
+Account Created: 2017-04-28T10:05:54Z  
+Link Karma:      17  
+Comment Karma:   35921  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T10:29:16Z  
+Score:           85 points  
+Post Title:      to criticize  
+:::::: Reddit User Comment: ======  
+His words can’t be trusted nor believed nor valued the very moment they leave his tangerine lips. Let alone 13 years later.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump was in (or returning from?) Moscow, Russia at the time of that Tweet. https://x.com/realDonaldTrump/status/399731975432728576 7:55 PM · Nov 10, 2013. Sunday
+> November 10, 2013.
+> 
+> https://time.com/5251484/donald-trump-flight-records-moscow-trip/ "Yet the broad timeline of Trump’s stay, stretching from Friday, Nov. 8, 2013, through the following Sunday morning, has been widely reported. And it’s substantiated by social media posts that show he slept in Moscow the night before the Miss Universe contest."
+> 
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfw7emztes2m https://bsky.app/profile/roundsparrow.bsky.social/post/3mfw7emztes2m https://MidWest.Social/post/44049533 }
+>
+
+
+=============
+  
+## Reddit comment o7vaoy7
+
+    entry 83
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rh13aq/gazza_20_unfolding_video_of_heartbreaking/o7vaoy7/  
+Comment ID:      o7vaoy7  
+Author:          Creative-Ad-1363  
+Bio:             JerseyRich :   
+Account Created: 2024-09-14T19:19:56Z  
+Link Karma:      182  
+Comment Karma:   23972  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T12:25:42Z  
+Score:           416 points  
+Post Title:      Gazza 2.0 unfolding ? video of heartbreaking Iranians screams after a massacre of 40 iranian children in a US-lsraeIi strike on their school  
+:::::: Reddit User Comment: ======  
+Blatant disregard for human life.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Gaza topic. Most popular most-upvoted comment. Under 140 characters, 5 words Twitter-thinking. Donald Trump has a blatant disregard for humanism because he considered is non-entertaining and boring. War is media content Trump and Reddit community all find attractive. It gives Trump something to give speeches, make statements about that's exciting like fireworks and thunderstorms. It gives Reddit media addicts a chance to put in their 5-word comments and upvote them to the top concern on the topic. Trump is a media addict who has the same common behaviors as Reddit users: AVOIDING SERIOUS NONFICTION RELEVANT BOOKS. Such as a year 2013 book of nonfiction that Reddit does not find relevant, nor does Trump.
+> 
+> * “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. **Published October 8, 2013** a decade before October 7, 2023.
+>
+
+
+=============
+  
+## Reddit comment o7v964d
+
+    entry 84
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1rh12bj/us_calls_strikes_on_iran_operation_epic_fury/o7v964d/  
+Comment ID:      o7v964d  
+Author:          combonickel55  
+Bio:               
+Account Created: 2017-03-20T10:31:25Z  
+Link Karma:      7842  
+Comment Karma:   63470  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T12:13:48Z  
+Score:           1769 points  
+Post Title:      US calls strikes on Iran 'Operation Epic Fury'  
+:::::: Reddit User Comment: ======  
+We are governed by 12 year old boys.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Number 1 popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING It has nothing to do with age. But Reddit commenting cult members who upvote, low-information voters, are now all attracted to anti-intellectual commenting. Donald Trump isn't age 12, Elon Musk isn't age 12, it's the Kremlin information warfare that Reddit community can't name, Saint Petersburg Internet Research Agency since year 2013 that changed the mindsets.
+> 
+> * "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using **crude dialogue to change "the climate of discussion."** "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that **there are 200 comments that sound like they were written by 12-year-olds**, then you just don't bother to comment," she says.  "You don't participate. It's a way of just **driving discussion away** completely," she adds. "Those **kinds of tactics are meant to stop democratic debate**, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+>
+
+
+=============
+  
+## Reddit comment o7v9z40
+
+    entry 85
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1rh12bj/us_calls_strikes_on_iran_operation_epic_fury/o7v9z40/  
+Comment ID:      o7v9z40  
+Author:          Even-Veterinarian-71  
+Bio:               
+Account Created: 2021-07-06T20:39:34Z  
+Link Karma:      1  
+Comment Karma:   3368  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T12:20:08Z  
+Score:           789 points  
+Post Title:      US calls strikes on Iran 'Operation Epic Fury'  
+:::::: Reddit User Comment: ======  
+Jesus Christ, they truly are fucking children
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Number 2 popular comment. same  as the first. Reaction-commenting, Trump Fandom of reactionary mindsets.  REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+>
+
+
+=============
+  
+## Reddit comment o7v1bku
+
+    entry 86
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v1bku/  
+Comment ID:      o7v1bku  
+Author:          UGAPokerBrat99  
+Bio:               
+Account Created: 2021-06-27T05:42:15Z  
+Link Karma:      2472  
+Comment Karma:   110612  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T11:06:07Z  
+Score:           None  
+Post Title:      MAGA Melts Down Over Iran War No One Voted For  
+:::::: Reddit User Comment: ======  
+They aren't melting down, they just haven't gotten their talking points yet. They will have their mental gymnastics routine ready by mid day on justifying this action as still fitting in with dear leader's "No New Wars" false claims.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> HIGH_SPEED_REACTIONARY_MINDSETS
+>
+
+
+=============
+  
+## Reddit comment o7v50vw
+
+    entry 87
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v50vw/  
+Comment ID:      o7v50vw  
+Author:          Dr_G_E  
+Bio:               
+Account Created: 2025-06-04T18:53:21Z  
+Link Karma:      1315  
+Comment Karma:   27308  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T11:39:24Z  
+Score:           None  
+Post Title:      MAGA Melts Down Over Iran War No One Voted For  
+:::::: Reddit User Comment: ======  
+Just a reminder that between 2011 and 2013, Donald Trump posted multiple tweets and videos predicting that President Barack Obama would start a war with Iran to boost his re\-election chances or to look "tough." [https://m.economictimes.com/us/news/as\-us\-and\-israel\-strike\-iran\-trumps\-old\-tweet\-criticizing\-obama\-on\-nuclear\-negotiations\-goes\-viral\-check\-here/articleshow/128882100\.cms](https://m.economictimes.com/us/news/as-us-and-israel-strike-iran-trumps-old-tweet-criticizing-obama-on-nuclear-negotiations-goes-viral-check-here/articleshow/128882100.cms)
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 8 month Reddit account. 2nd most popular comment.
+>
+
+
+=============
+  
+## Reddit comment o7v19w2
+
+    entry 88
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v19w2/  
+Comment ID:      o7v19w2  
+Author:          MCpoopcicle  
+Bio:               
+Account Created: 2017-09-04T03:27:03Z  
+Link Karma:      2238  
+Comment Karma:   19371  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T11:05:41Z  
+Score:           None  
+Post Title:      MAGA Melts Down Over Iran War No One Voted For  
+:::::: Reddit User Comment: ======  
+Hopefully the parents and young men who voted for Trump won't mind being deployed.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> No concern for dead people this causes that are outside USA, non-USA people. BILLIONAIRE_MIND_VIRUS talking points.
+>
+
+
+=============
+  
+## Reddit comment o7v3vbw
+
+    entry 89
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgzu5x/maga_melts_down_over_iran_war_no_one_voted_for/o7v3vbw/  
+Comment ID:      o7v3vbw  
+Author:          reddittorbrigade  
+Bio:             reddit :   
+Account Created: 2024-07-19T19:19:51Z  
+Link Karma:      124  
+Comment Karma:   557928  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T11:29:07Z  
+Score:           None  
+Post Title:      MAGA Melts Down Over Iran War No One Voted For  
+:::::: Reddit User Comment: ======  
+Without MAGA and FOX News our lives would have been better.
+
+They have nurtured this monster\- Donald Trump.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Fox News. But not Reddit, not the Saint Petersburg Internet Research Agency that invaded Reddit... just concern with Fox News. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION Now why is it on Reddit whenever someone criticizes Fox News,they can't seem to locate NONFICTION books and films? Why is Jen Senko not mentioned when Fox News HDTV media Rupert Murdoch billionaire platform comes up? Why is a woman, Jen Senko, not promoted about the topic of Fox News? DO YOU SEE THE AVOIDANCE OF NONFICTION? The constant engagement of low-effort commenting on Reddit? MORE THAN A DECADE, since year 2015, to learn Jen Senko's name in association with Fox News ... https://en.wikipedia.org/wiki/Jen_Senko Instead, Reddit commenting addictions mean low-effort low-information upvoting.
+>
+
+
+=============
+  
+## Reddit comment o7uqety
+
+    entry 90
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/o7uqety/  
+Comment ID:      o7uqety  
+Author:          David_Good_Enough  
+Bio:             Just adding that because I want the Reddit trophy  
+Account Created: 2019-06-21T12:18:46Z  
+Link Karma:      4778  
+Comment Karma:   224258  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T09:20:09Z  
+Score:           None  
+Post Title:      He is weak and ineffective  
+:::::: Reddit User Comment: ======  
+Isn't there a sub that is like "TrumpcontradictsTrump" or something like that ?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TRUMP_FANDOM loves and upvotes this posting title. CLICKBAIT_TITLE with the TRUMP_WEAK_MUSK_WEAK_DO_NOTHING_TO_RESIST_TALKING_POINTS
+>
+
+
+=============
+  
+## Reddit comment o7uqede
+
+    entry 91
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/o7uqede/  
+Comment ID:      o7uqede  
+Author:          smoke_thewalkingdead  
+Bio:               
+Account Created: 2015-09-15T13:07:03Z  
+Link Karma:      3231  
+Comment Karma:   32989  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T09:20:01Z  
+Score:           None  
+Post Title:      He is weak and ineffective  
+:::::: Reddit User Comment: ======  
+I legit hate this MF. Everything he does just gets on my nerves. The way he talks, the way he walks, his face, hand gestures. Just everything. "This fucking guy"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> World Hate Affairs. Today is February 28. "I legit hate this MF." - Saturday, February 28, 2026. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS - Reddit is attracted to hate signals, hate leadership followers on Reddit.
+> 
+> **The 1954 Equation**
+> 
+> February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+> 
+> "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the **true becomes false and the false becomes true**. That's what hate does. You can't see right. **The symbol of objectivity** is lost." - Martin Luther King Jr.
+> 
+> NEW_OPERA_NAME #SocialMediaFollows #TrumpLeadsHate #TrumpLeadsWithHate 
+> #FollowersOfHate #FandomsOfHateLeaders    
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwekt736k27 https://autistics.life/@RoundSparrow/116148578008085240 }
+>
+
+
+=============
+  
+## Reddit comment o7uqfly
+
+    entry 93
+
+Comment URL: https://old.reddit.com/r/interestingasfuck/comments/1rgxu95/he_is_weak_and_ineffective/o7uqfly/  
+Comment ID:      o7uqfly  
+Author:          trubol  
+Bio:               
+Account Created: 2020-02-14T11:33:11Z  
+Link Karma:      247321  
+Comment Karma:   114827  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T09:20:22Z  
+Score:           None  
+Post Title:      He is weak and ineffective  
+:::::: Reddit User Comment: ======  
+OP had this video saved for about a month just waiting for the inevitable time to post it
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> MEDIA_ECOLOGY_OBSERVATION 
+> 
+> The video seems legit: "On Nov. 16, 2011, Trump's official YouTube channel published the video circulating online, titled "From The Desk Of Donald Trump: Iran and Occupy Wall Street." https://www.snopes.com/fact-check/video-trump-iran-obama/
+>
+
+
+=============
+  
+## Reddit comment o7v7pcx
+
+    entry 94
+
+Comment URL: https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7v7pcx/  
+Comment ID:      o7v7pcx  
+Author:          ChallengingBullfrog8  
+Bio:               
+Account Created: 2021-09-05T23:00:59Z  
+Link Karma:      3243  
+Comment Karma:   157322  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T12:01:51Z  
+Score:           263 points  
+Post Title:      The Deputy Governor of Hormozgan province in Iran reports that 36 female students were killed in an attack carried out by Israeli warplanes on all-girls school in the city of Minab.  
+:::::: Reddit User Comment: ======  
+Killing civilians, especially kids, is the IOF’s specialization.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top most upvoted comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING commenting to describe the situation isn't resisting the situation. It's just commenting about it casually.
+>
+
+
+=============
+  
+## Reddit comment o7vfllw
+
+    entry 95
+
+Comment URL: https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7vfllw/  
+Comment ID:      o7vfllw  
+Author:          Plastic_Lobster1036  
+Bio:               
+Account Created: 2023-06-10T15:18:09Z  
+Link Karma:      4722  
+Comment Karma:   15468  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T13:01:37Z  
+Score:           20 points  
+Post Title:      The Deputy Governor of Hormozgan province in Iran reports that 36 female students were killed in an attack carried out by Israeli warplanes on all-girls school in the city of Minab.  
+:::::: Reddit User Comment: ======  
+I love the modern media landscape where we either trust a fundamentalist Islamic regime, a fascist cult of personality led by a racist pedophile, or a fascist regime actively committing genocide
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit media cult fandom. Media cults abound. MEDIA_ECOLOGY_OBSERVATION
+>
+
+
+=============
+  
+## Reddit comment o7v8tjh
+
+    entry 96
+
+Comment URL: https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7v8tjh/  
+Comment ID:      o7v8tjh  
+Author:          itsadrian  
+Bio:             hatmagazine :   
+Account Created: 2011-01-27T12:40:13Z  
+Link Karma:      134  
+Comment Karma:   361  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T12:10:58Z  
+Score:           122 points  
+Post Title:      The Deputy Governor of Hormozgan province in Iran reports that 36 female students were killed in an attack carried out by Israeli warplanes on all-girls school in the city of Minab.  
+:::::: Reddit User Comment: ======  
+Insya Allah Iran will be victorious against the pedophiles
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> RELIGION_CULTS_MONOMYTH_PROGRAMMING fiction, like Trump and Fox News provides, fiction addictions.
+>
+
+
+=============
+  
+## Reddit comment o7va0fi
+
+    entry 97
+
+Comment URL: https://old.reddit.com/r/TrueAnon/comments/1rh0u5p/the_deputy_governor_of_hormozgan_province_in_iran/o7va0fi/  
+Comment ID:      o7va0fi  
+Author:          BortcornsFourJezus  
+Bio:               
+Account Created: 2026-01-14T01:49:25Z  
+Link Karma:      165  
+Comment Karma:   3027  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T12:20:25Z  
+Score:           78 points  
+Post Title:      The Deputy Governor of Hormozgan province in Iran reports that 36 female students were killed in an attack carried out by Israeli warplanes on all-girls school in the city of Minab.  
+:::::: Reddit User Comment: ======  
+But they told us that Iran hates women because burqas
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+>
+
+
+=============
+  
+## Reddit comment o7vyaux
+
+    entry 100
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyaux/  
+Comment ID:      o7vyaux  
+Author:          bananasoyamilk  
+Bio:             i’ve only just remembered my reddit password so here i am again  
+Account Created: 2019-06-02T14:20:27Z  
+Link Karma:      282  
+Comment Karma:   5610  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T14:54:06Z  
+Score:           2074 points  
+Post Title:      The Zionist regime and the US have killed 51 girls in an elementary school (all girl school) in Minab, Iran.  
+:::::: Reddit User Comment: ======  
+My heart breaks again and again at all the atrocities both evil regimes have committed and yet they still paint themselves to be saviours, what a backwards and evil world we live in
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top most upvoted comment conceals Reddit posting history and comment history. Has a message about lost password explaining why the account was recently revived on Reddit.
+>
+
+
+=============
+  
+## Reddit comment o7vzetf
+
+    entry 101
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vzetf/  
+Comment ID:      o7vzetf  
+Author:          Sleepy-Giraffe947  
+Bio:               
+Account Created: 2024-06-22T15:48:58Z  
+Link Karma:      27  
+Comment Karma:   1262856  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T15:00:11Z  
+Score:           800 points  
+Post Title:      The Zionist regime and the US have killed 51 girls in an elementary school (all girl school) in Minab, Iran.  
+:::::: Reddit User Comment: ======  
+Those poor innocent children. Why is the US bombing Iran???
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> PROMOTING_IGNORANCE_WORKS_PLAYING_DUMB_MOCKING tiny short under 140 character messages for media engagement. Has nobody heard of Malala's girls movement, nobody reads nonfiction. Just the stimulation of react-commenting.
+>
+
+
+=============
+  
+## Reddit comment o7vyyih
+
+    entry 102
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyyih/  
+Comment ID:      o7vyyih  
+Author:          Glad_Pea_4871  
+Bio:             Okay_J :   
+Account Created: 2026-01-05T14:32:30Z  
+Link Karma:      4793  
+Comment Karma:   49893  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T14:57:42Z  
+Score:           447 points  
+Post Title:      The Zionist regime and the US have killed 51 girls in an elementary school (all girl school) in Minab, Iran.  
+:::::: Reddit User Comment: ======  
+god what are we even doing here. how does murdering children in a girl school help anyone??
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. Playing dumb. Remember, the post was made by a 4 month Reddit account. Massive Reddit influencer with "4,793 post karma 49,883 comment karma" since January 5.
+>
+
+
+=============
+  
+## Reddit comment o7wb6ys
+
+    entry 103
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wb6ys/  
+Comment ID:      o7wb6ys  
+Author:          canarchist  
+Bio:               
+Account Created: 2010-07-30T01:24:13Z  
+Link Karma:      607  
+Comment Karma:   1283086  
+Comment Age:     47 minutes ago  
+Timestamp:       2026-02-28T16:00:32Z  
+Score:           1194 points  
+Post Title:      INSHALLAH  
+:::::: Reddit User Comment: ======  
+So, is this where we find out that the Trump regime can trigger a global internet outage?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Why isn't Reddit community organizing a REDDIT_BLACKOUT ? Why is no social media user community protesting that bad things are bad? ANSWER: People are only concerned about the entertainment being cut off. If the Internet were shut down, no more photographs of Donald Trump to stimulate the handheld devices. The ADDICTION to Trump content is why Trump has so much power! Why is there no Reddit user-created blackout? Protest on social media? Commenting isn't protesting.
+>
+
+
+=============
+  
+## Reddit comment o7wbli5
+
+    entry 104
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wbli5/  
+Comment ID:      o7wbli5  
+Author:          divingyt  
+Bio:               
+Account Created: 2021-08-05T18:34:59Z  
+Link Karma:      970  
+Comment Karma:   39499  
+Comment Age:     47 minutes ago  
+Timestamp:       2026-02-28T16:02:35Z  
+Score:           531 points  
+Post Title:      INSHALLAH  
+:::::: Reddit User Comment: ======  
+Please do. Please please please release them
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TRUMP_FANDOM cult of Trump images crying out and begging for more Trump images. As if removing Trump from office needs more "evidence".  Also see the FIXATION on one man and not the cult of MAGA, Elon Musk cult, etc. TRUMP_FAMILY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_TWITTER_ETC This very subreddt is a "White People Twitter", cult of Twitter content...begging for more content.
+>
+
+
+=============
+  
+## Reddit comment o7w81xu
+
+    entry 105
+
+Comment URL: https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7w81xu/  
+Comment ID:      o7w81xu  
+Author:          MajorMathematician20  
+Bio:               
+Account Created: 2020-10-25T09:39:01Z  
+Link Karma:      28933  
+Comment Karma:   351764  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T15:44:57Z  
+Score:           302 points  
+Post Title:      Jack White on Trump's Bombing of Iran: "Behold the Leader of the Board of Peace"  
+:::::: Reddit User Comment: ======  
+To anyone who genuinely believes Trump is peaceful:
+
+I have a bridge for sale
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> GULLIBLE_FANDOM of Trump. This isn't resisting. It's extremely low-effort statements. Trump is a media engagement cult power. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING 1st most popular comment.
+>
+
+
+=============
+  
+## Reddit comment o7wa2li
+
+    entry 106
+
+Comment URL: https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wa2li/  
+Comment ID:      o7wa2li  
+Author:          Sweet_Deeznuts  
+Bio:               
+Account Created: 2017-09-30T01:50:02Z  
+Link Karma:      348  
+Comment Karma:   163564  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T15:54:58Z  
+Score:           33 points  
+Post Title:      Jack White on Trump's Bombing of Iran: "Behold the Leader of the Board of Peace"  
+:::::: Reddit User Comment: ======  
+But Peace is War, right?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2nd most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING anti-intellectual sanewashing Trump via satire, jokes, humor cracking. SATIRE_SARCASM_WASHING
+>
+
+
+=============
+  
+## Reddit comment o7wcs0j
+
+    entry 107
+
+Comment URL: https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wcs0j/  
+Comment ID:      o7wcs0j  
+Author:          justtobrowse1  
+Bio:               
+Account Created: 2020-07-09T02:34:27Z  
+Link Karma:      1  
+Comment Karma:   1921  
+Comment Age:     48 minutes ago  
+Timestamp:       2026-02-28T16:08:32Z  
+Score:           5 points  
+Post Title:      Jack White on Trump's Bombing of Iran: "Behold the Leader of the Board of Peace"  
+:::::: Reddit User Comment: ======  
+Very literally seeing this same comment every five minutes. Not original.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> That's what TRUMP_FANDOM does, MEDIA_MANIA of repeating and parroting Trump-speak over and over. It is a cult. SOCIAL_CULT_HATE_WATCHING_FANDOM
+>

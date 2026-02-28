@@ -158,3 +158,36 @@ They don’t mean “American.” They mean “white.”
 > This is not resisting. This Reddit comment, the top most-upvoted popular comment, is normalizing. This is **commenting on MAGA**, this is not RESISTING MAGA. Reddit in February 2026 is a FANDOM of MAGA that grades and comments upon MAGA media. No call to intellectual arms, no remedial morality lessons, just commenting about the Reddit vibes fandom of Twitter billionaire Elon Musk MAGA media systems. Why is Reddit commenting community not quoting and repeating Dr. Bandy X Lee, because she is a woman? Because she isn't a white woman? Why is Reddit not repeating Dr. Lee? INFORMATION_GLUT_COMMENTING_GLUT
 >
 
+
+=============
+  
+## Reddit comment o7v0z3y
+
+    entry 6
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1rgywc8/bilzerian_keep_exposing_the_liar/o7v0z3y/  
+Comment ID:      o7v0z3y  
+Author:          AdhesivenessOk5194  
+Bio:               
+Account Created: 2022-05-23T06:29:40Z  
+Link Karma:      36533  
+Comment Karma:   180693  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-28T11:02:55Z  
+Score:           731 points  
+Post Title:      Bilzerian keep exposing the liar.  
+:::::: Reddit User Comment: ======  
+Bilzerian was absolutely a Trump supporter
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="1312" height="916" alt="image" src="https://github.com/user-attachments/assets/8438354d-58f4-4a06-be3a-4fdc920c60c9" />
+> 
+> Reddit community (these comments) isn't resisting anything. Reddit fandom is gulping down the Elon Musk Twitter simulation of resisting. **3 small words** "This you dipshit?", junk media, Trumpism. Back and forth tiny messages inside the comment box thinking. Avoiding nonfiction. All 3 of these replies assert nothing good. We are in extreme crisis of Twitter-thinking Tweet-mindsets. CIVIC_DUTY_WE_PEOPLE to share nonfiction relevant urgent topics, such as Dr. Bandy X Lee's 27 people published October 3, 2017 to the general public about the danger of Donald Trump. Instead, free time and spare time people spend on Reddit commenting about the situation in a passive, matter of fact, way with no call to intellectual action. This has gone on year after year after year in USA, people commenting about others calling people "dumb-shit". Study the screen shot: Donald Trump leads with "dumb-shit" and people reply commenting in a way that follows the Trump anti-intellectual leadership.
+> 
+> This entire posting on /r/All front page is the Reddit community celebrating the ignorance of Tweet-thinking society 2026.
+> 
+> NEW_OPERA_NAME #ResistingWhatExactly #InsincereResistance     
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwnkaaoi22h https://autistics.life/@RoundSparrow/116149206200544436 }
+>
