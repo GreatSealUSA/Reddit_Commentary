@@ -2401,3 +2401,2152 @@ Once they hit a certain capacity the camps are for political opposition, not imm
 > :::::: Analysis_Thoughts Commentary: ======  
 > PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN Good to see people discussing forest for the trees of long-term thinking. https://en.wikipedia.org/wiki/Rex_84 my own assertions: nationalization of Reddit and Bluesky as a dramatic move, but the disappearing of users and comments and postings is also at atmosphere of ICE virtual.
 >
+
+
+=============
+  
+## Reddit comment o7lirkd
+
+    entry 83
+
+Comment URL: https://old.reddit.com/r/circled/comments/1rfo46y/justice_denied_again/o7lirkd/  
+Comment ID:      o7lirkd  
+Author:          SpendLiving9376  
+Bio:               
+Account Created: 2025-09-16T15:28:35Z  
+Link Karma:      5  
+Comment Karma:   12057  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-26T22:27:51Z  
+Score:           383 points  
+Post Title:      Justice Denied Again  
+:::::: Reddit User Comment: ======  
+Congrats to all the voters who seriously believed Trump was going to do something 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month Reddit account. Top-upvoted most popular comment. Within the 140 character length limit of reactionary mindsets. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT "Congrats to all" IGNORANCE_CELEBRATION that Reddit community has been doing over a year as MAGA fandom. ANYTHING AND EVERYTHING on Reddit to avoid nonfiction serious books by Dr. Bandy X Lee, mental health, cult deprogramming. As the addiction (cult) to media high-speed information mockery back and forth in feedback loops with MAGA is prized above any goodness. Shit-commenting and shit-posting society read by Donald Trump's media shit-posting and antics. POTUS Tony Clifton is an irresistible character for the Reddit fandom.
+>
+
+
+=============
+  
+## Reddit comment o7m3r84
+
+    entry 84
+
+Comment URL: https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m3r84/  
+Comment ID:      o7m3r84  
+Author:          riko77can  
+Bio:               
+Account Created: 2013-07-19T12:44:37Z  
+Link Karma:      1398  
+Comment Karma:   175127  
+Comment Age:     41 minutes ago  
+Timestamp:       2026-02-27T00:21:03Z  
+Score:           None  
+Post Title:      Anthropic rejects latest Pentagon offer: ‘We cannot in good conscience accede to their request’  
+:::::: Reddit User Comment: ======  
+Things are already really bad when a corporation has to make a moral stand against the demands of the government.
+
+
+
+
+=============
+  
+## Reddit comment o7m5gdd
+
+    entry 85
+
+Comment URL: https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m5gdd/  
+Comment ID:      o7m5gdd  
+Author:          Dismal-Incident-8498  
+Bio:               
+Account Created: 2023-09-11T20:33:40Z  
+Link Karma:      222  
+Comment Karma:   22412  
+Comment Age:     32 minutes ago  
+Timestamp:       2026-02-27T00:30:18Z  
+Score:           None  
+Post Title:      Anthropic rejects latest Pentagon offer: ‘We cannot in good conscience accede to their request’  
+:::::: Reddit User Comment: ======  
+Holy shit. Finally someone with a conscience at this level.
+
+
+
+
+=============
+  
+## Reddit comment o7m6m92
+
+    entry 86
+
+Comment URL: https://old.reddit.com/r/news/comments/1rfqwhv/anthropic_rejects_latest_pentagon_offer_we_cannot/o7m6m92/  
+Comment ID:      o7m6m92  
+Author:          Harbinger2nd  
+Bio:               
+Account Created: 2014-05-06T20:43:14Z  
+Link Karma:      29465  
+Comment Karma:   151126  
+Comment Age:     26 minutes ago  
+Timestamp:       2026-02-27T00:36:36Z  
+Score:           None  
+Post Title:      Anthropic rejects latest Pentagon offer: ‘We cannot in good conscience accede to their request’  
+:::::: Reddit User Comment: ======  
+Its fucking ***INSANE*** that Anthropic are the good guys in this situation. That should scare the shit out of everyone.
+
+
+
+
+=============
+  
+## Reddit comment o7ldjhf
+
+    entry 87
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7ldjhf/  
+Comment ID:      o7ldjhf  
+Author:          SilverEncanis13  
+Bio:               
+Account Created: 2021-10-21T14:08:31Z  
+Link Karma:      1304  
+Comment Karma:   31080  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-26T22:01:51Z  
+Score:           248 points  
+Post Title:      Sen. RubenGallego: “Princes, CEOs, the most powerful men in the world are being held accountable everywhere except for the US. What Republicans are proving right now, with the help of Trump, is that if you are part of the Epstein class, you can get away with terrible things.”  
+:::::: Reddit User Comment: ======  
+It's disgusting. And at this point, I'm so utterly ashamed of being an American. Our government has failed us.
+
+
+
+
+=============
+  
+## Reddit comment o7ldk43
+
+    entry 88
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7ldk43/  
+Comment ID:      o7ldk43  
+Author:          talor_swib  
+Bio:             thoughtsandchairs :   
+Account Created: 2024-08-22T12:25:03Z  
+Link Karma:      1  
+Comment Karma:   42472  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-26T22:01:56Z  
+Score:           39 points  
+Post Title:      Sen. RubenGallego: “Princes, CEOs, the most powerful men in the world are being held accountable everywhere except for the US. What Republicans are proving right now, with the help of Trump, is that if you are part of the Epstein class, you can get away with terrible things.”  
+:::::: Reddit User Comment: ======  
+I'm so grateful for him just saying it out loud. So many people seem to dance around saying the awful words. But we have to say it, it's what happened. It should feel uncomfortable, because it is devastating. Girls and women, and I really have no doubt boys and men too, were raped.
+
+
+
+
+=============
+  
+## Reddit comment o7lh3a7
+
+    entry 89
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh3a7/  
+Comment ID:      o7lh3a7  
+Author:          BishopGodDamnYou  
+Bio:             twitch.tv/StayatHomeSerial  : Twitch streamer StayatHomeSerial. I’m a mother of twins by day, couch potato by night. Self taught, crocheter, baker and craft fiend extraordinaire. Horror geek for life. Hail yourselves!!!  
+Account Created: 2017-01-06T05:19:44Z  
+Link Karma:      166651  
+Comment Karma:   179363  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-26T22:19:29Z  
+Score:           17 points  
+Post Title:      Sen. RubenGallego: “Princes, CEOs, the most powerful men in the world are being held accountable everywhere except for the US. What Republicans are proving right now, with the help of Trump, is that if you are part of the Epstein class, you can get away with terrible things.”  
+:::::: Reddit User Comment: ======  
+It’s flat out embarrassing to be an American.
+
+
+
+
+=============
+  
+## Reddit comment o7lh5xe
+
+    entry 90
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh5xe/  
+Comment ID:      o7lh5xe  
+Author:          303FPSguy  
+Bio:               
+Account Created: 2019-12-12T19:39:52Z  
+Link Karma:      439  
+Comment Karma:   18096  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-26T22:19:51Z  
+Score:           11 points  
+Post Title:      Sen. RubenGallego: “Princes, CEOs, the most powerful men in the world are being held accountable everywhere except for the US. What Republicans are proving right now, with the help of Trump, is that if you are part of the Epstein class, you can get away with terrible things.”  
+:::::: Reddit User Comment: ======  
+Literally every place except the US is taking this seriously. 
+
+What a fucking shithole. 
+
+They arrest a Royal for the first time since 1647, a former Norwegian prime minister had a suicide attempt in his cell, and yet, it’s a Democrat hoax and not credible. 
+
+I swear, we have the dumbest people on the planet in this country. About 33% of our population. Bar fucking none.
+
+
+
+
+=============
+  
+## Reddit comment o7lh3vj
+
+    entry 91
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rfno30/sen_rubengallego_princes_ceos_the_most_powerful/o7lh3vj/  
+Comment ID:      o7lh3vj  
+Author:          smokeycat2  
+Bio:               
+Account Created: 2024-05-25T19:55:34Z  
+Link Karma:      46  
+Comment Karma:   2220  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-26T22:19:34Z  
+Score:           9 points  
+Post Title:      Sen. RubenGallego: “Princes, CEOs, the most powerful men in the world are being held accountable everywhere except for the US. What Republicans are proving right now, with the help of Trump, is that if you are part of the Epstein class, you can get away with terrible things.”  
+:::::: Reddit User Comment: ======  
+Why is this not a five alarm fire?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ANSWER: because people can not face their addiction to commenting and media consumption about Epstein and Trump. We need to be doing massive cult deprogramming of the population with free time and spare time, not commenting over and over on different pages in a reactionary mindset.
+>
+
+
+=============
+  
+## Reddit comment o7m237g
+
+    entry 92
+
+Comment URL: https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiring_warner_bros_the_farright/o7m237g/  
+Comment ID:      o7m237g  
+Author:          Metrinome  
+Bio:               
+Account Created: 2016-03-24T19:46:06Z  
+Link Karma:      26274  
+Comment Karma:   100056  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T00:11:53Z  
+Score:           930 points  
+Post Title:      With Paramount acquiring Warner Bros., the Far-Right will now own CNN, CBS, and Tiktok, and that should terrify everyone  
+:::::: Reddit User Comment: ======  
+To think you can talk to conservative people and they'll still strongly believe that it's the liberals that control the media.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "EVERYTHING IS MEDIA ECOLOGY", SEE_ALSO https://GitHub.com/RocketDerp/April14_2025/blob/main/Media_Ecology/Everything_is_ME.md
+>
+
+
+=============
+  
+## Reddit comment o7m4xed
+
+    entry 93
+
+Comment URL: https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiring_warner_bros_the_farright/o7m4xed/  
+Comment ID:      o7m4xed  
+Author:          SuperVancouverBC  
+Bio:               
+Account Created: 2016-11-28T18:56:33Z  
+Link Karma:      16788  
+Comment Karma:   126623  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T00:27:27Z  
+Score:           131 points  
+Post Title:      With Paramount acquiring Warner Bros., the Far-Right will now own CNN, CBS, and Tiktok, and that should terrify everyone  
+:::::: Reddit User Comment: ======  
+What happened to anti\-trust laws?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> JANUARY_1944_SECOND_BILL_OF_RIGHTS got ignored again in December 2024 when Luigi gun violence was favored over nonfiction serious thinking. The problem is not only health care for all. "Freedom from unfair competition and monopolies" https://en.wikipedia.org/wiki/Second_Bill_of_Rights
+>
+
+
+=============
+  
+## Reddit comment o7m2t8z
+
+    entry 94
+
+Comment URL: https://old.reddit.com/r/TwoXChromosomes/comments/1rfr0zt/with_paramount_acquiring_warner_bros_the_farright/o7m2t8z/  
+Comment ID:      o7m2t8z  
+Author:          coconutpiecrust  
+Bio:               
+Account Created: 2019-04-04T18:08:33Z  
+Link Karma:      17890  
+Comment Karma:   265817  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T00:15:53Z  
+Score:           243 points  
+Post Title:      With Paramount acquiring Warner Bros., the Far-Right will now own CNN, CBS, and Tiktok, and that should terrify everyone  
+:::::: Reddit User Comment: ======  
+It does terrify me, but I feel like I am in the minority. Most people seem to just shrug and go about their day, using the same apps and giving money/data to the same companies.
+
+Their apathy just kills me. But great for the shareholders, of course, of course.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> people make their reaction comments on media platforms like Reddit and Blueksy and wake up the next day and do it over and over again, washing away any serious topic with low-information upvoting https://en.wikipedia.org/wiki/Low_information_voter - the abandonment of serious nonfiction books is there if you look for it. OBSERVE_SOCIAL_MEDIA_AVOIDING_NONFICTION
+>
+
+
+=============
+  
+## Reddit comment o7mbl4p
+
+    entry 95
+
+Comment URL: https://old.reddit.com/r/okbuddycinephile/comments/1rfsak5/warner_bros_was_bought_by_paramount_yea_were/o7mbl4p/  
+Comment ID:      o7mbl4p  
+Author:          Strange-Mind-5562  
+Bio:               
+Account Created: 2026-01-31T09:28:37Z  
+Link Karma:      1  
+Comment Karma:   543  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T01:04:31Z  
+Score:           570 points  
+Post Title:      Warner bros was bought by paramount... yea were cooked 💀  
+:::::: Reddit User Comment: ======  
+This is wild, especially with how some of these names have been controversial recently. Hard to see how Paramount's move will go down with the public.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 26 day Reddit account. 2nd most upvoted popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7lp462
+
+    entry 96
+
+Comment URL: https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lp462/  
+Comment ID:      o7lp462  
+Author:          MUSinfonian  
+Bio:               
+Account Created: 2012-07-25T06:09:48Z  
+Link Karma:      79064  
+Comment Karma:   194512  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-26T23:00:30Z  
+Score:           717 points  
+Post Title:      Chuck Schumer: "There is a Massive Cover-up going on in the Justice Department to protect Donal Trump and people associated with Jeffrey Epstein" | Feb 26, 2026  
+:::::: Reddit User Comment: ======  
+I see that Internet Explorer personified finally booted up.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top most-upvoted popular comment. Anti-intellectual mockery. 140 characters or less commenting. SUPERFICIAL_SHALLOW_PRIZING_TRUMPISM_MAGA_VALUES This is the Epstein fandom on Reddit. Cracking jokes to joke-wash Epstein and Trump topic, a source of media entertainment and stimulation.
+>
+
+
+=============
+  
+## Reddit comment o7lnol2
+
+    entry 97
+
+Comment URL: https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lnol2/  
+Comment ID:      o7lnol2  
+Author:          CasinoKnightZone  
+Bio:               
+Account Created: 2026-01-01T03:06:39Z  
+Link Karma:      38  
+Comment Karma:   6734  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-26T22:52:58Z  
+Score:           424 points  
+Post Title:      Chuck Schumer: "There is a Massive Cover-up going on in the Justice Department to protect Donal Trump and people associated with Jeffrey Epstein" | Feb 26, 2026  
+:::::: Reddit User Comment: ======  
+Yeah Chuck, welcome to the party. We've known for years, and youve been too busy sucking off Bibi to notice.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account, joined New Years Eve. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT 2nd most popular upvoted comment. EPSTEIN_FANDOM media party on Reddit. When did Reddit have a world-reported blackout protest? ANSWER: not. Reddit has gotten coverage for blackout protests against the government, but when it comes to Trump and Epstein fandoms on Reddit - the desire is always for more shitshow shit-posting shit-commenting media shit. Not serious We The People uprising.
+>
+
+
+=============
+  
+## Reddit comment o7lrp1r
+
+    entry 98
+
+Comment URL: https://old.reddit.com/r/Epstein/comments/1rfp0na/chuck_schumer_there_is_a_massive_coverup_going_on/o7lrp1r/  
+Comment ID:      o7lrp1r  
+Author:          enpoopification_of_R  
+Bio:               
+Account Created: 2026-01-17T05:53:04Z  
+Link Karma:      233  
+Comment Karma:   7594  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-26T23:14:25Z  
+Score:           85 points  
+Post Title:      Chuck Schumer: "There is a Massive Cover-up going on in the Justice Department to protect Donal Trump and people associated with Jeffrey Epstein" | Feb 26, 2026  
+:::::: Reddit User Comment: ======  
+Ironically the DoJ Epstein library search is down. You can't even find "Epstein" on it
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. 3rd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7ldorg
+
+    entry 99
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1rfnmqk/rights_martyr_meme_defanged/o7ldorg/  
+Comment ID:      o7ldorg  
+Author:          lovebzz  
+Bio:               
+Account Created: 2022-07-02T03:17:30Z  
+Link Karma:      4434  
+Comment Karma:   35938  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-26T22:02:35Z  
+Score:           977 points  
+Post Title:      Right's Martyr Meme Defanged  
+:::::: Reddit User Comment: ======  
+The memes didn't even need to be funny or satirical. Most of them were literally quoting Kirk himself, and that was enough. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Charlie Kirk was a media celebrity. Cult media seller. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS the addiction to media is in no way being addressed, cult deprogramming of Fox News is avoided. Jen Senko's leadership ignored.
+>
+
+
+=============
+  
+## Reddit comment o7kn6zo
+
+    entry 100
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rfk6o1/team_usa_mens_hockey_team_being_treated_to/o7kn6zo/  
+Comment ID:      o7kn6zo  
+Author:          Specialist_Lock8590  
+Bio:               
+Account Created: 2021-01-14T01:43:11Z  
+Link Karma:      3  
+Comment Karma:   159524  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-26T19:55:47Z  
+Score:           None  
+Post Title:      Team USA Men's hockey team being treated to McDonald's at the White House  
+:::::: Reddit User Comment: ======  
+Trashiest White House in history!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 140 characters or less comment. Trash Realty TV society, Trash Twitter society, Trash Truth Social media society, Trash Reddit commenting society. Avoiding nonfiction. Why sin't Reddit commenting community alarmed and concerned about serious matters instead of just sports stars photographs? Celebrity photographs? Why is Doctor Bandy X. Lee's nonfiction book about the danger of Donald Trump not being quoted and repeated all over Reddit and call for his removal from office? ANSWER: because mocking inside the Trump-created total mockery is all people are concerned with. Getting notification of fresh Trump photographs on Reddit. This goes on year after year after year after year.
+>
+
+
+=============
+  
+## Reddit comment o7lhczh
+
+    entry 101
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1rfobog/now_hateful_bigots_make_use_of_ai_to_breathe_life/o7lhczh/  
+Comment ID:      o7lhczh  
+Author:          hollyanniet  
+Bio:             Hollyphoria :   
+Account Created: 2025-09-19T08:41:39Z  
+Link Karma:      1  
+Comment Karma:   25421  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-26T22:20:49Z  
+Score:           979 points  
+Post Title:      Now, hateful bigots make use of AI to breathe life into their fantasies and imaginary scenarios so they can get angry at them. Gladfully, notes are a thing, although their effectiveness is limited, unfortunately.  
+:::::: Reddit User Comment: ======  
+On top of this being weird and Ai
+
+What?
+
+I think gay man is pretty unlikely to wanna perv on women, surely removing that would make it more sensicle
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT The screen shot on Reddit is sourced from "Russia News" SURKOV_WARFARE
+>
+
+
+=============
+  
+## Reddit comment o7ljo1m
+
+    entry 102
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1rfobog/now_hateful_bigots_make_use_of_ai_to_breathe_life/o7ljo1m/  
+Comment ID:      o7ljo1m  
+Author:          StormShroomGirl  
+Bio:             ShroomyStorm : Just a queer who likes sacred plants, fungus and anarchy.  
+Account Created: 2026-02-21T22:01:10Z  
+Link Karma:      1  
+Comment Karma:   863  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-26T22:32:20Z  
+Score:           179 points  
+Post Title:      Now, hateful bigots make use of AI to breathe life into their fantasies and imaginary scenarios so they can get angry at them. Gladfully, notes are a thing, although their effectiveness is limited, unfortunately.  
+:::::: Reddit User Comment: ======  
+The whole world these people live in is making things up to get upset about.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 day Reddit account. 2nd top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7m17lv
+
+    entry 103
+
+Comment URL: https://old.reddit.com/r/Epstein/comments/1rfr0ax/breaking_doj_just_locked_the_epstein_library_to/o7m17lv/  
+Comment ID:      o7m17lv  
+Author:          amoreorange790  
+Bio:               
+Account Created: 2025-08-23T22:38:26Z  
+Link Karma:      12649  
+Comment Karma:   3182  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-27T00:07:03Z  
+Score:           1196 points  
+Post Title:      Breaking: DOJ Just locked the Epstein Library to the public!  
+:::::: Reddit User Comment: ======  
+Yup, it looks like they shut it down. None of my search results are getting anything.
+
+I just went and looked it up manually, it's doing the same thing too.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 6 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7mej0a
+
+    entry 104
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mej0a/  
+Comment ID:      o7mej0a  
+Author:          Mister_Pickl3s  
+Bio:               
+Account Created: 2020-06-17T11:21:55Z  
+Link Karma:      11807  
+Comment Karma:   9773  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T01:21:38Z  
+Score:           3983 points  
+Post Title:      I kiss the ring and you give me this…Tkachuk gets to put through the Alt Reality Machine we call the White House  
+:::::: Reddit User Comment: ======  
+Tkachuk let Kash in the locker room, treated him like a teammate, laughed as Trump dissed the women’s team, went to the White House to kiss the ring and even went to the State of the Union to be a political patsy only to return to Canada…where he works…to have the White House push him under the bus for political MAGA points
+
+He lost a Nation’s rapture for a day of eating McD’s at the White House…
+
+
+
+
+=============
+  
+## Reddit comment o7mfzgb
+
+    entry 105
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mfzgb/  
+Comment ID:      o7mfzgb  
+Author:          Leather-Squirrel-421  
+Bio:               
+Account Created: 2022-12-24T23:38:00Z  
+Link Karma:      29131  
+Comment Karma:   115719  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T01:30:02Z  
+Score:           820 points  
+Post Title:      I kiss the ring and you give me this…Tkachuk gets to put through the Alt Reality Machine we call the White House  
+:::::: Reddit User Comment: ======  
+Got what he deserved for being the tool he is.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> if being a tool of Putin and Trump is a crime where people deserve negative outcomes, what about all the social media users doing everything they can to avoid promoting Dr. Bandy X Lee's nonfiction books since October 3, 2017 and having We The People counter Putin and Trump in an information war?
+>
+
+
+=============
+  
+## Reddit comment o7mf2nx
+
+    entry 106
+
+Comment URL: https://old.reddit.com/r/LeopardsAteMyFace/comments/1rfsrol/i_kiss_the_ring_and_you_give_me_thistkachuk_gets/o7mf2nx/  
+Comment ID:      o7mf2nx  
+Author:          NeinRegrets  
+Bio:             [REDACTED]  
+Account Created: 2019-07-19T05:23:19Z  
+Link Karma:      16445  
+Comment Karma:   193540  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T01:24:48Z  
+Score:           1286 points  
+Post Title:      I kiss the ring and you give me this…Tkachuk gets to put through the Alt Reality Machine we call the White House  
+:::::: Reddit User Comment: ======  
+“That’s not who I am.” 
+
+Lol coulda fooled me, boot\-licking puck boy.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "LOL", Trump White House created media is so entertaining to TRUMP_FANDOM
+>
+
+
+=============
+  
+## Reddit comment o7myakp
+
+    entry 107
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_committee_asked_about_ufos/o7myakp/  
+Comment ID:      o7myakp  
+Author:          yeyjordan  
+Bio:               
+Account Created: 2016-07-24T22:24:56Z  
+Link Karma:      76  
+Comment Karma:   181584  
+Comment Age:     10 hours ago  
+Timestamp:       2026-02-27T03:16:32Z  
+Score:           6472 points  
+Post Title:      Clinton says Epstein committee asked about UFOs and “Pizzagate”  
+:::::: Reddit User Comment: ======  
+They finally found the elite pedo ring they've talked about for over a decade and still fall back on the "Democrat pizzaria" bullshit instead of what is staring them down from the oval office.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SURKOV_WARFARE
+>
+
+
+=============
+  
+## Reddit comment o7mv0gk
+
+    entry 108
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_committee_asked_about_ufos/o7mv0gk/  
+Comment ID:      o7mv0gk  
+Author:          RealLavender  
+Bio:             He's as tall as you can be before it's weird. 🍁  
+Account Created: 2020-04-10T04:45:36Z  
+Link Karma:      200  
+Comment Karma:   66913  
+Comment Age:     11 hours ago  
+Timestamp:       2026-02-27T02:56:58Z  
+Score:           594 points  
+Post Title:      Clinton says Epstein committee asked about UFOs and “Pizzagate”  
+:::::: Reddit User Comment: ======  
+Was Epstein an alien? Was his penis actually a slice of pizza? These are the facts Americans need to know! Forget about the President raping kids. Rape island may have been an alien headquarters!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SATIRE_SARCASM_WASHING
+>
+
+
+=============
+  
+## Reddit comment o7mvula
+
+    entry 109
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1rfumdl/clinton_says_epstein_committee_asked_about_ufos/o7mvula/  
+Comment ID:      o7mvula  
+Author:          PrestigiousSeat76  
+Bio:               
+Account Created: 2024-11-12T18:47:16Z  
+Link Karma:      1  
+Comment Karma:   89703  
+Comment Age:     10 hours ago  
+Timestamp:       2026-02-27T03:01:50Z  
+Score:           2220 points  
+Post Title:      Clinton says Epstein committee asked about UFOs and “Pizzagate”  
+:::::: Reddit User Comment: ======  
+Goddamn republicans are stupid.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 4 words, under 140 character thinking limit. HIGH_SPEED_REACTIONARY_MINDSETS
+>
+
+
+=============
+  
+## Reddit comment o7on5pg
+
+    entry 110
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1rg3t85/mcgowan_theres_three_people_mentioned_most_in_the/o7on5pg/  
+Comment ID:      o7on5pg  
+Author:          OkFinish3822  
+Bio:               
+Account Created: 2025-12-26T16:43:40Z  
+Link Karma:      1  
+Comment Karma:   4150  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T11:31:15Z  
+Score:           70 points  
+Post Title:      McGowan: There's three people mentioned most in the Epstein files: Jeffrey Epstein, Ghislaine Maxwell and Donald Trump. But we're deposing Hillary Clinton?  
+:::::: Reddit User Comment: ======  
+Melania was 18 and Don was 43 when Epstein introduced her to Don in NY. And she was a regular to Mar a Lago after that. Why isn't she being deposed? Post an answer, it is way past time for the snark . . . 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7nmdmi
+
+    entry 111
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rfwxk7/maga_billionaires_win_battle_to_buy_cnn_and_turn/o7nmdmi/  
+Comment ID:      o7nmdmi  
+Author:          QuiGonColdGin  
+Bio:               
+Account Created: 2020-12-05T20:41:39Z  
+Link Karma:      2859  
+Comment Karma:   64467  
+Comment Age:     8 hours ago  
+Timestamp:       2026-02-27T06:01:33Z  
+Score:           1980 points  
+Post Title:      MAGA Billionaires Win Battle to Buy CNN and Turn It Trumpy  
+:::::: Reddit User Comment: ======  
+We are living in the most corrupt period in this nation's history. And it's right out in the open.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People still can't point at the Apple iPhone year 2007, and the July 6, 2011 all-in that Trump did with Twitter 140 characters. https://theoutline.com/post/2445/trump-s-first-real-tweet-was-on-july-6-2011 Surkov won since March 2013.
+>
+
+
+=============
+  
+## Reddit comment o7npld3
+
+    entry 112
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rfwxk7/maga_billionaires_win_battle_to_buy_cnn_and_turn/o7npld3/  
+Comment ID:      o7npld3  
+Author:          pile_of_fish  
+Bio:               
+Account Created: 2022-05-14T01:29:00Z  
+Link Karma:      58  
+Comment Karma:   15403  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-27T06:27:44Z  
+Score:           None  
+Post Title:      MAGA Billionaires Win Battle to Buy CNN and Turn It Trumpy  
+:::::: Reddit User Comment: ======  
+We are honestly just in 2000s Russia at this point.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Russia described October 2011 media-driven. MAXIMUM_PUTINIZATION SEE_ALSO: https://github.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
+>
+
+
+=============
+  
+## Reddit comment o7p2aa7
+
+    entry 113
+
+Comment URL: https://old.reddit.com/r/circled/comments/1rg67lt/wrong_first_lady_melania_has_been_photographed/o7p2aa7/  
+Comment ID:      o7p2aa7  
+Author:          delusiongenerator  
+Bio:               
+Account Created: 2016-04-07T01:09:35Z  
+Link Karma:      8052  
+Comment Karma:   83343  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T13:17:12Z  
+Score:           35 points  
+Post Title:      Wrong first lady! Melania has been photographed with Epstein and Maxwell multiple times!  
+:::::: Reddit User Comment: ======  
+🎭It’s all stagecraft with these motherfuckers 🎭
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Surkovian governing. HOW_SURKOV_WON - Reddit users eat it up. Entertainment, drama. OBSERVE: Reddit users commenting on the shit-show with shit-commenting and shit-posting and zero effort to organize or call for any form of intellectual resistance or education campaign of the general public. Notably the Reddit commenting avoids any mention of books, author names, off-Reddit links on topics of: Trump mental health (Dr. Bandy X Lee and 27 contributors to a book published October 3, 2017), Jen Senko nonfiction film on brainwashing, information warfare topics of Putin and Russia (war against reality with fiction).
+>
+
+
+=============
+  
+## Reddit comment o7pyvjm
+
+    entry 114
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pyvjm/  
+Comment ID:      o7pyvjm  
+Author:          GaimeGuy  
+Bio:               
+Account Created: 2011-12-31T02:18:49Z  
+Link Karma:      744  
+Comment Karma:   320085  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T16:06:08Z  
+Score:           None  
+Post Title:      It Can Now be Plainly Said: Trump is Planning a November Coup d’État  
+:::::: Reddit User Comment: ======  
+Again
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Extremely important serious topic, one single word, not even 140 character mindset. Twitter-think nation USA. This is the most popular comment, the most upvoted by low-information upvoters. https://en.wikipedia.org/wiki/Low_information_voter HOW_SURKOV_WON - Reddit users eat it up. Shit-commenting shit-posting leader Donald Trump inspires this ignorance celebration.
+>
+
+
+=============
+  
+## Reddit comment o7pzfyn
+
+    entry 115
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pzfyn/  
+Comment ID:      o7pzfyn  
+Author:          Romantic_Piscean  
+Bio:               
+Account Created: 2025-12-19T23:31:13Z  
+Link Karma:      78  
+Comment Karma:   3533  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T16:08:50Z  
+Score:           None  
+Post Title:      It Can Now be Plainly Said: Trump is Planning a November Coup d’État  
+:::::: Reddit User Comment: ======  
+There is zero chance that Trump would allow either chamber of Congress to be held by the Democrats. He understands the stakes. If the choice for Trump is either a Democratic controlled House or Senate and throwing the country into a Constitutional crisis over the rejection of elections, we know what he'll choose. November, in many ways, is a final test as to whether we even live in a democracy anymore.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> There is such a deep misunderstanding of what Putin's Saint Petersburg Internet Research Agency and Cambridge Analytica have done to "Hearts and Minds". This is every hour of every day. Why are Reddit users NOT promoting Dr. Bandy X Lee's 27 leaders since October 3, 2017? ANSWER: hearts and minds are conditioned to self-harm the USA through simplistic symbolic thinking. Election day win is symbolic. The brain rot is EVERY HOUR of EVERY DAY. And the answer to brain rot is serious nonfiction adult education, teaching, learning, including Dr Lee's nonfiction books on paper! ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+>
+
+
+=============
+  
+## Reddit comment o7pzf68
+
+    entry 116
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgapzn/it_can_now_be_plainly_said_trump_is_planning_a/o7pzf68/  
+Comment ID:      o7pzf68  
+Author:          DoubtSubstantial5440  
+Bio:               
+Account Created: 2023-12-23T15:11:20Z  
+Link Karma:      1064  
+Comment Karma:   157818  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T16:08:44Z  
+Score:           None  
+Post Title:      It Can Now be Plainly Said: Trump is Planning a November Coup d’État  
+:::::: Reddit User Comment: ======  
+I mean no shit? Are Americans going to push back massively when he tries another coup, that’s the real question
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "Are Americans going to push back massively **when he tries** another", **WHEN**, FUTURE!!! RESISTING_WHAT_EXACTLY ? People think the crisis is going to happen in future November 2026 - without any concern to July 4, 2026 thinking systems of 250 years. This is all about winning hearts and minds to flock to shit-commenting, shit-posting, shit-media mythological-based fiction Surkovian governing systems. EVERY HOUR of EVERY DAY. The psychological denial is sickening that people think the problem is voting booths and now low-information upvoting https://en.wikipedia.org/wiki/Low_information_voter on every media platform! Journalists and writers with any nonfiction serious teaching topics have been abandoned in favor of fiction addictions! Brain rot every day all day, USA!
+>
+
+
+=============
+  
+## Reddit comment o7qae8f
+
+    entry 117
+
+Comment URL: https://old.reddit.com/r/circled/comments/1rg7vyf/breaking_trumps_doj_removed_this_photo_from_the/o7qae8f/  
+Comment ID:      o7qae8f  
+Author:          hoowins  
+Bio:               
+Account Created: 2021-08-08T22:09:48Z  
+Link Karma:      1  
+Comment Karma:   21835  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T17:00:05Z  
+Score:           1 point  
+Post Title:      BREAKING: Trump’s DOJ removed this photo from the Epstein Files.  
+:::::: Reddit User Comment: ======  
+I assume he will say his wife just wasn’t in the photo. Fine. But let her testify under oath on that one question.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> EPSTEIN_FANDOM GULLIBLE_FANDOM Ask yourself why are people behaving on Reddit as if taking his children to Epstein Island with his wife is somehow better? It seems worse to me. Taking children to the powerfully manipulative and pants-off-charming Jeffery Epstein...
+>
+
+
+=============
+  
+## Reddit comment o7p1kaf
+
+    entry 118
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1rg69c5/they_just_lie_about_everything/o7p1kaf/  
+Comment ID:      o7p1kaf  
+Author:          ObserbAbsorb  
+Bio:             TheRavensEye : See Like a Raven  
+Account Created: 2025-11-02T23:33:02Z  
+Link Karma:      199882  
+Comment Karma:   16479  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-27T13:12:52Z  
+Score:           657 points  
+Post Title:      They just lie about everything.  
+:::::: Reddit User Comment: ======  
+
+> "Here are the FACTS"
+
+*Gets community noted*
+
+You can't make this shit up man 🤣
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 3 month Reddit account. Top-upvoted most popular comment. Downplaying the crisis. Claiming that government's can't fabricate exhaustive ANTI_REALITY warfare. Gullible Reddit users eat up this 3-month account downplaying and minimizing with 140 character Tweet-thinking. Twitter-screen shot. People keep barking at tree after tree, "community note" /r/GetNoted correction after correction without addressing DECEPTION_LEADERSHIP is the Surkovian Governing system and needs to be addressed through DANGER_ALERT_CALL_TO_INTELLECTUAL_ARMS_BOOK_CRAM_SESSIONS
+>
+
+
+=============
+  
+## Reddit comment o7p3c8g
+
+    entry 119
+
+Comment URL: https://old.reddit.com/r/GetNoted/comments/1rg69c5/they_just_lie_about_everything/o7p3c8g/  
+Comment ID:      o7p3c8g  
+Author:          kon---  
+Bio:             kon :   
+Account Created: 2021-06-25T13:56:10Z  
+Link Karma:      6800  
+Comment Karma:   341865  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T13:23:23Z  
+Score:           235 points  
+Post Title:      They just lie about everything.  
+:::::: Reddit User Comment: ======  
+They can't help it. Other than the complete absence of conscience, they have no ability to avoid being full of shit. 
+
+They are positively averse to factual truth. They lie to us, they lie to each other, they lie to themselves. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2nd most popular comment message. Boils down to: GIVE_UP_ANTI_EDUCATION_ANTI_TEACH_ANTI_PROGRESS give-up, do nothing, don't organize teaching and education, don't promote Dr. Bandy X Lee's 27 leaders, don't promote Jen Senko, just comment and keep commenting over and over and over every year about Fox News HDTV bullshit, White House Twitter media bullshit, and never mention Jen Senko's nonfiction year 2015 film about media bullshit. Just keep adding more and more popular commenting that says nothing can be done, give up. That is what Reddit community does to normalize Trumpism / MAGA / Twitter-thinking with screen shots off Twitter.
+>
+
+
+=============
+  
+## Reddit comment o7ow1fq
+
+    entry 120
+
+Comment URL: https://old.reddit.com/r/inflation/comments/1rg5bwb/the_ideal_temperature_range_for_banana_plants/o7ow1fq/  
+Comment ID:      o7ow1fq  
+Author:          baronmunchausen2000  
+Bio:               
+Account Created: 2016-09-28T13:08:52Z  
+Link Karma:      661  
+Comment Karma:   42338  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-27T12:37:04Z  
+Score:           516 points  
+Post Title:      The ideal temperature range for banana plants falls between 78F to 84F. They need tropical, frost-free, and, ideally, frost-free conditions for 10-15 months to produce fruit. This is taught in Grade 8 textbook in US public schools. But lutnick doesn’t know it.  
+:::::: Reddit User Comment: ======  
+Isn't Nutlick the mastermind behind this whole tariff mess? His sons are printing money off of this. Dump is just the useful idiot.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ASK YOURSELF: how long has this shit been going on with the front page of every media system? How long has this topic been hashed and rehashed. But the MOST POPULAR most UPVOTED low-information voters on Reddit made this comment number one.  https://en.wikipedia.org/wiki/Low_information_voter ANTI_WIKI_ANTI_FAQ there is no RTFM concern, no Read-the-FAQ concern, no off-Reddit link to a 13 minute recap of the current situation and players. Instead there is **engaging** questions on Reddit media. "The Media" on Reddit asking trivial basic questions with no concern that We The People are so engaged with anti-understanding. This is Trumpism fandom, fandom of Trump ignorance. People are not resisting the ignorance by creating a FAQ or Wiki, people are engaged with the questions...
+>
+
+
+=============
+  
+## Reddit comment o7pd7qs
+
+    entry 121
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rg7rq6/panic_at_cnn_as_trump_and_his_buddies_plot_to/o7pd7qs/  
+Comment ID:      o7pd7qs  
+Author:          Antique-Echidna-1600  
+Bio:             Description goes here   
+Account Created: 2023-12-04T02:22:31Z  
+Link Karma:      24656  
+Comment Karma:   189334  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T14:18:31Z  
+Score:           None  
+Post Title:      ‘Panic’ at CNN as Trump and His Buddies Plot to Turn Network MAGA  
+:::::: Reddit User Comment: ======  
+Please check off "Control of Media" from your signs of fascism bingo card.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "BINGO game", a gamers community. GAMERS_SIMULACRA Constantly treating real world reality as an entertainment... often claiming Putin isn't playing 16 dimensional chess with NATO using Trump as a chess piece.  
+> 
+> * July 19, 2016 Reddit: "caused it to suddenly come roaring to the forefront of the incessantly repeated memes on r/politics ." this is BEFORE win of Election in November 2016. https://old.reddit.com/r/OutOfTheLoop/comments/4tm5m2/what_is_the_originsource_of_the_4d_chess_comments/
+> * November 9, 2016 Reddit: "Anon on Trump's 4D Chess" https://old.reddit.com/r/4chan/comments/5c0gq3/anon_on_trumps_4d_chess/
+> 
+> DENIAL_ABOUNDS that Putin is the one playing the chess against NATO. SURKOVIAN_CHESS 
+> 
+> Reddit is a Trump-fandom that is gamer-washing entertainment-washing amusement-washing Donald Trump as a source of thrilling fascism BINGO. This is not resisting Donald Trump, this is attraction to Trumpism and Putinism.
+>
+
+
+=============
+  
+## Reddit comment o7pe00o
+
+    entry 122
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rg7rq6/panic_at_cnn_as_trump_and_his_buddies_plot_to/o7pe00o/  
+Comment ID:      o7pe00o  
+Author:          33GoldenGod  
+Bio:               
+Account Created: 2026-02-07T14:32:51Z  
+Link Karma:      1  
+Comment Karma:   3203  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T14:22:49Z  
+Score:           None  
+Post Title:      ‘Panic’ at CNN as Trump and His Buddies Plot to Turn Network MAGA  
+:::::: Reddit User Comment: ======  
+This is why independent media is so crucial right now. Support your journalists and podcasters right now that don’t bend the knee.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 20 day Reddit account, 2nd most upvoted popular comment. Promoting everyone all go get FURTHER on different pages of media. Exactly the cause of the problem with social media consumers all flocking to extreme low-effort commenting with no author identity, no book citations, anti-book attitudes of Reddit. Not facing the widespread fiction addiction problems in USA. ASK YOURSELF: why is Reddit commenting section not quoting and repeating Dr. Bandy X Lee's 27 leaders since October 3, 2017? People are addicted to the constant flow of TRUMP NEWS and commenting on a TRUMP POSTING on Reddit media! They aren't resisting the addiction to fiction and addiction to Trump as a source of something to create low-value Reddit comments about. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7ql1nw
+
+    entry 123
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7ql1nw/  
+Comment ID:      o7ql1nw  
+Author:          sx88  
+Bio:               
+Account Created: 2020-11-10T12:30:41Z  
+Link Karma:      1  
+Comment Karma:   120986  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T17:50:57Z  
+Score:           310 points  
+Post Title:      Morgan Freeman on Donald Trump: "We have somebody sitting in the White House who's leading us down a shithole. I can't understand how a convicted felon gets to be president. How do you do that? It iust doesn't make sense to me"  
+:::::: Reddit User Comment: ======  
+he asked a great question and I'm also amazed
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> ANSWER: It does not make sense to Morgan Freeman because people are not studying Surkov information warfare and Surkovian governing methods since year 2013. COMPREHENDING_UNDERSTANDING
+>
+
+
+=============
+  
+## Reddit comment o7ql6lr
+
+    entry 124
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7ql6lr/  
+Comment ID:      o7ql6lr  
+Author:          fulfernufer  
+Bio:               
+Account Created: 2021-04-19T18:45:46Z  
+Link Karma:      10205  
+Comment Karma:   24946  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T17:51:36Z  
+Score:           124 points  
+Post Title:      Morgan Freeman on Donald Trump: "We have somebody sitting in the White House who's leading us down a shithole. I can't understand how a convicted felon gets to be president. How do you do that? It iust doesn't make sense to me"  
+:::::: Reddit User Comment: ======  
+“I HATE MORGAN FREEMAN” TS post in 3\..2\..
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Truth Social fandom on Reddit. TRUMP_FANDOM anticipation the next media content delivery. ROUTINE_COMMENTING_DESCRIBING_IS_NOT_INTELLECTUALLY_RESISTING
+>
+
+
+=============
+  
+## Reddit comment o7qme56
+
+    entry 125
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rgdhkh/morgan_freeman_on_donald_trump_we_have_somebody/o7qme56/  
+Comment ID:      o7qme56  
+Author:          JenIsSalty  
+Bio:               
+Account Created: 2023-04-05T02:57:47Z  
+Link Karma:      4  
+Comment Karma:   25573  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T17:57:18Z  
+Score:           99 points  
+Post Title:      Morgan Freeman on Donald Trump: "We have somebody sitting in the White House who's leading us down a shithole. I can't understand how a convicted felon gets to be president. How do you do that? It iust doesn't make sense to me"  
+:::::: Reddit User Comment: ======  
+It happened because republicans believe that Trump never actually broke the law. That the court cases and convictions are just the evil democrats trying to destroy a good man. They refuse to acknowledge Trump's amoral behaviour.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> UNDERSTANDING_TRUMPISM This very popular Reddit comment makes no effort to give an author name for more information, an off-Reddit link. It just gives low-information upvoting content. https://en.wikipedia.org/wiki/Low_information_voter the addiction to high-speed information systems delivery is not grasped on Reddit. Trump provides constant stimulation to Reddit audiences, MAGA content fandoms.
+>
+
+
+=============
+  
+## Reddit comment o7ru64z
+
+    entry 126
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1rgjcio/fake_black_maga_account_busted/o7ru64z/  
+Comment ID:      o7ru64z  
+Author:          Realistic_Ride_2032  
+Bio:               
+Account Created: 2025-10-19T10:57:17Z  
+Link Karma:      18  
+Comment Karma:   16325  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T21:31:42Z  
+Score:           160 points  
+Post Title:      Fake Black MAGA Account Busted  
+:::::: Reddit User Comment: ======  
+No shockers here…
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Downplaying the media Twitter crisis of USA society. 3 word comment,not even 140 characters. Reddit account is 4 months old and got the MOST UPVOTED popular comment on this posting. Low-information upvoters are not resisting the Truth Social and Twitter simplistic thinking programming. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT This Reddit comment is cheering on the content, in no way is it resisting or calling for We The People education in meme addictions and media addictions. Ignorance celebrations abound.
+>
+
+
+=============
+  
+## Reddit comment o7rvcnv
+
+    entry 127
+
+Comment URL: https://old.reddit.com/r/BlackPeopleofReddit/comments/1rgjcio/fake_black_maga_account_busted/o7rvcnv/  
+Comment ID:      o7rvcnv  
+Author:          Unusual-Ideal-3509  
+Bio:             19 | Trash pandas are the worst people, I loveee raccoons tho | “This devastation left your cities to be burned,”| 1,000 harmless snakes will never outweigh 100,000 harmful snakes js |   
+Account Created: 2025-03-27T14:23:33Z  
+Link Karma:      432  
+Comment Karma:   56346  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T21:37:37Z  
+Score:           48 points  
+Post Title:      Fake Black MAGA Account Busted  
+:::::: Reddit User Comment: ======  
+Digital blackface is everywhere
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o7rbiop
+
+    entry 128
+
+Comment URL: https://old.reddit.com/r/PoliticalHumor/comments/1rggzrl/average_republican/o7rbiop/  
+Comment ID:      o7rbiop  
+Author:          MurkDiesel  
+Bio:               
+Account Created: 2018-09-24T22:44:37Z  
+Link Karma:      28097  
+Comment Karma:   107981  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-27T19:57:56Z  
+Score:           309 points  
+Post Title:      Average Republican  
+:::::: Reddit User Comment: ======  
+they still don't give a shit about you even when it happens to them
+
+they'll just want special treatment for themselves and their loved ones
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Anti-PLURIBUS. COLLECTIVELY_INTELLIGENT_PLURIBUS_LEARNING is essential.
+>
+
+
+=============
+  
+## Reddit comment o7rbifm
+
+    entry 129
+
+Comment URL: https://old.reddit.com/r/PoliticalHumor/comments/1rggzrl/average_republican/o7rbifm/  
+Comment ID:      o7rbifm  
+Author:          BrandonLeeOfficial  
+Bio:               
+Account Created: 2024-05-31T19:42:25Z  
+Link Karma:      36511  
+Comment Karma:   71358  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-27T19:57:54Z  
+Score:           84 points  
+Post Title:      Average Republican  
+:::::: Reddit User Comment: ======  
+🗣️ **Throat Goat**™
+===================
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> EPSTEIN_FANDOM loves SLUT SHAMING. Instead of promoting women like Dr. Bandy X Lee and Jen Senko as relevant and critical important topics to rescue USA right now, ASAP.... slut-shaming women for sharing sex with men.
+>
+
+
+=============
+  
+## Reddit comment o7san5j
+
+    entry 130
+
+Comment URL: https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7san5j/  
+Comment ID:      o7san5j  
+Author:          Chocopenguin85  
+Bio:               
+Account Created: 2021-01-17T02:39:21Z  
+Link Karma:      192  
+Comment Karma:   9125  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T22:57:44Z  
+Score:           530 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+He's entitled to have anything he says used against him in a court of law, as well as the right to an attorney. Finding one may be difficult due its habit of making attorneys get attorneys.
+
+
+
+
+=============
+  
+## Reddit comment o7s6k6v
+
+    entry 131
+
+Comment URL: https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7s6k6v/  
+Comment ID:      o7s6k6v  
+Author:          CrispyMiner  
+Bio:             Crispy : 23yrs, amateur photographer  
+Account Created: 2015-08-27T00:58:11Z  
+Link Karma:      1410475  
+Comment Karma:   513012  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T22:35:41Z  
+Score:           2421 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Trump is entitled to absolutely nothing. Our democracy is dangling by a thread and for what? All of this for a pedophile rapist?
+
+
+
+
+=============
+  
+## Reddit comment o7sbl38
+
+    entry 132
+
+Comment URL: https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7sbl38/  
+Comment ID:      o7sbl38  
+Author:          pattydickens  
+Bio:               
+Account Created: 2018-02-03T04:13:18Z  
+Link Karma:      5761  
+Comment Karma:   274539  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T23:02:56Z  
+Score:           180 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+He should do prison time instead. I feel that we are entitled to this as law\-abiding people who aren't pedophiles or cult members.
+
+
+
+
+=============
+  
+## Reddit comment o7sbaf6
+
+    entry 133
+
+Comment URL: https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7sbaf6/  
+Comment ID:      o7sbaf6  
+Author:          Fast-Audience-6828  
+Bio:               
+Account Created: 2025-02-04T13:20:20Z  
+Link Karma:      1  
+Comment Karma:   15035  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T23:01:17Z  
+Score:           587 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+They are trying to normalize this idea the constitution is clear two terms max precisely because a dictator like Trump would come to power someday. Although our guard rails were fragile as fuck apparently.
+
+
+
+
+=============
+  
+## Reddit comment o7sdhpy
+
+    entry 134
+
+Comment URL: https://old.reddit.com/r/law/comments/1rgl7ed/trump_maybe_we_do_one_more_term_should_we_do_one/o7sdhpy/  
+Comment ID:      o7sdhpy  
+Author:          ARazorbacks  
+Bio:               
+Account Created: 2015-11-03T12:50:46Z  
+Link Karma:      1403  
+Comment Karma:   122291  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-27T23:13:42Z  
+Score:           152 points  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Never forget \- Trump is going to tell your MAGA neighbor down the street to fight you to make this happen.
+
+
+
+
+=============
+  
+## Reddit comment o7s1024
+
+    entry 135
+
+Comment URL: https://old.reddit.com/r/LetsDiscussThis/comments/1rgjvdi/ice_agent_tosses_an_elderly_american_man_to_the/o7s1024/  
+Comment ID:      o7s1024  
+Author:          Indespectamentations  
+Bio:             Bill Braskey :   
+Account Created: 2022-11-20T17:51:11Z  
+Link Karma:      1  
+Comment Karma:   17177  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T22:06:11Z  
+Score:           144 points  
+Post Title:      ICE agent tosses an elderly American man to the ground, causing him to bleed from his head  
+:::::: Reddit User Comment: ======  
+Maga's are cheering. They want all of us that don't agree with them to be assaulted, arrested and ended.
+
+
+
+
+=============
+  
+## Reddit comment o7rpfap
+
+    entry 136
+
+Comment URL: https://old.reddit.com/r/movies/comments/1rghyex/netflix_says_paramount_has_paid_28_billion/o7rpfap/  
+Comment ID:      o7rpfap  
+Author:          Saltypeon  
+Bio:               
+Account Created: 2017-12-08T15:56:05Z  
+Link Karma:      1764  
+Comment Karma:   83483  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-27T21:08:08Z  
+Score:           None  
+Post Title:      Netflix Says Paramount Has Paid $2.8 Billion Breakup Fee for Warner Bros. Discovery Deal  
+:::::: Reddit User Comment: ======  
+The world has descended into madness.
+
+A company worth 15bn, that has 15bn in debt is paying 2\.8bn, so it can buy a company that has 32bn in debt for 111bn which was valued at 82bn just weeks ago, in a deal funded with 60bn in debt. 
+
+So when its done, Paramount will have 15bn and WB 92bn in debt.
+
+The only games and movies coming out of that set up is "Asset strip simulator" and "Closure tycoon business sreeamlining".
+
+
+
+
+=============
+  
+## Reddit comment o7spa95
+
+    entry 137
+
+Comment URL: https://old.reddit.com/r/law/comments/1rgm095/trump_says_hes_thinking_of_putting_republican/o7spa95/  
+Comment ID:      o7spa95  
+Author:          ContentDetective  
+Bio:               
+Account Created: 2018-07-17T03:04:05Z  
+Link Karma:      71330  
+Comment Karma:   127714  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T00:22:21Z  
+Score:           15 points  
+Post Title:      Trump says he's thinking of putting Republican Senator Ted Cruz on Supreme Court  
+:::::: Reddit User Comment: ======  
+Is that a real quote? I’d actually believe it. I cant open the paywalled article.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> WIDE_RADICAL_DOUBT_ABOUT_REAL
+>
+
+
+=============
+  
+## Reddit comment o7sd4wx
+
+    entry 138
+
+Comment URL: https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sd4wx/  
+Comment ID:      o7sd4wx  
+Author:          Andovars_Ghost  
+Bio:             Just a friendly ghost (most of the time) of an old account.  Former USAF officer and HS teacher.  Keeping my head down and trying to stay out of trouble in SoCal.  
+Account Created: 2024-09-05T15:28:21Z  
+Link Karma:      2489  
+Comment Karma:   177350  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T23:11:40Z  
+Score:           156 points  
+Post Title:      Catholic Bishops Warn the Supreme Court That Trump Is Threatening the “Moral Foundations of American Society”  
+:::::: Reddit User Comment: ======  
+If only those Catholic Justices actually cared what the Church or even Jesus said.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> <img width="948" height="1133" alt="image" src="https://github.com/user-attachments/assets/845e8d7e-d9c8-4c15-8ba3-80218793fdb4" />
+> 
+> February 28... if only American We The People gave a single shit about what Dr. Martin Luther King Jr. said on February 28, 1954. REMEDIAL_MORALITY LEVANT_MONOMYTH_CRISIS 
+> 
+> NEW_OPERA_NAME #WTFJesus   
+> Social post { https://bsky.app/profile/roundsparrow.bsky.social/post/3mfvcmzcxv22j https://autistics.life/@RoundSparrow/116146189748401404 }
+>
+
+
+=============
+  
+## Reddit comment o7skff9
+
+    entry 139
+
+Comment URL: https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7skff9/  
+Comment ID:      o7skff9  
+Author:          RaindropsInMyMind  
+Bio:             33, love to talk football and love cute animal pictures!  What else is Reddit for?  Go Birds!  
+Account Created: 2020-04-02T17:44:33Z  
+Link Karma:      1330  
+Comment Karma:   291048  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T23:54:03Z  
+Score:           7 points  
+Post Title:      Catholic Bishops Warn the Supreme Court That Trump Is Threatening the “Moral Foundations of American Society”  
+:::::: Reddit User Comment: ======  
+There are, and will be a lot of people who are really late to the party in pointing out things like this. It was incredibly obvious to so many of us from the very beginning, although it’s escalated astronomically. Still, anyone who realizes it and points it out especially publicly is a good thing and should be encouraged.
+
+I just watched a great holocaust documentary (the Ken Burns one) I’ve consumed holocaust content for a long time but it just feels a little different now. At the end of the documentary they actually showed a guy on J6 with a black Auschwitz shirt on that said “Auschwitz work sets you free.” He was in the capitol of the United States on J6 trying to overturn the government because of Trump. I’m sure he received a pardon like the rest of them if he was charged. That’s just one small way in which Trump is harming the moral foundations of this country. These are the types of people he has empowered.
+
+
+
+
+=============
+  
+## Reddit comment o7simr4
+
+    entry 140
+
+Comment URL: https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7simr4/  
+Comment ID:      o7simr4  
+Author:          throwawaysscc  
+Bio:             A bit of male ingenuity   
+Account Created: 2019-02-20T19:15:21Z  
+Link Karma:      27247  
+Comment Karma:   65398  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T23:43:37Z  
+Score:           3 points  
+Post Title:      Catholic Bishops Warn the Supreme Court That Trump Is Threatening the “Moral Foundations of American Society”  
+:::::: Reddit User Comment: ======  
+We need moral leaders, yet our politics often elevate the amoral among us.
+
+
+
+
+=============
+  
+## Reddit comment o7sgl1g
+
+    entry 141
+
+Comment URL: https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sgl1g/  
+Comment ID:      o7sgl1g  
+Author:          jgmiller24094  
+Bio:               
+Account Created: 2020-12-12T19:10:10Z  
+Link Karma:      83  
+Comment Karma:   3144  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T23:31:34Z  
+Score:           9 points  
+Post Title:      Catholic Bishops Warn the Supreme Court That Trump Is Threatening the “Moral Foundations of American Society”  
+:::::: Reddit User Comment: ======  
+Good, this pope has a target and that is Trump and his goons. Little by little he's been pushing things using US bishops and others. He's not going to back down, every week it seems like he amps it up a bit more.
+
+
+
+
+=============
+  
+## Reddit comment o7sch1c
+
+    entry 142
+
+Comment URL: https://old.reddit.com/r/scotus/comments/1rgly8z/catholic_bishops_warn_the_supreme_court_that/o7sch1c/  
+Comment ID:      o7sch1c  
+Author:          DarkArmyLieutenant  
+Bio:             DarkArmyCaptain : Everything stays, just how you left it...  
+Account Created: 2025-03-11T17:13:23Z  
+Link Karma:      22723  
+Comment Karma:   95077  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T23:07:55Z  
+Score:           21 points  
+Post Title:      Catholic Bishops Warn the Supreme Court That Trump Is Threatening the “Moral Foundations of American Society”  
+:::::: Reddit User Comment: ======  
+I mean I guess a bunch of child rapists would be the authority on other child rapists.
+
+
+
+
+=============
+  
+## Reddit comment o7th7i3
+
+    entry 143
+
+Comment URL: https://old.reddit.com/r/wallstreetbets/comments/1rgri2d/sam_altman_tonight_we_reached_an_agreement_with/o7th7i3/  
+Comment ID:      o7th7i3  
+Author:          Several_Print4633  
+Bio:               
+Account Created: 2024-08-27T05:30:04Z  
+Link Karma:      197316  
+Comment Karma:   3657  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T03:14:32Z  
+Score:           496 points  
+Post Title:      Sam Altman: Tonight, we reached an agreement with the Department of War to deploy our models in their classified network.  
+:::::: Reddit User Comment: ======  
+Timeline today:
+
+[Sam Altman aims to 'help de\-escalate' tensions with Pentagon as OpenAI employees voice support for Anthropic](https://www.cnbc.com/2026/02/27/openai-sam-altman-de-escalate-tensions-pentagon-anthropic.html)
+
+> OpenAI CEO Sam Altman told staffers late Thursday that he would like the company “try to help de\-escalate things” between rival Anthropic and the Department of Defense.
+> 
+> “We have long believed that AI should not be used for mass surveillance or autonomous lethal weapons, and that humans should remain in the loop for high\-stakes automated decisions,” Altman wrote in a memo that was viewed by CNBC. “These are our main red lines.”
+
+[Trump admin blacklists Anthropic as AI firm refuses Pentagon demands](https://www.cnbc.com/2026/02/27/trump-anthropic-ai-pentagon.html)
+
+> President Donald Trump said Friday that he was ordering every U.S. government agency to “immediately cease” using technology from the artificial intelligence company Anthropic.
+
+Quotes from [Hegseth’s x post](https://x.com/SecWar/status/2027507717469049070):
+
+> I am directing the Department of War to designate Anthropic a Supply\-Chain Risk to National Security. 
+> 
+> Effective immediately, no contractor, supplier, or partner that does business with the United States military may conduct any commercial activity with Anthropic.
+
+Quotes from [Anthropic statement](https://www.anthropic.com/news/statement-comments-secretary-war):
+
+> Secretary of War Pete Hegseth shared on X that he is directing the Department of War to designate Anthropic a supply chain risk.
+> 
+> We believe this designation would both be legally unsound and set a dangerous precedent for any American company that negotiates with the government.
+> 
+> No amount of intimidation or punishment from the Department of War will change our position on mass domestic surveillance or fully autonomous weapons. We will challenge any supply chain risk designation in court.
+
+[OpenAI Reaches Agreement With Pentagon to Deploy AI Models](https://www.bloomberg.com/news/articles/2026-02-28/openai-reaches-agreement-with-pentagon-to-deploy-ai-models)
+
+OpenAI snags deal lmao
+
+
+
+
+=============
+  
+## Reddit comment o7so3cx
+
+    entry 144
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgngmc/florida_suddenly_cuts_off_12000_people_from/o7so3cx/  
+Comment ID:      o7so3cx  
+Author:          chimarya  
+Bio:               
+Account Created: 2011-05-08T22:51:38Z  
+Link Karma:      119  
+Comment Karma:   164804  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-28T00:15:21Z  
+Score:           2758 points  
+Post Title:      Florida suddenly cuts off 12,000 people from receiving their HIV meds. In a shocking move, the state’s Department of Health utilized its “11th hour” emergency rule just one day ahead of a lawsuit hearing.  
+:::::: Reddit User Comment: ======  
+They are actively trying to kill people \- this is disgusting!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> MASS_DEHUMANIZATION_POPULAR technology love and praise of hate has become so normal in USA since year 2013. As long as GTA6 and Olympics and sports teams and whatever other entertainment is what people care about more than Dr. Bandy X Lee or the January 1944 Second Bill of Rights..
+>
+
+
+=============
+  
+## Reddit comment o7so0rk
+
+    entry 145
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgngmc/florida_suddenly_cuts_off_12000_people_from/o7so0rk/  
+Comment ID:      o7so0rk  
+Author:          Bubbly-Two-3449  
+Bio:               
+Account Created: 2024-07-21T19:56:06Z  
+Link Karma:      10700  
+Comment Karma:   76772  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-28T00:14:56Z  
+Score:           903 points  
+Post Title:      Florida suddenly cuts off 12,000 people from receiving their HIV meds. In a shocking move, the state’s Department of Health utilized its “11th hour” emergency rule just one day ahead of a lawsuit hearing.  
+:::::: Reddit User Comment: ======  
+Do they \*want\* HIV transmission in Florida? This doesn't make sense. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> It's a virus, like measles is a virus like COVID-19 is a virus. Never forget August 24, 2018. SELF_HARM_USA
+>
+
+
+=============
+  
+## Reddit comment o7v3716
+
+    entry 146
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v3716/  
+Comment ID:      o7v3716  
+Author:          Ossrik  
+Bio:               
+Account Created: 2014-08-13T14:45:17Z  
+Link Karma:      173  
+Comment Karma:   8851  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T11:23:02Z  
+Score:           None  
+Post Title:      Someone remembers...  
+:::::: Reddit User Comment: ======  
+Ah yes, the "Peacemaker"...
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The mocking, The mockery USA, the entertained Reddit TRUMP_FANDOM with under 140 characters programmed Tweet-thinking Twitter-length resection commenting. Generic meaningless Reddit posting title, click-bait fandom upvoted. Anti-intellectual followers of Trump on Reddit. CLICKBAIT_TITLE
+> 
+> Social post { https://autistics.life/@RoundSparrow/116148292901442646 https://bsky.app/profile/roundsparrow.bsky.social/post/3mfwakt6wlk2q }
+>
+
+
+=============
+  
+## Reddit comment o7v42ax
+
+    entry 147
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v42ax/  
+Comment ID:      o7v42ax  
+Author:          Jimsmall1507  
+Bio:             Goonfapthaedgelord :   
+Account Created: 2021-03-01T14:24:47Z  
+Link Karma:      8375  
+Comment Karma:   4332  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T11:30:50Z  
+Score:           None  
+Post Title:      Someone remembers...  
+:::::: Reddit User Comment: ======  
+~~Peace through strength ❌~~ 
+
+War through idiocracy✅
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Reddit is the very venue of the idiocy. People spending free time and spare time on Reddit engaging in mockery, following the Trump mockery leadership. Non concern to promote related serious nonfiction of Dr. Bandy X Lee, Jen Senko, etc.  ADULT_EDUCATION_CRISIS_USA_ADULT_LEARNING_EMERGENCY
+>
+
+
+=============
+  
+## Reddit comment o7v5hh4
+
+    entry 148
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rh03ji/someone_remembers/o7v5hh4/  
+Comment ID:      o7v5hh4  
+Author:          gwils_cupleah6240  
+Bio:               
+Account Created: 2018-11-22T14:52:52Z  
+Link Karma:      1  
+Comment Karma:   2145  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T11:43:23Z  
+Score:           None  
+Post Title:      Someone remembers...  
+:::::: Reddit User Comment: ======  
+"In order to get elected BarackObama will start a war with Iran" \- Trump, Nov 29, 2011
+
+"BarackObama will attack Iran to get re\-elected." \- Trump, Jan 17, 2012
+
+"Now that Obama's poll numbers are in tailspin \- watch for him to launch a strike on Libya or Iran. He is desperate." \- Trump, Oct 9, 2012
+
+"I predict that President Obama will at some point start a war with Iran in order to save face!" \- Trump, Sept 16, 2013
+
+"Remember that I predicted a long time ago that President Obama will attack Iran because of his inability to negotiate properly \- not skilled!" \- Trump, Nov 11, 2013
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "In order to get elected Barack Obama will start a war with Iran" - Trump, November 29, 2011 https://www.Newsweek.com/trump-repeatedly-accused-obama-plotting-attack-iran-get-re-elected-1036924
+> 
+> Year 2011, Twitter. SEE_ALSO: https://GitHub.com/RocketDerp/April14_2025/blob/main/A00/About/Why_Highlight_Circle_Year_2011_onward.md
+>
+
+
+=============
+  
+## Reddit comment o7ub2v0
+
+    entry 149
+
+Comment URL: https://old.reddit.com/r/NonPoliticalTwitter/comments/1rgvcqr/we_used_to_be_a_proper_country_in_true_reality/o7ub2v0/  
+Comment ID:      o7ub2v0  
+Author:          Spottwat  
+Bio:               
+Account Created: 2012-12-22T04:17:38Z  
+Link Karma:      14487  
+Comment Karma:   4503  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-28T07:00:04Z  
+Score:           516 points  
+Post Title:      We used to be a proper country in true reality  
+:::::: Reddit User Comment: ======  
+We also used to call this fraud
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> On Reddit, we used to call this type of low-effort commenting "Twitter" 140 characters or less. Reddit allows 10,000 characters. As for the posting, this is not just real estate. WIDE_RADICAL_DOUBT_ABOUT_REAL - Trump is the role model of real estate leadership, golf courses, hotels, properties. Decades of Trump values and worship for images.
+>
+
+
+=============
+  
+## Reddit comment o7umq0v
+
+    entry 150
+
+Comment URL: https://old.reddit.com/r/whennews/comments/1rgxll9/literally_did_the_thing/o7umq0v/  
+Comment ID:      o7umq0v  
+Author:          SudhaTheHill  
+Bio:             🫲🌀🌀🫱 : Spent over 10 minutes thinking about what I should put here but nothing comes to mind  
+Account Created: 2024-08-06T16:03:23Z  
+Link Karma:      1  
+Comment Karma:   1414751  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T08:45:53Z  
+Score:           370 points  
+Post Title:      literally did the thing  
+:::::: Reddit User Comment: ======  
+This GIF is so relevant here. What a condescending thing to say to the people.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> A fiction film. Reddit fandom of Trump content, the commenting community on Reddit, long ago abandoned relevant serious nonfiction. Dr.Bandy X Lee assembled 27 people in a book published October 3, 2017 - Reddit community avoids it. Dr. Lee's leadership should be commented and asserted again and again, but instead Reddit community is posting fiction film clips. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+>
+
+
+=============
+  
+## Reddit comment o7uh5nz
+
+    entry 151
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7uh5nz/  
+Comment ID:      o7uh5nz  
+Author:          tebowismyhomeboy  
+Bio:               
+Account Created: 2010-10-09T09:15:32Z  
+Link Karma:      1161  
+Comment Karma:   2958  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-28T07:54:51Z  
+Score:           None  
+Post Title:      Trump says U.S. military has begun major combat operations in Iran  
+:::::: Reddit User Comment: ======  
+Yo what fucking world are we living in where the POTUS is releasing taped remarks, with edits, after striking another country?!?! What the actual fuck is this?!??
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> not concerned about the war, concerned about the taped recorded media on the Reddit cult media venue. 140 character Reddit outrage messages over media, not humans, but Trump media TRUMP_FANDOM crying out for LIVE video of Trump. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE
+>
+
+
+=============
+  
+## Reddit comment o7ui6vh
+
+    entry 152
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7ui6vh/  
+Comment ID:      o7ui6vh  
+Author:          jjamesr539  
+Bio:               
+Account Created: 2019-06-30T04:57:03Z  
+Link Karma:      131  
+Comment Karma:   63578  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-28T08:04:09Z  
+Score:           None  
+Post Title:      Trump says U.S. military has begun major combat operations in Iran  
+:::::: Reddit User Comment: ======  
+He really went with “some of you may die, but that’s a risk I’m willing to take”
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> and the TRUMP_FANDOM on Reddit is entirely engaged with those Trump messages. OBSERVE_MEDIA_AVOIDANCE_OF_RELEVANT_NONFICTION nobody cares to call for an uprising on social media, a Reddit uprising to promoting Dr. Bandy X Lee's October 3, 2017 nonfiction book about **DANGER*** of Donald Trump. https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump
+>
+
+
+=============
+  
+## Reddit comment o7ulejj
+
+    entry 153
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rgwobt/trump_says_us_military_has_begun_major_combat/o7ulejj/  
+Comment ID:      o7ulejj  
+Author:          Code__9  
+Bio:             Code 9 :   
+Account Created: 2022-12-01T09:31:51Z  
+Link Karma:      394  
+Comment Karma:   1426  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T08:33:42Z  
+Score:           None  
+Post Title:      Trump says U.S. military has begun major combat operations in Iran  
+:::::: Reddit User Comment: ======  
+The moment Zelensky told Trump Ukraine couldn't have elections because of war I knew he was going to do something like this. Now he's going to escalate the conflict and use this as an excuse to delay the midterms.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "I knew he was going to do something like this" - and isn't calling for any Reddit uprising, We The People on Reddit to have a REDDIT_BLACKOUT or promote Dr. Bandy X Lee's nonfiction book, or promote Jen Senko's nonfiction film and book about brainwashing.Just keep on commenting away as if it is entertaining Reality TV that Trump is providing for Reddit fandoms. Exactly as reddit community has been doing with media for over a decade around Trump. Anti-intellectual commentary on events that avoids serious relevant nonfiction books on paper.
+>
+
+
+=============
+  
+## Reddit comment o7vungm
+
+    entry 154
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1rh3g03/a_sacrifice_hes_willing_to_make/o7vungm/  
+Comment ID:      o7vungm  
+Author:          MurkDiesel  
+Bio:               
+Account Created: 2018-09-24T22:44:37Z  
+Link Karma:      28097  
+Comment Karma:   107981  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T14:33:43Z  
+Score:           7 points  
+Post Title:      A sacrifice he's willing to make  
+:::::: Reddit User Comment: ======  
+and everyone will keep spending money to support him
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Everyone will keep saying "MURDERED, BY WORDS!!!" and commenting about Trump as has gone on for nearly 11 years endlessly on Reddit media. A celebrity of media leads a cult of media. And the whole "distraction", no Trump is ENTERTAINING. People knew about Epstein and knew about Trump's aggressive masculine behavior long long before end of February 2026. Trump on November 8, 2013 - was flying on a private jet to Moscow to parade women for men. People like the entertainment, people are attracted to Trump's content and photograph. It's February 28 today, nobody is attracted to MLK Jr's weekend message of February 28, 1954. But people sure activate their touch device to comment about Trump shit. ATTRACTION_TO_HATE_LEADERS_HATE_FOLLOWERS
+>
+
+
+=============
+  
+## Reddit comment o7w3til
+
+    entry 155
+
+Comment URL: https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w3til/  
+Comment ID:      o7w3til  
+Author:          wrxhokie  
+Bio:               
+Account Created: 2014-08-10T12:37:45Z  
+Link Karma:      315  
+Comment Karma:   18409  
+Comment Age:     48 minutes ago  
+Timestamp:       2026-02-28T15:23:38Z  
+Score:           None  
+Post Title:      The new weapon unveiled by Iran  
+:::::: Reddit User Comment: ======  
+Please do this
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING begging for more Trump sex smut content. Not to remove Trump, but to get more media.
+>
+
+
+=============
+  
+## Reddit comment o7w8hwq
+
+    entry 157
+
+Comment URL: https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w8hwq/  
+Comment ID:      o7w8hwq  
+Author:          turningsteel  
+Bio:               
+Account Created: 2013-06-02T03:15:32Z  
+Link Karma:      569  
+Comment Karma:   188245  
+Comment Age:     34 minutes ago  
+Timestamp:       2026-02-28T15:47:09Z  
+Score:           None  
+Post Title:      The new weapon unveiled by Iran  
+:::::: Reddit User Comment: ======  
+Iran is a lot of talk with no action. They probably don't actually have these photos unfortunately in this case.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> We have a massive GULLIBILITY_CRISIS that people are getting such a media rush off this, sexually stimulated by the high-speed information prospects of more Trump sex images. INFORMATION_STRIP_TEASE
+>
+
+
+=============
+  
+## Reddit comment o7w818n
+
+    entry 158
+
+Comment URL: https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w818n/  
+Comment ID:      o7w818n  
+Author:          espresso_martini__  
+Bio:               
+Account Created: 2023-09-02T03:36:53Z  
+Link Karma:      114  
+Comment Karma:   55985  
+Comment Age:     36 minutes ago  
+Timestamp:       2026-02-28T15:44:52Z  
+Score:           None  
+Post Title:      The new weapon unveiled by Iran  
+:::::: Reddit User Comment: ======  
+Yeah I dont believe they have anything. If they did they would have released some of it to show they actually have something. Then threaten to release all of it.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> GULLIBLE_FANDOM of Trump content, MAGA fandom of images and pro-hate warfare on Reddit is cheering this on.
+>
+
+
+=============
+  
+## Reddit comment o7w4kgz
+
+    entry 159
+
+Comment URL: https://old.reddit.com/r/PoliticalHumor/comments/1rh55sg/the_new_weapon_unveiled_by_iran/o7w4kgz/  
+Comment ID:      o7w4kgz  
+Author:          bobsacremento1  
+Bio:               
+Account Created: 2019-11-30T04:15:21Z  
+Link Karma:      1  
+Comment Karma:   56124  
+Comment Age:     54 minutes ago  
+Timestamp:       2026-02-28T15:27:26Z  
+Score:           None  
+Post Title:      The new weapon unveiled by Iran  
+:::::: Reddit User Comment: ======  
+Doesn’t matter. They will say it is AI.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> What truly matters to people is their ability to create tiny-short under 140 character comments around the circle of events and chaos created by Donald. Trump. year after year, "media engagement" of being able to comment about Trump.  That's what matters to American media consumers. OUTSMARTED_TRICKED_MANIPULATED_BAMBOOZLED_BY_TRUMP_MURDOCH_PUTIN
+>
+
+
+=============
+  
+## Reddit comment o7vnqgi
+
+    entry 160
+
+Comment URL: https://old.reddit.com/r/videos/comments/1rh353g/walls_are_closing_in_on_trump_as_missing_epstein/o7vnqgi/  
+Comment ID:      o7vnqgi  
+Author:          DrFishbulbEsq  
+Bio:             Just some guy   
+Account Created: 2012-03-13T15:41:08Z  
+Link Karma:      687  
+Comment Karma:   42959  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T13:53:26Z  
+Score:           1183 points  
+Post Title:      Walls are CLOSING IN on Trump as missing Epstein documents point to avenue of inquiry  
+:::::: Reddit User Comment: ======  
+Yeah any day now! This time we got him for sure
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1st place upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Donald Trump leads the USA society with anti-intellectual mocking, Reddit fandom follows Trump's leadership.
+>
+
+
+=============
+  
+## Reddit comment o7vopz5
+
+    entry 161
+
+Comment URL: https://old.reddit.com/r/videos/comments/1rh353g/walls_are_closing_in_on_trump_as_missing_epstein/o7vopz5/  
+Comment ID:      o7vopz5  
+Author:          coconutpete52  
+Bio:               
+Account Created: 2020-09-06T02:43:33Z  
+Link Karma:      2830  
+Comment Karma:   135753  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T13:59:14Z  
+Score:           375 points  
+Post Title:      Walls are CLOSING IN on Trump as missing Epstein documents point to avenue of inquiry  
+:::::: Reddit User Comment: ======  
+I can tell it’s serious now because of random capitalized words in the title. I’m a little worried I don’t see the word “slammed” though…
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> That's because there is no serious. Nonfiction books on paper have been abandoned. NONSENSE_HARDER is all people do. Trump does nonsense, and Reddit community posts nonsense on the front page. It is endless and has gone on since June 16, 2015 - endless anti-intellectual mocking. Trump is a source of entertainment and amusement. Neil Postman's 1985 nonfiction book "Amusing Ourselves To Death" explains this high-speed information attitude and behavior crisis.
+>
+
+
+=============
+  
+## Reddit comment o7vh9ff
+
+    entry 162
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rh28ht/trump_79_posts_crazed_4_am_rant_right_after/o7vh9ff/  
+Comment ID:      o7vh9ff  
+Author:          IpeeEhh_Phanatic  
+Bio:               
+Account Created: 2025-02-02T20:37:09Z  
+Link Karma:      6488  
+Comment Karma:   112174  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T13:12:52Z  
+Score:           None  
+Post Title:      Trump, 79, Posts Crazed 4 AM Rant Right After Starting War  
+:::::: Reddit User Comment: ======  
+Explosions in Qatar, the Iraqi Hezbollah Brigades Operations Command says it will attack American bases now, Saudi Arabia said they will aid U.S. 
+
+This war widened quickly.
+
+Oh, and Trump isn't even at the White House. He is monitoring all of this from his Pedo Palace at Mar\-a\-lago. 
+
+Fuck Trump.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> If Donald Trump were injured or killed, that would cause mass mayhem and violence. And people seen celebrating his death would likely meet a very bad cult outcome. The entire world is blaming the ENTIRE USA, not just Trump, for allowing the media addictions to Reality TV celebrity to go this far. But USA addicts to Trump content think that mocking trump isn't part of Surkovian governing. Mocking Tony Clifton POTUS character is eating the onion, adding MORE MOCKING to a total mockery is not resisting a mockery! People need to STOP social media mocking. FAITH_IN_MOCKERY And SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
+>
