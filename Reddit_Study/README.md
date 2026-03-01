@@ -9,3 +9,6 @@ https://pmc.ncbi.nlm.nih.gov/articles/PMC8043118/
 "Critique/Cultural Analysis of Reddit Itself"    
 "Is anyone aware of any research or critical analysis of Reddit? Specifically I'm looking to understand why/how people on Reddit socialize"   
 https://old.reddit.com/r/CriticalTheory/comments/1l78dw1/critiquecultural_analysis_of_reddit_itself/   
+
+"Ask Me Anything About Reddit’s Cesspit of Toxicity"   
+https://medium.com/@triketora/ask-me-anything-about-reddits-cesspit-of-toxicity-f4c9e89a4da6    
