@@ -6771,3 +6771,388 @@ The gasp I gusped when she said “do you think before you speak?” 😲 And th
 > 
 > But mental burnout became an extreme crisis for me in summer of 2015 and I am lucky to mentally keep up with anything. Especially with the saturation of Trumpism media, billionaire Twitter Musk media, Facebook media, Murdoch media, Kremlin media, Reddit media, Bluesky media, etc. **Extreme mental damage and burnout** translating all the fiction cult mindsets and the abandonment of nonfiction. https://www.USA.edu/blog/what-is-autistic-burnout-symptoms-causes-prevention-guide/
 >
+
+
+=============
+  
+## Reddit comment o7btwxi
+
+    entry 258
+
+Comment URL: https://old.reddit.com/r/HolyShitHistory/comments/1redksd/in_1993_39yearold_jerry_seinfeld_was_at_the_peak/o7btwxi/  
+Comment ID:      o7btwxi  
+Author:          ndndr1  
+Bio:               
+Account Created: 2020-03-08T20:08:30Z  
+Link Karma:      4499  
+Comment Karma:   75932  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-25T14:10:07Z  
+Score:           1919 points  
+Post Title:      In 1993, 39-year-old Jerry Seinfeld was at the peak of Seinfeld when he began dating 17-year-old high school senior Shoshanna Lonstein Gruss. In New York, 17 is the age of consent, so it was legal.  
+:::::: Reddit User Comment: ======  
+All pedo shit aside, hanging out w a teenage girl as a 39 yr old man sounds exhausting.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> But there are mindsets of men where the predatory manipulation of people and mind-fucking is prized. Jerry Seinfeld was in MEDIA_MANIA at the high of television NYC setting, he had the power of fiction cult leadership with his storytelling television in year 1993. PREDATORY_BILLIONAIRE_SYSTEMS
+>
+
+
+=============
+  
+## Reddit comment o7bqy1g
+
+    entry 259
+
+Comment URL: https://old.reddit.com/r/HolyShitHistory/comments/1redksd/in_1993_39yearold_jerry_seinfeld_was_at_the_peak/o7bqy1g/  
+Comment ID:      o7bqy1g  
+Author:          -domi-  
+Bio:               
+Account Created: 2016-12-02T12:45:08Z  
+Link Karma:      23846  
+Comment Karma:   364342  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-25T13:53:58Z  
+Score:           616 points  
+Post Title:      In 1993, 39-year-old Jerry Seinfeld was at the peak of Seinfeld when he began dating 17-year-old high school senior Shoshanna Lonstein Gruss. In New York, 17 is the age of consent, so it was legal.  
+:::::: Reddit User Comment: ======  
+Paul Walker was in his mid\-thirties when he started dating the 16y.o. he'd eventually marry years later.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> MEDIA_CULTS_FICTION_FANDOM_MEDIA_POWER Paul Walker had the power of fiction storytelling cults. Just like Jerry Seinfeld fiction-playing actor, Donald Trump fiction-playing actor. The ultimate power systems is convincing other people that fiction is nonfiction, real. Trump is a god and Satan, both, for fiction fandoms. South Park year 2025 shows his Satan White House fiction power (and South Park **cashes in** on Trumpism "GOP Jesus" fiction character worship, fiction Satan character worship both).
+>
+
+
+=============
+  
+## Reddit comment o7dbai0
+
+    entry 260
+
+Comment URL: https://old.reddit.com/r/isthisAI/comments/1reisdc/dogs_wagging_hips_to_the_woman_dancing_on_tv_and/o7dbai0/  
+Comment ID:      o7dbai0  
+Author:          LimboDreams  
+Bio:               
+Account Created: 2016-07-31T04:42:27Z  
+Link Karma:      176  
+Comment Karma:   1763  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-25T18:20:18Z  
+Score:           381 points  
+Post Title:      Dogs wagging hips to the woman dancing on tv and then turn around when their owner turns it off  
+:::::: Reddit User Comment: ======  
+The button she hits on the remote to turn the TV off is the volume up or down button lol.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> FICTION_OUTSELLS_NONFICTION the billionaires provide! Fiction video generations are the top priority investments, Surkov / Putin / Trump / Musk / Murdoch / Reddit / Bluesky have all proven that fiction is far more popular than say { Jen Senko since year 2015 nonfiction about brainwashing by billionaires using media systems, Dr. Bandy X Lee since year 2017 nonfiction about the danger and alarming mental health crisis of Donald Trump }.
+>
+
+
+=============
+  
+## Reddit comment o7if441
+
+    entry 261
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1rf9x1g/a_woman_in_florida_selling_rare_and_expensive/o7if441/  
+Comment ID:      o7if441  
+Author:          Gooch_Bubble3673  
+Bio:               
+Account Created: 2025-04-22T18:37:26Z  
+Link Karma:      8733  
+Comment Karma:   10790  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-26T13:33:39Z  
+Score:           1171 points  
+Post Title:      A woman in Florida selling rare and expensive puppies, exchanging gunfire with a group of men attempting to steal the $4,000 dogs  
+:::::: Reddit User Comment: ======  
+Spray and praying in a residential neighborhood is wild work.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 10 month Reddit account. Most-popular upvoted comment. Well within the 140 character Twitter-thinking mindset limit commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7icvhh
+
+    entry 262
+
+Comment URL: https://old.reddit.com/r/interesting/comments/1rf9x1g/a_woman_in_florida_selling_rare_and_expensive/o7icvhh/  
+Comment ID:      o7icvhh  
+Author:          Chalkywhit3_  
+Bio:               
+Account Created: 2026-01-06T23:36:36Z  
+Link Karma:      1  
+Comment Karma:   1064  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-26T13:20:50Z  
+Score:           1185 points  
+Post Title:      A woman in Florida selling rare and expensive puppies, exchanging gunfire with a group of men attempting to steal the $4,000 dogs  
+:::::: Reddit User Comment: ======  
+so anyways i started blastin..
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. Second most-popular upvoted comment. Well within the 140 character Twitter-thinking mindset limit commenting. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Learning from the 10-month Elder success on Reddit. This comment is even shorter! Celebrating the Ignorance in Florida via commenting celebrations. IGNORANCE_CELEBRATIONS
+>
+
+
+=============
+  
+## Reddit comment o759bam
+
+    entry 263
+
+Comment URL: https://old.reddit.com/r/ayearofulysses/comments/1rdeerb/feb24_ulysses_episode_7_aeolus_part_12/o759bam/  
+Comment ID:      o759bam  
+Author:          willyhaste  
+Bio:             Legs Diamond : 58 days  
+Account Created: 2018-05-10T17:37:56Z  
+Link Karma:      627  
+Comment Karma:   1121  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-24T14:59:19Z  
+Score:           9 points  
+Post Title:      Feb-24| Ulysses - Episode 7: Aeolus, Part 1/2  
+:::::: Reddit User Comment: ======  
+“Aeolus” is a loud and noisy passage. Besides all the shunting, clanking, thumping, and throbbing of the nonhuman mechanical world (“the loud unanswering machines”), there is also the noise of the human mind. It’s a cacophony, too.
+
+And the noise of the modern human mind, it seems to me, is amplified by media, which at the turn of the 20th century must have been sounding out to the world at a speed and volume like never before.
+
+Bloom regards the mechanical world with a little awe and little terror, not unlike how I regard Artificial Intelligence over a century later: “Almost human the way it sllt to call attention. Doing its level best to speak.”
+
+It occurred to me that, when you have media (such as a daily newspaper, or, hell, social media) churning out news stories about lives all over the world, you begin to consider the infinitely various ways in which your own life could be different.
+
+Thus, at least twice in this passage Bloom imagines what he *could have said*—what the French call “*l’esprit d’escalier*,” the “spirit of the staircase”—about the hat to John Henry Menton at the funeral. And what he *could do* in returning home this afternoon, “just to see”—what the Romans call “*coitus interruptus*.”
+
+All our what\-ifs and what\-might\-bes and what\-could\-have\-beens—they’re head\-splittingly loud!
+
+P.S. Welcome back, OP!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> JAMES_JOYCE_LESSON "And the noise of the modern human mind, it seems to me, is amplified by media" - very Marshall McLuhan University of Toronto perspective on James Joyce! "a loud and noisy passage. Besides all the shunting, clanking, thumping, and throbbing of the nonhuman mechanical world (“the loud unanswering machines”), there is also the noise of the human mind. It’s a cacophony, too" - very much THIS_GITHUB criticism of machine mindsets and media digital delivery.
+>
+
+
+=============
+  
+## Reddit comment o74jskv
+
+    entry 264
+
+Comment URL: https://old.reddit.com/r/ayearofulysses/comments/1rdeerb/feb24_ulysses_episode_7_aeolus_part_12/o74jskv/  
+Comment ID:      o74jskv  
+Author:          1906ds  
+Bio:               
+Account Created: 2014-04-15T02:34:16Z  
+Link Karma:      338  
+Comment Karma:   3964  
+Comment Age:     2 days ago  
+Timestamp:       2026-02-24T12:37:55Z  
+Score:           4 points  
+Post Title:      Feb-24| Ulysses - Episode 7: Aeolus, Part 1/2  
+:::::: Reddit User Comment: ======  
+Today's musical allusions, from the Gifford annotations:
+
+**7\.58\.** ***Martha*** – [Light opera](https://www.youtube.com/watch?v=WajT3sxwX1g) by Friedrich von Flotow.
+
+**7\. 59\-60\.** ***Co\-ome thou lost…dear one*** – from [Lionel’s Lament](https://www.youtube.com/watch?v=i_u28_gIRck), in act IV of *Martha*. I don’t actually know if this is the right song I have linked, as it is the *only* recording I could find of anything from act IV that sounded like it might have the title of Lionel’s Lament, so enjoy this 1906 recording of the supposed allusion.
+
+**7\.152\. that** ***voglio*** – misquoted lyric from Mozart’s “Là ci darem”, from [*Don Giovanni*](https://www.youtube.com/watch?v=GADW9XYoLBY). Bloom got it right last episode, but we are back to the misquote from 4\.327 today. Exciting stuff.
+
+**7\.209\.** ***Shema Israel Adonai Elohenu*** – Hebrew chant known as the [*Shema*](https://www.youtube.com/watch?v=vB58oyck-C8); “Hear, oh Israel, the Lord our God.”
+
+**7\.210\-13\. And then the lamb…kills the cat**. – After the chant [*Chad Gadya*](https://www.youtube.com/watch?v=k6erwJ_3KhY) (“One Kid”).
+
+**7\.236, ERIN, GREEN GEM OF THE SILVER SEA** – Curran’s “Cuisle Mo Chroidhe”, or “[Cushla Ma Chree](https://www.youtube.com/watch?v=ff71lXLrf1w)”
+
+**7\.264\-65\. Johnny, make room for your uncle** – Saying derived from a [popular song](https://youtu.be/FWS3mt1m-_k?t=578).
+
+**7\.370\. HARP EOLIAN** – I don’t know if this is a direct reference to it, but there is a popular Chopin piano etude that was nicknamed the “[Aeolian Harp](https://www.youtube.com/watch?v=rrNE9aHJlzw)” by composer and music critic Robert Schumann. To see the actual instrument, check out [this video](https://www.youtube.com/watch?v=M9kbedYM4GE).
+
+**7\.427\-28\.** ***We are the boys…heart and hand*** –From an Irish ballad of 1798, “[The Boys of Wexford](https://youtu.be/bPqCiNAME2I?t=38)”.
+
+**7\.471\-72\.** ***‘Twas Rank and… charmed thy heart*** – From [act III](https://www.youtube.com/watch?v=mTyIN1Ua4WY) of the opera *The Rose of Castile* by Michael William Balfe.
+
+As for a favorite passage or word, I really enjoyed how noisy this chapter is. From the opening tramways rolling out, the barrels running into one another, the men constantly talking over one another trying to be the one in the spotlight, the speeches, the papers rustling, and to the clanging of machines, this is such an overstimulating episode. I also like the moment where Bloom reflects on how the print is proofread backwards, but I find it funny that Joyce didn't actually print it correctly: we see mangiD kcirtaP, but it should be something like mɒnϱiꓷ ʞɔiяɈɒᕋ.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SINGSONG_JOYCEAN
+>
+
+
+=============
+  
+## Reddit comment o7kvnrb
+
+    entry 265
+
+Comment URL: https://old.reddit.com/r/nottheonion/comments/1rfl8x8/pope_leo_demands_priests_stop_using_ai_to_write/o7kvnrb/  
+Comment ID:      o7kvnrb  
+Author:          BlackBoiFlyy  
+Bio:               
+Account Created: 2018-12-19T22:32:44Z  
+Link Karma:      16338  
+Comment Karma:   288354  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-26T20:36:43Z  
+Score:           372 points  
+Post Title:      Pope Leo demands priests stop using AI to write sermons over TikTok panic  
+:::::: Reddit User Comment: ======  
+It's crazy that the Pope needed to make this statement
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> BIBLE_LITERACY
+>
+
+
+=============
+  
+## Reddit comment o7laxap
+
+    entry 266
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rfn42i/tell_them_what_peter/o7laxap/  
+Comment ID:      o7laxap  
+Author:          Exurota  
+Bio:               
+Account Created: 2024-07-21T13:57:28Z  
+Link Karma:      753  
+Comment Karma:   48991  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-26T21:49:16Z  
+Score:           819 points  
+Post Title:      Tell them what, Peter  
+:::::: Reddit User Comment: ======  
+I'll sincerely never understand people that get confused by left and right. Do they confuse up and down too?
+
+Edit: I'm getting a lot of people real upset that I dared to ask this. I wasn't attempting to mock you with this question, I'm fully serious. I didn't (and won't fully) understand how left and right is any different to up, down, forward or backward in your head.
+
+The best answers I've had so far:
+
+* Dyslexia/dyscalculia may make it harder
+* Having good spacial cognition may make it easier
+* Learning left and right at an early age may make it easier
+* Having greater asymmetry in function may make it easier (conversely having less left/right dominance may make it harder)
+* The fact we're roughly symmetrical about the vertical and back/front plane
+
+The most interesting answers I've had so far:
+
+* "I have no issue with left and right in X languages but struggle in English"
+* "My dad did meth and this may or may not be related to his struggles with left and right"
+* "My mum was taught the wrong hands by her parents and never recovered, even when school corrected her"
+* "I used to have this problem, but after engaging in \[specific sport, task etc] I no longer do"
+* "I used to not have this problem, but after \[task involving using my left to demonstrate someone else's right etc] I do"
+* "I'm bad with left and right and east and west, but up, down, north and south are fine"
+* "I had a seizure/brain injury/concussion and now I struggle"
+* "My sister confuses left and right, but 'lefty loosey, righty tighty' for screwing things works for her without checking on her hands"
+* "Nobody confuses up and down, that's absurd, we have gravity.", followed by:
+* **"Yes, I DO confuse up and down."**
+
+The worst answers I've had so far:
+
+* Left and right are completely arbitrary, unlike up, down, forward and backward (forward and backward are equally dependent on our orientation to left and right)
+* \[various accusations of ableism]
+
+Per the last point: if you want people to understand and be empathetic and patient toward neurodivergent experiences, the last thing you should do is deride them for asking. Kind of an own goal \[insert joke about confusing which goal is yours]
+
+Edit 2: Somewhat interesting note (at least to me): There are lots of people struggling with cardinal directions here, but while there are many examples of struggling with East and West but *not* North and South (can relate to this personally, I remember struggling as a kid for a few months) not one single person has said East and West is fine but North and South aren't. None.
+
+Edit 3: We have our first North\-South confuser \- apparently they find East and West intuitive because of the sun. As a brit I have only heard of this object in tales from abroad but it's fun to learn about it!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> CONCERNS_OF_FINNEGANS language words to reality.
+>
+
+
+=============
+  
+## Reddit comment o7mgmng
+
+    entry 267
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rfsh0p/petah_what_does_this_mean/o7mgmng/  
+Comment ID:      o7mgmng  
+Author:          SwaggiiP  
+Bio:               
+Account Created: 2016-07-10T03:30:01Z  
+Link Karma:      909  
+Comment Karma:   137382  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-27T01:33:48Z  
+Score:           7 points  
+Post Title:      Petah, what does this mean?  
+:::::: Reddit User Comment: ======  
+This is misinfo. Then you got another bot saying she sued him lmao
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> FAKE_DETECTORS discussion in replies. MEDIA_ECOLOGY_OBSERVATION
+>
+
+
+=============
+  
+## Reddit comment o7oa2kp
+
+    entry 268
+
+Comment URL: https://old.reddit.com/r/ProgrammerHumor/comments/1rg0wj0/freeappidea/o7oa2kp/  
+Comment ID:      o7oa2kp  
+Author:          the_shadow007  
+Bio:             NoMisandry! : Stop misandry! The biggest problem in current society. Stay strong boys  
+Account Created: 2024-06-21T17:08:47Z  
+Link Karma:      1866  
+Comment Karma:   9537  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-27T09:33:22Z  
+Score:           -7 points  
+Post Title:      freeAppIdea  
+:::::: Reddit User Comment: ======  
+Google maps already uses ai since the very beginning lmao 💀
+The concept of finding shortest route is literally impossible without ai...
+
+
+
+
+=============
+  
+## Reddit comment o7yqd52
+
+    entry 269
+
+Comment URL: https://old.reddit.com/r/SipsTea/comments/1rhfr7s/jim_carrey_looks_different/o7yqd52/  
+Comment ID:      o7yqd52  
+Author:          tintedrosestinted  
+Bio:               
+Account Created: 2021-06-25T13:42:58Z  
+Link Karma:      1792  
+Comment Karma:   34429  
+Comment Age:     35 minutes ago  
+Timestamp:       2026-02-28T23:37:41Z  
+Score:           54 points  
+Post Title:      Jim Carrey looks... Different?  
+:::::: Reddit User Comment: ======  
+It’s not him it’s an impersonator.
+
+

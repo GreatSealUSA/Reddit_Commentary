@@ -2696,7 +2696,7 @@ But they told us that Iran hates women because burqas
   
 ## Reddit comment o7vyaux
 
-    entry 100
+    entry 99
 
 Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyaux/  
 Comment ID:      o7vyaux  
@@ -2723,7 +2723,7 @@ My heart breaks again and again at all the atrocities both evil regimes have com
   
 ## Reddit comment o7vzetf
 
-    entry 101
+    entry 100
 
 Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vzetf/  
 Comment ID:      o7vzetf  
@@ -2750,7 +2750,7 @@ Those poor innocent children. Why is the US bombing Iran???
   
 ## Reddit comment o7vyyih
 
-    entry 102
+    entry 101
 
 Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rh3t7t/the_zionist_regime_and_the_us_have_killed_51/o7vyyih/  
 Comment ID:      o7vyyih  
@@ -2777,7 +2777,7 @@ god what are we even doing here. how does murdering children in a girl school he
   
 ## Reddit comment o7wb6ys
 
-    entry 103
+    entry 102
 
 Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wb6ys/  
 Comment ID:      o7wb6ys  
@@ -2804,7 +2804,7 @@ So, is this where we find out that the Trump regime can trigger a global interne
   
 ## Reddit comment o7wbli5
 
-    entry 104
+    entry 103
 
 Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1rh6711/inshallah/o7wbli5/  
 Comment ID:      o7wbli5  
@@ -2831,7 +2831,7 @@ Please do. Please please please release them
   
 ## Reddit comment o7w81xu
 
-    entry 105
+    entry 104
 
 Comment URL: https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7w81xu/  
 Comment ID:      o7w81xu  
@@ -2860,7 +2860,7 @@ I have a bridge for sale
   
 ## Reddit comment o7wa2li
 
-    entry 106
+    entry 105
 
 Comment URL: https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wa2li/  
 Comment ID:      o7wa2li  
@@ -2887,7 +2887,7 @@ But Peace is War, right?
   
 ## Reddit comment o7wcs0j
 
-    entry 107
+    entry 106
 
 Comment URL: https://old.reddit.com/r/Music/comments/1rh5spv/jack_white_on_trumps_bombing_of_iran_behold_the/o7wcs0j/  
 Comment ID:      o7wcs0j  
@@ -2908,3 +2908,1283 @@ Very literally seeing this same comment every five minutes. Not original.
 > :::::: Analysis_Thoughts Commentary: ======  
 > That's what TRUMP_FANDOM does, MEDIA_MANIA of repeating and parroting Trump-speak over and over. It is a cult. SOCIAL_CULT_HATE_WATCHING_FANDOM
 >
+
+
+=============
+  
+## Reddit comment o7wnm52
+
+    entry 107
+
+Comment URL: https://old.reddit.com/r/news/comments/1rh5cho/iran_strikes_us_military_bases_in_qatar_kuwait/o7wnm52/  
+Comment ID:      o7wnm52  
+Author:          sidechain101  
+Bio:             Come Play Perfect :   
+Account Created: 2018-04-20T16:44:38Z  
+Link Karma:      335  
+Comment Karma:   13194  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T17:02:10Z  
+Score:           2830 points  
+Post Title:      Iran Strikes US Military Bases in Qatar Kuwait and the United Arab Emirates and Bahrain  
+:::::: Reddit User Comment: ======  
+Board of peace got bored of peace really quickly
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The most popular Reddit comment, the most upvoted. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING It is Donald Trump who created the topic, "Board of Peace", and Reddit community keeps repeating Trump with extreme-short chanting messages. This is not resisting, this is a Trump parroting cult of media systems.
+>
+
+
+=============
+  
+## Reddit comment o7w6yw9
+
+    entry 108
+
+Comment URL: https://old.reddit.com/r/news/comments/1rh5cho/iran_strikes_us_military_bases_in_qatar_kuwait/o7w6yw9/  
+Comment ID:      o7w6yw9  
+Author:          _Aporia_  
+Bio:               
+Account Created: 2013-08-02T14:26:51Z  
+Link Karma:      1069  
+Comment Karma:   32927  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T15:39:32Z  
+Score:           3634 points  
+Post Title:      Iran Strikes US Military Bases in Qatar Kuwait and the United Arab Emirates and Bahrain  
+:::::: Reddit User Comment: ======  
+Will fucking Congress do something, please for the love of god.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> For the love of god, why isn't social media having an uprising? Play by play reaction commenting is in no way resisting the media events Trump keeps creating on any and every topic day and night. REDDIT_BLACKOUT - why isn't Reddit doing a blackout protest? Like has been done before... ANSWER: We The People can't think outside the commenting box calling for Congress and stand up on social media and all get on the same page: Dr. Bandy X Lee's October 3, 2017 nonfiction book.
+>
+
+
+=============
+  
+## Reddit comment o7wmwzm
+
+    entry 109
+
+Comment URL: https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7wmwzm/  
+Comment ID:      o7wmwzm  
+Author:          thin234rout698  
+Bio:             BatangTundo :   
+Account Created: 2020-09-10T23:31:35Z  
+Link Karma:      1  
+Comment Karma:   2166  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T16:58:40Z  
+Score:           8 points  
+Post Title:      The Palm Hotel in Dubai hit by Iranian missile  
+:::::: Reddit User Comment: ======  
+Spoken like a true Christian. Stay Jesus name out of this war. This all Trump and Israel.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> LEVANT_MONOMYTH_CRISIS  February 28, 1954 ignored on WikiQuotes. Not Good Enough to turn to MLK Jr today on February 28.
+>
+
+
+=============
+  
+## Reddit comment o7weie1
+
+    entry 110
+
+Comment URL: https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7weie1/  
+Comment ID:      o7weie1  
+Author:          mrdankhimself_  
+Bio:             mrdankhimself :   
+Account Created: 2024-01-18T03:11:08Z  
+Link Karma:      14628  
+Comment Karma:   68730  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T16:17:14Z  
+Score:           655 points  
+Post Title:      The Palm Hotel in Dubai hit by Iranian missile  
+:::::: Reddit User Comment: ======  
+We’d rather burn down the world than put psychotic billionaire pedos in jail. Glorious humanity.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> People would rather make low-effort comments on machines over and over than turn to Dr. Bandy X Lee's nonfiction book published October 3, 2017. How many years ago was that...https://en.wikipedia.org/wiki/The_Dangerous_Case_of_Donald_Trump and why do Reddit comment creators avoid it day after day since year 2017? Because a woman organized 27 people to follow... and people rather comment about Trump than learn nonfiction and repeat it to address MAGA misunderstandings.
+>
+
+
+=============
+  
+## Reddit comment o7w7fls
+
+    entry 111
+
+Comment URL: https://old.reddit.com/r/circled/comments/1rh5gkl/the_palm_hotel_in_dubai_hit_by_iranian_missile/o7w7fls/  
+Comment ID:      o7w7fls  
+Author:          GN0K  
+Bio:             Fuck fascists : Fascists should learn what this means, the paradox of tolerance.  if only they could read.  
+Account Created: 2017-12-12T17:34:15Z  
+Link Karma:      186  
+Comment Karma:   69732  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T15:41:54Z  
+Score:           453 points  
+Post Title:      The Palm Hotel in Dubai hit by Iranian missile  
+:::::: Reddit User Comment: ======  
+Trump warned us he would start WWIII when he kept projecting that shit on everyone else over the past decade.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> How much more black and white and clear could it be with Trump and Putin? PUTIN_SURKOV_TRUMP_LONG_TERM_YEARS_PLAN And people can't even connect October 7, 2023 to being Putin's birthday.
+>
+
+
+=============
+  
+## Reddit comment o7wuvsy
+
+    entry 112
+
+Comment URL: https://old.reddit.com/r/therewasanattempt/comments/1rh8i7h/to_make_it_look_iran_is_the_real_danger/o7wuvsy/  
+Comment ID:      o7wuvsy  
+Author:          YATFWATM  
+Bio:               
+Account Created: 2017-09-20T13:29:50Z  
+Link Karma:      1952  
+Comment Karma:   20182  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T17:39:16Z  
+Score:           1198 points  
+Post Title:      To make it look "Iran is the real danger"  
+:::::: Reddit User Comment: ======  
+But Hamas was hiding in all those places!
+
+And they had to kill 400 people for every hostage they took!
+
+You don't believe them? You're a Nazi!
+
+
+
+
+=============
+  
+## Reddit comment o7ww5pr
+
+    entry 113
+
+Comment URL: https://old.reddit.com/r/therewasanattempt/comments/1rh8i7h/to_make_it_look_iran_is_the_real_danger/o7ww5pr/  
+Comment ID:      o7ww5pr  
+Author:          No_Establishment6399  
+Bio:               
+Account Created: 2022-11-24T17:18:54Z  
+Link Karma:      155  
+Comment Karma:   8365  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T17:45:50Z  
+Score:           479 points  
+Post Title:      To make it look "Iran is the real danger"  
+:::::: Reddit User Comment: ======  
+Fuck Israel!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> February 28 today. NOT_GOOD_ENOUGH MLK Jr February 28, 1954. HATE_HARDER is the machine-lovers answer to hate, always more hate, always adding more and more hate.
+>
+
+
+=============
+  
+## Reddit comment o7xkelr
+
+    entry 114
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xkelr/  
+Comment ID:      o7xkelr  
+Author:          MyBuddyBossk  
+Bio:             Founder of New Hampshire Newts Sandlot Ball Club and known to doodle at times  
+Account Created: 2016-04-18T11:36:21Z  
+Link Karma:      16308  
+Comment Karma:   53263  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T19:48:18Z  
+Score:           None  
+Post Title:      Iranian leader Khamenei killed in strike, Israeli officials say  
+:::::: Reddit User Comment: ======  
+If true this is huge. We’re about to see Iran go through some crazy stuff
+
+
+
+
+=============
+  
+## Reddit comment o7xl6jx
+
+    entry 115
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xl6jx/  
+Comment ID:      o7xl6jx  
+Author:          DisasterNo1740  
+Bio:               
+Account Created: 2024-05-11T09:39:23Z  
+Link Karma:      1  
+Comment Karma:   99264  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T19:52:18Z  
+Score:           None  
+Post Title:      Iranian leader Khamenei killed in strike, Israeli officials say  
+:::::: Reddit User Comment: ======  
+I mean if you look at how Israel has systematically assassinated high profile leaders and targets in the past years during their conflicts, every single time people ask "how the fuck". Iran knew how vulnerable their leadership is, hence they prepared beforehand for successors in case of death. 
+
+
+
+
+=============
+  
+## Reddit comment o7xj3ys
+
+    entry 116
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xj3ys/  
+Comment ID:      o7xj3ys  
+Author:          TheMavrack  
+Bio:               
+Account Created: 2014-02-10T22:08:19Z  
+Link Karma:      1203  
+Comment Karma:   12459  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T19:41:37Z  
+Score:           None  
+Post Title:      Iranian leader Khamenei killed in strike, Israeli officials say  
+:::::: Reddit User Comment: ======  
+Holy fuck
+
+
+
+
+=============
+  
+## Reddit comment o7xqaeh
+
+    entry 117
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xqaeh/  
+Comment ID:      o7xqaeh  
+Author:          bimmerbetterthanmerc  
+Bio:               
+Account Created: 2020-11-16T00:19:21Z  
+Link Karma:      520  
+Comment Karma:   2234  
+Comment Age:     41 minutes ago  
+Timestamp:       2026-02-28T20:18:58Z  
+Score:           None  
+Post Title:      Iranian leader Khamenei killed in strike, Israeli officials say  
+:::::: Reddit User Comment: ======  
+As an Iranian/American, born and raised in Iran, happiest day of my life
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The best day in a person's life is military killing a death. Anti-goodness. Not winning a person over to goodness, but splattering their brain.
+>
+
+
+=============
+  
+## Reddit comment o7xkhdv
+
+    entry 118
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhbvdu/iranian_leader_khamenei_killed_in_strike_israeli/o7xkhdv/  
+Comment ID:      o7xkhdv  
+Author:          cbourd  
+Bio:               
+Account Created: 2016-06-25T11:06:07Z  
+Link Karma:      15487  
+Comment Karma:   19253  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T19:48:42Z  
+Score:           None  
+Post Title:      Iranian leader Khamenei killed in strike, Israeli officials say  
+:::::: Reddit User Comment: ======  
+Would this change anything or is this just maduro 2\.0 leaving the whole state apparatus intact and removing the current leader?
+
+
+
+
+=============
+  
+## Reddit comment o7whqo3
+
+    entry 119
+
+Comment URL: https://old.reddit.com/r/PeterExplainsTheJoke/comments/1rh6wgo/petah_quagmire/o7whqo3/  
+Comment ID:      o7whqo3  
+Author:          bigman3312  
+Bio:             Bueno : I don’t really know what I’m doing here, but I play video games and sports and I’m down for whatever tbh  
+Account Created: 2024-05-29T18:07:03Z  
+Link Karma:      2715  
+Comment Karma:   32662  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T16:33:17Z  
+Score:           4598 points  
+Post Title:      Petah? Quagmire?  
+:::::: Reddit User Comment: ======  
+Random background character here. Dudes who usually “where my hug at?” are usually subtly ‘begging’ or asking for a hug from girls who hug everyone else when they’re leaving a social event apart from them. They usually don’t get the hug because they are perceived to be weird/undesirable in one way or another. The “look at how small my hands are” are usually deemed as “pick me” girls, trying to overtly portray their “cuteness” and overall femininity to garner male attention.
+👍
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Affairs of hating humans.
+>
+
+
+=============
+  
+## Reddit comment o7xg17f
+
+    entry 120
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1rha7ol/greatest_threat_to_the_world/o7xg17f/  
+Comment ID:      o7xg17f  
+Author:          Ethereal_Velvet  
+Bio:             Clara ❤️ : your favourite bad decision 💕 reddit gets special treatment 🎀 DM me “Reddit” on OF and I’ll record your private little teaser just for you  
+Account Created: 2025-02-20T18:35:19Z  
+Link Karma:      2463  
+Comment Karma:   7918  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T19:25:26Z  
+Score:           111 points  
+Post Title:      Greatest threat to the world  
+:::::: Reddit User Comment: ======  
+this kind of thing messes with me because i remember growing up thinking “the bad guys” were always obvious, and then you get older and realize how much chaos just gets normalized if it’s wrapped in the right language
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The most popular upvoted comment. "then you get older and realize how much chaos just gets normalized if it’s wrapped in the right language"
+> 
+> 1. Wrapped in the latest Internet memes
+> 
+> 2. Wrapped in clickbait headline titles like the one created by Reddit low-information upvoters. "Greatest Threat to the World" non-specific generic.
+> 
+> 3. Is that Jason Hickel a Twitter, Elon Musk platform, screenshot on Reddit?
+> 
+> SUPER_HYPER_NORMAL via Reddit. No-identity anti-intellectual anti-book, avoiding relevant nonfiction books on paper. October 3, 2017 about the DANGER of Donald Trump by Bandy X Lee with 27 people... but NOT_GOOD_ENOUGH for Reddit commenting creators to quote and link over and over.
+>
+
+
+=============
+  
+## Reddit comment o7xbdsr
+
+    entry 121
+
+Comment URL: https://old.reddit.com/r/TrendoraX/comments/1rha7ol/greatest_threat_to_the_world/o7xbdsr/  
+Comment ID:      o7xbdsr  
+Author:          DudeFromYYT  
+Bio:             I just want to be entertained!  
+Account Created: 2023-09-28T19:22:40Z  
+Link Karma:      41  
+Comment Karma:   9556  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T19:01:33Z  
+Score:           44 points  
+Post Title:      Greatest threat to the world  
+:::::: Reddit User Comment: ======  
+While instigating a trade war with ex\-closest allies. While stealing Venezuela's natural resources. And committing war crimes against his own citizens, and some abroad…
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> White promoting media addiction, Trump promoting celebration of ignorance, Trump promoting Twitter-think brain rot. Promoting the avoidance of nonfiction serious relevant books on paper.
+>
+
+
+=============
+  
+## Reddit comment o7xpmbw
+
+    entry 122
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xpmbw/  
+Comment ID:      o7xpmbw  
+Author:          tinyE1138  
+Bio:             FUCK TRUMP, AND IF YOU VOTED FOR HIM, FUCK YOU TOO!  
+Account Created: 2025-03-23T12:25:32Z  
+Link Karma:      20870  
+Comment Karma:   126834  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T20:15:24Z  
+Score:           None  
+Post Title:      US-Iran strikes: Iran Supreme Leader Ayatollah Ali Khamanei killed  
+:::::: Reddit User Comment: ======  
+And with that, Trump is gonna claim he ended another war and demand another peace prize.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 11 month Reddit account. Top-upvoted most popular comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT Today is February 28 - completely avoids the February 25, 1954 teachings of Dr. Martin Luther King Jr because NOT_GOOD_ENOUGH teacher Dr. Kink. Praises worship of hate, profile on Reddit account is *hate harder* following Trump leadership of hate. Pro-ignorance, anti-intellectual hate worship.
+>
+
+
+=============
+  
+## Reddit comment o7xtwnm
+
+    entry 123
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xtwnm/  
+Comment ID:      o7xtwnm  
+Author:          TheMalibu  
+Bio:               
+Account Created: 2010-08-24T04:59:07Z  
+Link Karma:      1188  
+Comment Karma:   26992  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T20:38:26Z  
+Score:           None  
+Post Title:      US-Iran strikes: Iran Supreme Leader Ayatollah Ali Khamanei killed  
+:::::: Reddit User Comment: ======  
+Calling it now. Trump claiming interm presidency of Iran.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TRUMP_FANDOM calling out on Reddit that they want to see Trump spread his power and world leadership over more nations. Cult of extreme tiny-short messages on Reddit is gullible and obedient to Trump programmed mindsets. There is no resisting Trump on Reddit, people avoiding nonfiction serious books with any substantial ideas relevant to removing Trump from office... observe the avoidance of Dr. Bandy X Lee's 27 leaders in Reddit commenting section in favor of fandom predictions. Reddit media cultists do not do Reddit blackout or call for social media uprising,as they have never had a leader in their lifetime provide so much thrilling and stimulating media content.
+>
+
+
+=============
+  
+## Reddit comment o7xtw7a
+
+    entry 124
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xtw7a/  
+Comment ID:      o7xtw7a  
+Author:          WardenEdgewise  
+Bio:             Warden Edgewise :   
+Account Created: 2020-07-20T20:28:11Z  
+Link Karma:      1935  
+Comment Karma:   181798  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T20:38:22Z  
+Score:           None  
+Post Title:      US-Iran strikes: Iran Supreme Leader Ayatollah Ali Khamanei killed  
+:::::: Reddit User Comment: ======  
+Trump uploads an AI generated video of him killing Khamenei personally, and then all the world leaders giving Trump high\-fives.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Technology lovers of Reddit lust for Trump's media content to hate upon. Trump is always stimulating the media cult on Reddit. TECH_LUST_TECH_LOVERS - observe the avoidance of any serious nonfiction books on paper that teach cult deprogramming or mental health dangers of Donald Trump. Avoidance of Dr. Bandy X. Lee's nonfiction books, instead the cult media addicts on Reddit use spare time and free time celebrating the ignorance leadership of Donald Trump media content.
+>
+
+
+=============
+  
+## Reddit comment o7xxtfc
+
+    entry 125
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhcgd2/usiran_strikes_iran_supreme_leader_ayatollah_ali/o7xxtfc/  
+Comment ID:      o7xxtfc  
+Author:          TheExistential_Bread  
+Bio:               
+Account Created: 2022-08-06T18:07:12Z  
+Link Karma:      627  
+Comment Karma:   69168  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T20:59:42Z  
+Score:           None  
+Post Title:      US-Iran strikes: Iran Supreme Leader Ayatollah Ali Khamanei killed  
+:::::: Reddit User Comment: ======  
+I think it's a good time to share this letter from author KA Applegate about the conclusion of her series the Animorphs, which the primary theme of was war. Bolded by me, and spoilers for the series.
+
+> Dear Animorphs Readers:
+> 
+> Quite a number of people seem to be annoyed by the final chapter in the Animorphs story. There are a lot of complaints that I let Rachel die. That I let Visser Three/One live. That Cassie and Jake broke up. That Tobias seems to have been reduced to unexpressed grief. That there was no grand, final fight\-to\-end\-all\-fights. That there was no happy celebration. And everyone is mad about the cliffhanger ending.
+> 
+> So I thought I’d respond.
+> 
+> Animorphs was always a war story. Wars don’t end happily. Not ever. Often relationships that were central during war, dissolve during peace. Some people who were brave and fearless in war are unable to handle peace, feel disconnected and confused. Other times people in war make the move to peace very easily. Always people die in wars. And always people are left shattered by the loss of loved ones.
+> 
+> **That’s what happens, so that’s what I wrote. Jake and Cassie were in love during the war, and end up going their seperate ways afterward. Jake, who was so brave and capable during the war is adrift during the peace. Marco and Ax, on the other hand, move easily past the war and even manage to use their experience to good effect. Rachel dies, and Tobias will never get over it. That doesn’t by any means cover everything that happens in a war, but it’s a start.**
+> 
+> **Here’s what doesn’t happen in war: there are no wondrous, climactic battles that leave the good guys standing tall and the bad guys lying in the dirt. Life isn’t a World Wrestling Federation Smackdown. Even the people who win a war, who survive and come out the other side with the conviction that they have done something brave and necessary, don’t do a lot of celebrating. There’s very little chanting of ‘we’re number one’ among people who’ve personally experienced war.**
+> 
+> I’m just a writer, and my main goal was always to entertain. But I’ve never let Animorphs turn into just another painless video game version of war, and I wasn’t going to do it at the end. I’ve spent 60 books telling a strange, fanciful war story, sometimes very seriously, sometimes more tongue\-in\-cheek. I’ve written a lot of action and a lot of humor and a lot of sheer nonsense. But I have also, again and again, challenged readers to think about what they were reading. To think about the right and wrong, not just the who\-beat\-who. And to tell you the truth I’m a little shocked that so many readers seemed to believe I’d wrap it all up with a lot of high\-fiving and backslapping. Wars very often end, sad to say, just as ours did: with a nearly seamless transition to another war.
+> 
+> **So, you don’t like the way our little fictional war came out? You don’t like Rachel dead and Tobias shattered and Jake guilt\-ridden? You don’t like that one war simply led to another? Fine. Pretty soon you’ll all be of voting age, and of draft age. So when someone proposes a war, remember that even the most necessary wars, even the rare wars where the lines of good and evil are clear and clean, end with a lot of people dead, a lot of people crippled, and a lot of orphans, widows and grieving parents.**
+> 
+> If you’re mad at me because that’s what you have to take away from Animorphs, too bad. I couldn’t have written it any other way and remained true to the respect I have always felt for Animorphs readers.
+> 
+> K.A. Applegate
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Great for February 28. All war in all places is bad. People spend way too much time praising bad and teaching children to behave bad or worse than their parents. February 28 today.
+> 
+> * "The trouble isn’t so much that we don’t know enough, but it’s as if we aren’t good enough. The trouble isn’t so much that our scientific genius lags behind, but **our moral genius lags behind**. (Well) The great problem facing modern man is that, that the means by which we live, (Help him God) have outdistanced the spiritual ends for which we live. (That’s right) So we find ourselves caught in a messed-up world. (Well) The problem is with man himself and man’s soul. **We haven’t learned how to be just and honest and kind and true and loving. And that is the basis of our problem**. The real problem is that through our scientific genius we’ve made of the world a neighborhood, but through our moral and spiritual genius we’ve failed to make of it a brotherhood. (Lord have mercy) And the great danger facing us today is not so much the atomic bomb that was created by physical science. Not so much that atomic bomb that you can put in an aeroplane and drop on the heads of hundreds and thousands of people — as dangerous as that is. But **the real danger confronting civilization today is that atomic bomb which lies in the hearts and souls of men, (Lord have mercy) capable of exploding into the vilest of hate and into the most damaging selfishness**." - February 28, 1954. https://kinginstitute.stanford.edu/king-papers/documents/rediscovering-lost-values-0
+>
+
+
+=============
+  
+## Reddit comment o7yc2hd
+
+    entry 126
+
+Comment URL: https://old.reddit.com/r/news/comments/1rhfnn3/iran_reportedly_closes_strait_of_hormuz_oil_and/o7yc2hd/  
+Comment ID:      o7yc2hd  
+Author:          The-cultured-swine39  
+Bio:               
+Account Created: 2021-01-30T04:53:59Z  
+Link Karma:      173  
+Comment Karma:   96475  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T22:16:27Z  
+Score:           2435 points  
+Post Title:      Iran reportedly closes Strait of Hormuz: Oil and gas majors and traders suspended  
+:::::: Reddit User Comment: ======  
+That’ll add nicely to the inflation numbers before the midterms.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> HATE_MOTIVATED_ECONOMY_HATE_AS_A_VIRTUE_SIGNALING
+>
+
+
+=============
+  
+## Reddit comment o7z3cd8
+
+    entry 127
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7z3cd8/  
+Comment ID:      o7z3cd8  
+Author:          COmtndude20  
+Bio:             Adam4lyfe :   
+Account Created: 2020-11-17T21:58:47Z  
+Link Karma:      12296  
+Comment Karma:   6760  
+Comment Age:     13 minutes ago  
+Timestamp:       2026-03-01T00:54:10Z  
+Score:           None  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Iranian here. 
+
+For those wondering how the leader of a country of nearly 90 million could be taken out so easily, the reality is that he ruled a nation where millions despised his regime. He lived hidden away in secrecy, surrounded by paranoia, because the government knew how deeply unpopular it had become.
+
+When a regime spends decades imprisoning its people, beating its women, and crushing dissent, loyalty eventually disappears. Many inside Iran have long wanted this system gone.
+
+Look at Iranian news outlets and social media, millions of people are already pouring into the streets, expressing emotions the world has rarely been allowed to see.
+
+FreeIran ❤️🤍💚
+=============
+
+
+
+
+=============
+  
+## Reddit comment o7yw4g1
+
+    entry 128
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yw4g1/  
+Comment ID:      o7yw4g1  
+Author:          Word1_Word2_4Numbers  
+Bio:               
+Account Created: 2025-06-03T01:50:59Z  
+Link Karma:      446  
+Comment Karma:   41369  
+Comment Age:     56 minutes ago  
+Timestamp:       2026-03-01T00:12:05Z  
+Score:           None  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+"Mission Accomplished"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 9 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o7yzdd4
+
+    entry 129
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yzdd4/  
+Comment ID:      o7yzdd4  
+Author:          CircumspectCapybara  
+Bio:               
+Account Created: 2025-06-07T17:30:06Z  
+Link Karma:      13013  
+Comment Karma:   45368  
+Comment Age:     37 minutes ago  
+Timestamp:       2026-03-01T00:31:11Z  
+Score:           None  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+He died doing what he loved most.
+
+Good news for IRGC and regime leadership though: surprise off\-cycle promotions!
+
+Downsides: job is very stressful and there's high turnover.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 8 month Reddit account
+>
+
+
+=============
+  
+## Reddit comment o7yyrqe
+
+    entry 130
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhieoc/trump_says_irans_leader_is_dead/o7yyrqe/  
+Comment ID:      o7yyrqe  
+Author:          16ozbuddz  
+Bio:             Chiloptipher :   
+Account Created: 2020-02-15T04:10:24Z  
+Link Karma:      8136  
+Comment Karma:   38599  
+Comment Age:     41 minutes ago  
+Timestamp:       2026-03-01T00:27:38Z  
+Score:           None  
+Post Title:      [ Removed by moderator ]  
+:::::: Reddit User Comment: ======  
+Any bets on Cuba being next???
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> TRUMP_FANDOM like sports gambling, which was huge in Super Bowl 2026 this month, Trump fandom does not want to REMOVE TRUMP, wants more entertainment to bet and comment upon. Media cults of Reddit prize Trump as a source of stimulation.
+>
+
+
+=============
+  
+## Reddit comment o7z5p0i
+
+    entry 131
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rh9jdm/rworldnews_discussion_thread_us_and_israel_launch/o7z5p0i/  
+Comment ID:      o7z5p0i  
+Author:          tarallelegram  
+Bio:             a sad niners fan : + giants, sharks &amp; warriors  
+Account Created: 2017-08-28T02:05:17Z  
+Link Karma:      14264  
+Comment Karma:   535728  
+Comment Age:     14 minutes ago  
+Timestamp:       2026-03-01T01:08:21Z  
+Score:           None  
+Post Title:      /r/WorldNews Discussion Thread: US and Israel launch attack on Iran; Iran retaliates (Thread #2)  
+:::::: Reddit User Comment: ======  
+i'm not saying you believe this, but it blows my mind that the reddit braintrust thinks saudi arabia and iran are best friends when in reality they're constantly at each other's throats
+
+just google what happens when you get sunnis and shias in the same room
+
+
+
+
+=============
+  
+## Reddit comment o7z1wng
+
+    entry 132
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhiubo/iran_says_us_and_israel_strikes_hit_school/o7z1wng/  
+Comment ID:      o7z1wng  
+Author:          Ferazu  
+Bio:             Ferazu : Average Swedish Gamer  
+Account Created: 2014-07-24T07:16:21Z  
+Link Karma:      6323  
+Comment Karma:   15048  
+Comment Age:     37 minutes ago  
+Timestamp:       2026-03-01T00:45:49Z  
+Score:           None  
+Post Title:      Iran says US and Israel strikes hit school killing 108  
+:::::: Reddit User Comment: ======  
+Yes same Islamic regime that has killed 40 000 people in the span of 2\-3 days. The same regime that imprisoned 60 000 people. Same Regime that injured over 300 000 people. 
+
+Same regime that claims millions of protesters all over Iran were organized and led by Mossad and US agents.
+
+Yeah lets trust that regime.
+
+
+
+
+=============
+  
+## Reddit comment o7z10f3
+
+    entry 133
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhiubo/iran_says_us_and_israel_strikes_hit_school/o7z10f3/  
+Comment ID:      o7z10f3  
+Author:          FleetAdmiralFader  
+Bio:               
+Account Created: 2011-10-17T21:31:33Z  
+Link Karma:      1571  
+Comment Karma:   40452  
+Comment Age:     43 minutes ago  
+Timestamp:       2026-03-01T00:40:42Z  
+Score:           None  
+Post Title:      Iran says US and Israel strikes hit school killing 108  
+:::::: Reddit User Comment: ======  
+...this is the same BBC that is "peddling unverified claims" from Trump and Netanyahu that Khamenei was killed. It's called journalism and they are reporting on what is being said by various groups and clearly state the claims have not been independently verified.
+
+Perhaps the race for the scoop is just too much in this day and age and everyone should just wait for verification before publishing
+
+
+
+
+=============
+  
+## Reddit comment o7z0wwo
+
+    entry 134
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rhhtey/ms_rachel_posts_on_instagram_stop_killing_kids/o7z0wwo/  
+Comment ID:      o7z0wwo  
+Author:          Glad_Pea_4871  
+Bio:             Okay_J :   
+Account Created: 2026-01-05T14:32:30Z  
+Link Karma:      4793  
+Comment Karma:   49893  
+Comment Age:     44 minutes ago  
+Timestamp:       2026-03-01T00:40:09Z  
+Score:           297 points  
+Post Title:      Ms. Rachel posts on Instagram: "Stop killing kids."  
+:::::: Reddit User Comment: ======  
+damn ms Rachel is the REALEST
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. Top upvoted most popular. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7zbvf9
+
+    entry 135
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zbvf9/  
+Comment ID:      o7zbvf9  
+Author:          Ruben625  
+Bio:               
+Account Created: 2013-03-24T15:31:11Z  
+Link Karma:      3025  
+Comment Karma:   120666  
+Comment Age:     58 minutes ago  
+Timestamp:       2026-03-01T01:46:34Z  
+Score:           None  
+Post Title:      Iranian state media say country's supreme leader is dead  
+:::::: Reddit User Comment: ======  
+Well... that was fast
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Audience mindset. top-upvoted most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+>
+
+
+=============
+  
+## Reddit comment o7zc0v3
+
+    entry 136
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zc0v3/  
+Comment ID:      o7zc0v3  
+Author:          LFC47  
+Bio:               
+Account Created: 2018-11-16T05:06:01Z  
+Link Karma:      145  
+Comment Karma:   8240  
+Comment Age:     59 minutes ago  
+Timestamp:       2026-03-01T01:47:29Z  
+Score:           None  
+Post Title:      Iranian state media say country's supreme leader is dead  
+:::::: Reddit User Comment: ======  
+**Marge:**"Can we get rid of this Ayatollah t\-shirt?Ali Khamenei died minutes ago."
+
+**Homer:**"But, Marge, it works on any ayatollah."
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Entertained and amused Reddit fandom of Trumpism. FOLLOWERS_OF_LEADER_TRUMP_ACTOR_ENTERTAINER_DONALD_TRUMP_FOLLOWERS
+>
+
+
+=============
+  
+## Reddit comment o7zc1cs
+
+    entry 137
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zc1cs/  
+Comment ID:      o7zc1cs  
+Author:          xerxes_i  
+Bio:               
+Account Created: 2011-09-28T02:22:13Z  
+Link Karma:      57  
+Comment Karma:   37144  
+Comment Age:     1 hour ago  
+Timestamp:       2026-03-01T01:47:34Z  
+Score:           None  
+Post Title:      Iranian state media say country's supreme leader is dead  
+:::::: Reddit User Comment: ======  
+Fuck Khamenei. Fuck IRGC and fuck the Islamic regime. The emotions iranians including me are feeling is not easy to describe. We know how uncertain the future is. We know a good outcome is extremely unlikely but I hope you all can understand what he and his supporters did to our people, families and friends. His death is, however symbolic is a massive page in history of Iran and I hope my people can turn this page and move towards stability, secularism and freedom for ALL Iranians
+
+
+
+
+=============
+  
+## Reddit comment o7zdgl4
+
+    entry 138
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zdgl4/  
+Comment ID:      o7zdgl4  
+Author:          Plate_Armor_Man  
+Bio:               
+Account Created: 2019-10-13T14:15:18Z  
+Link Karma:      402  
+Comment Karma:   8970  
+Comment Age:     52 minutes ago  
+Timestamp:       2026-03-01T01:56:24Z  
+Score:           None  
+Post Title:      Iranian state media say country's supreme leader is dead  
+:::::: Reddit User Comment: ======  
+Holy hell, they actually got him on the first day of bombings. 
+
+
+
+
+=============
+  
+## Reddit comment o7zd97v
+
+    entry 139
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhkfgy/iranian_state_media_say_countrys_supreme_leader/o7zd97v/  
+Comment ID:      o7zd97v  
+Author:          Apprehensive_Home963  
+Bio:               
+Account Created: 2020-09-16T21:46:21Z  
+Link Karma:      1  
+Comment Karma:   4470  
+Comment Age:     54 minutes ago  
+Timestamp:       2026-03-01T01:55:08Z  
+Score:           None  
+Post Title:      Iranian state media say country's supreme leader is dead  
+:::::: Reddit User Comment: ======  
+Dedicated his whole life to fighting a gloriosus battle with the USA and Israel and dies on the first day like a noob lol
+
+
+
+
+=============
+  
+## Reddit comment o7xtr9r
+
+    entry 140
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xtr9r/  
+Comment ID:      o7xtr9r  
+Author:          Julian_Thorne  
+Bio:             Julian : Writer, philosopher, rogue mythologist  
+Account Created: 2025-03-03T00:40:30Z  
+Link Karma:      1838  
+Comment Karma:   48401  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-28T20:37:37Z  
+Score:           None  
+Post Title:      Only 21% of Americans Support the United States Initiating an Attack on Iran  
+:::::: Reddit User Comment: ======  
+Only 21%?
+
+The deplorables usually chime in at around 33\-37%, don't they? Is MAGA having a hard time supporting the FIFA Peace Prize winner?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Trump leads with hate leadership, everyone in USA is following hate. PRIZING_HATE_FURTHERING_HATE It is February 28 today, and one thing I've seen since Trump became center of all media systems focus nearly 11 years ago is the avoidance of Dr. Martin Luther King Jr's Sunday February 28, 1954 speech in Detroit, Michigan.
+>
+
+
+=============
+  
+## Reddit comment o7xxe1k
+
+    entry 141
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xxe1k/  
+Comment ID:      o7xxe1k  
+Author:          xyz_rick  
+Bio:               
+Account Created: 2019-01-20T07:53:04Z  
+Link Karma:      20  
+Comment Karma:   15147  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-28T20:57:23Z  
+Score:           None  
+Post Title:      Only 21% of Americans Support the United States Initiating an Attack on Iran  
+:::::: Reddit User Comment: ======  
+It’ll go up. Just wait for MAGA to get their talking points together
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> MAGA hive mind, Reddit hive mind, similar to monomyth_vs_monomyth - all prizing hate.
+>
+
+
+=============
+  
+## Reddit comment o7xs3m3
+
+    entry 142
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhd1m7/only_21_of_americans_support_the_united_states/o7xs3m3/  
+Comment ID:      o7xs3m3  
+Author:          Imaginary-Ad-7919  
+Bio:             Chris26 :   
+Account Created: 2021-02-05T07:52:14Z  
+Link Karma:      16496  
+Comment Karma:   6977  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-28T20:28:39Z  
+Score:           None  
+Post Title:      Only 21% of Americans Support the United States Initiating an Attack on Iran  
+:::::: Reddit User Comment: ======  
+So 21% of Americans are either stupid or don't care or they don't even know where Iran is.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 100 PERCENT of Americans call out-groups stupid, dumb, idiots, morons, etc. People promoting anti-intellectual low-effort commenting on every media platform. Despite the OBVIOUS RAGING SOCIETY CRISIS, everyone on Reddit seems to avoid Dr. Lee. AVOIDED_DR_BANDY_X_LEE_PUBLIC_WRITINGS
+>
+
+
+=============
+  
+## Reddit comment o7zov59
+
+    entry 143
+
+Comment URL: https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zov59/  
+Comment ID:      o7zov59  
+Author:          JKKIDD231  
+Bio:               
+Account Created: 2020-06-05T11:58:29Z  
+Link Karma:      153350  
+Comment Karma:   435443  
+Comment Age:     1 hour ago  
+Timestamp:       2026-03-01T03:05:56Z  
+Score:           269 points  
+Post Title:      Iran reels as more than 100 children reportedly killed in school bombing  
+:::::: Reddit User Comment: ======  
+Both countries have the most advanced precision munitions and missiles. So either that girls school was a legitimate target or they just decided to carpet bomb instead. Either way it’s messed up to target and kill children.
+
+
+
+
+=============
+  
+## Reddit comment o7zlwxu
+
+    entry 144
+
+Comment URL: https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zlwxu/  
+Comment ID:      o7zlwxu  
+Author:          2HDFloppyDisk  
+Bio:               
+Account Created: 2019-07-31T02:48:13Z  
+Link Karma:      17423  
+Comment Karma:   416260  
+Comment Age:     1 hour ago  
+Timestamp:       2026-03-01T02:47:46Z  
+Score:           1364 points  
+Post Title:      Iran reels as more than 100 children reportedly killed in school bombing  
+:::::: Reddit User Comment: ======  
+This is the stuff that radicalizes people against us.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> HATE_VS_HATE - Malala has been standing up for girls and children education and world peace - and in the timeline people flock to Trump and Putin instead. Social media users behave as if Trump is such an excellent source of entertainment. SEE_ALSO https://github.com/RocketDerp/April14_2025/main/working/PostMalala/Marriage/World_Malala_Timeline_Year_2012.md
+>
+
+
+=============
+  
+## Reddit comment o7zpcfc
+
+    entry 145
+
+Comment URL: https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zpcfc/  
+Comment ID:      o7zpcfc  
+Author:          NitneLiun  
+Bio:               
+Account Created: 2017-09-29T22:52:53Z  
+Link Karma:      1338  
+Comment Karma:   6128  
+Comment Age:     1 hour ago  
+Timestamp:       2026-03-01T03:08:56Z  
+Score:           33 points  
+Post Title:      Iran reels as more than 100 children reportedly killed in school bombing  
+:::::: Reddit User Comment: ======  
+I wondered how long it would take before the first story of a school or a wedding getting bombed would be published.
+
+
+
+
+=============
+  
+## Reddit comment o7zlyj5
+
+    entry 146
+
+Comment URL: https://old.reddit.com/r/news/comments/1rhlqes/iran_reels_as_more_than_100_children_reportedly/o7zlyj5/  
+Comment ID:      o7zlyj5  
+Author:          Bluestreaked  
+Bio:             I try to teach history, sometimes it even works  
+Account Created: 2025-09-14T14:42:09Z  
+Link Karma:      1  
+Comment Karma:   30895  
+Comment Age:     1 hour ago  
+Timestamp:       2026-03-01T02:48:02Z  
+Score:           60 points  
+Post Title:      Iran reels as more than 100 children reportedly killed in school bombing  
+:::::: Reddit User Comment: ======  
+At least I don’t have to argue with people arguing Iran is, “making up that this happened,” at this point. That was painful.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month Reddit account.
+>
+
+
+=============
+  
+## Reddit comment o7zxchg
+
+    entry 147
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zxchg/  
+Comment ID:      o7zxchg  
+Author:          Odd_Elk_444  
+Bio:               
+Account Created: 2020-10-03T03:56:22Z  
+Link Karma:      1448  
+Comment Karma:   2779  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-01T04:02:17Z  
+Score:           2348 points  
+Post Title:      IRGC says 'most intense' operation against Israel and US will begin soon  
+:::::: Reddit User Comment: ======  
+Weren't they supposed to leak those Trump vids by now?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top-most popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING Trump fandom wanting images.
+>
+
+
+=============
+  
+## Reddit comment o7ztocj
+
+    entry 148
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7ztocj/  
+Comment ID:      o7ztocj  
+Author:          Aerostudents  
+Bio:               
+Account Created: 2014-04-20T11:58:09Z  
+Link Karma:      7846  
+Comment Karma:   20719  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-01T03:37:23Z  
+Score:           2873 points  
+Post Title:      IRGC says 'most intense' operation against Israel and US will begin soon  
+:::::: Reddit User Comment: ======  
+I will believe it when I see it.
+
+After the June strikes and now these strikes I don't think Iran actually has much left to fight with.
+
+
+
+
+=============
+  
+## Reddit comment o7zvaad
+
+    entry 149
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zvaad/  
+Comment ID:      o7zvaad  
+Author:          codkaoc  
+Bio:               
+Account Created: 2021-10-06T03:21:35Z  
+Link Karma:      1139  
+Comment Karma:   21706  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-01T03:48:08Z  
+Score:           989 points  
+Post Title:      IRGC says 'most intense' operation against Israel and US will begin soon  
+:::::: Reddit User Comment: ======  
+The same Iran that had a clock counting down to the destruction of Israel that was blown up by Israel
+
+
+
+
+=============
+  
+## Reddit comment o7zwuxg
+
+    entry 150
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zwuxg/  
+Comment ID:      o7zwuxg  
+Author:          sko0led  
+Bio:               
+Account Created: 2014-11-24T23:35:18Z  
+Link Karma:      55  
+Comment Karma:   6209  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-01T03:58:52Z  
+Score:           198 points  
+Post Title:      IRGC says 'most intense' operation against Israel and US will begin soon  
+:::::: Reddit User Comment: ======  
+Why would they announce this?
+
+
+
+
+=============
+  
+## Reddit comment o7zu9yl
+
+    entry 151
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zu9yl/  
+Comment ID:      o7zu9yl  
+Author:          Ok_Put_5567  
+Bio:               
+Account Created: 2025-05-01T19:02:43Z  
+Link Karma:      9380  
+Comment Karma:   30547  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-01T03:41:26Z  
+Score:           931 points  
+Post Title:      IRGC says 'most intense' operation against Israel and US will begin soon  
+:::::: Reddit User Comment: ======  
+Their top secured and protected leader didn’t make it past day 1\.
+
+Ok. Good luck with that bud.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 10 month Reddit account. Trump + Israel fandom cheering on.
+>
+
+
+=============
+  
+## Reddit comment o7zyxqj
+
+    entry 152
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zyxqj/  
+Comment ID:      o7zyxqj  
+Author:          MrVociferous  
+Bio:               
+Account Created: 2008-07-03T14:43:23Z  
+Link Karma:      181  
+Comment Karma:   59150  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-01T04:13:26Z  
+Score:           283 points  
+Post Title:      IRGC says 'most intense' operation against Israel and US will begin soon  
+:::::: Reddit User Comment: ======  
+Buddy, it’s the Middle East. Nothing ends anywhere close to quick there.
+
+
+
+
+=============
+  
+## Reddit comment o7zv1x9
+
+    entry 153
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zv1x9/  
+Comment ID:      o7zv1x9  
+Author:          beta_1457  
+Bio:               
+Account Created: 2017-04-06T23:24:13Z  
+Link Karma:      457  
+Comment Karma:   12187  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-01T03:46:35Z  
+Score:           216 points  
+Post Title:      IRGC says 'most intense' operation against Israel and US will begin soon  
+:::::: Reddit User Comment: ======  
+Yes, because announcing your intentions to your target before you start your operation is a good idea. IMO just more posturing by a regime that has shown that's about all it can do.
+
+
+
+
+=============
+  
+## Reddit comment o7zwk6a
+
+    entry 154
+
+Comment URL: https://old.reddit.com/r/worldnews/comments/1rhmr0j/irgc_says_most_intense_operation_against_israel/o7zwk6a/  
+Comment ID:      o7zwk6a  
+Author:          Dramatic-Ad-4607  
+Bio:             GeekyC : 30 year old female. I love hearing peoples stories and learning new things and topics. Love books and gaming.  
+Account Created: 2020-10-22T02:04:41Z  
+Link Karma:      307  
+Comment Karma:   17554  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-01T03:56:49Z  
+Score:           184 points  
+Post Title:      IRGC says 'most intense' operation against Israel and US will begin soon  
+:::::: Reddit User Comment: ======  
+Im more concerned about sleeper cells in EU countries 
+
+

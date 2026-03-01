@@ -4550,3 +4550,577 @@ Fuck Trump.
 > :::::: Analysis_Thoughts Commentary: ======  
 > If Donald Trump were injured or killed, that would cause mass mayhem and violence. And people seen celebrating his death would likely meet a very bad cult outcome. The entire world is blaming the ENTIRE USA, not just Trump, for allowing the media addictions to Reality TV celebrity to go this far. But USA addicts to Trump content think that mocking trump isn't part of Surkovian governing. Mocking Tony Clifton POTUS character is eating the onion, adding MORE MOCKING to a total mockery is not resisting a mockery! People need to STOP social media mocking. FAITH_IN_MOCKERY And SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md
 >
+
+
+=============
+  
+## Reddit comment o7w621d
+
+    entry 163
+
+Comment URL: https://old.reddit.com/r/ImmigrationPathways/comments/1rh59y5/in_2019_kamala_harris_warned_that_his_personal/o7w621d/  
+Comment ID:      o7w621d  
+Author:          LowResGamr  
+Bio:               
+Account Created: 2016-07-31T03:04:45Z  
+Link Karma:      45  
+Comment Karma:   22085  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T15:34:59Z  
+Score:           63 points  
+Post Title:      In 2019, Kamala Harris warned that his personal insecurities would lead us into an avoidable war with Iran. In 2026, as the bombs fall, her words feel like a haunting prophecy. We were warned.  
+:::::: Reddit User Comment: ======  
+He's just that easily predicted. Can't get the immediate details right because that's a random mess, but you can tell where he and his incompetent cabinet are going.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> The top-most upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING about how predictable all this is. Yes, Surkov student screenplays. Self-harm to USA for Putin. But Reddit fandom of Trump media content seems entirely unable to engage serious nonfiction learning on the topic. PREDICTABLE_OUTCOME
+>
+
+
+=============
+  
+## Reddit comment o7w6t6v
+
+    entry 164
+
+Comment URL: https://old.reddit.com/r/ImmigrationPathways/comments/1rh59y5/in_2019_kamala_harris_warned_that_his_personal/o7w6t6v/  
+Comment ID:      o7w6t6v  
+Author:          JXDirector  
+Bio:               
+Account Created: 2025-04-19T13:25:44Z  
+Link Karma:      9099  
+Comment Karma:   527  
+Comment Age:     3 hours ago  
+Timestamp:       2026-02-28T15:38:45Z  
+Score:           52 points  
+Post Title:      In 2019, Kamala Harris warned that his personal insecurities would lead us into an avoidable war with Iran. In 2026, as the bombs fall, her words feel like a haunting prophecy. We were warned.  
+:::::: Reddit User Comment: ======  
+But her laugh...
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 10 month Reddit account, 2nd most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT with 3 words, not even near the 140 Twitter-thinking length limit. Parroting Trump MAGA talking points about "her laugh" in highly conditioned mind patterns. Surkov won since March of year 2013.
+>
+
+
+=============
+  
+## Reddit comment o7wt7vt
+
+    entry 165
+
+Comment URL: https://old.reddit.com/r/conspiracy/comments/1rh81l4/bruh/o7wt7vt/  
+Comment ID:      o7wt7vt  
+Author:          CeeBus  
+Bio:               
+Account Created: 2013-02-13T16:31:55Z  
+Link Karma:      618  
+Comment Karma:   30219  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T17:30:35Z  
+Score:           1001 points  
+Post Title:      Bruh…  
+:::::: Reddit User Comment: ======  
+Well, we’re waiting!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Most popular, top-upvoted. 3 words. TRUMP_FANDOM waiting for Trump images. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+>
+
+
+=============
+  
+## Reddit comment o7vq7qs
+
+    entry 166
+
+Comment URL: https://old.reddit.com/r/stevehofstetter/comments/1rh31j4/start_a_war_for_another_distraction/o7vq7qs/  
+Comment ID:      o7vq7qs  
+Author:          hean0224  
+Bio:             Minnesota N... :   
+Account Created: 2019-10-04T00:45:38Z  
+Link Karma:      34947  
+Comment Karma:   5961  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-28T14:08:05Z  
+Score:           11 points  
+Post Title:      start a war for another distraction  
+:::::: Reddit User Comment: ======  
+Call it what it is, the Epstein War.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE No call to Reddit community to have a We The People Internet uprising / intellectual moral blackout of social media. No call for Trump's removal or end to the war. Just a call to change a trivial name detail of the war killing people.
+>
+
+
+=============
+  
+## Reddit comment o7y3472
+
+    entry 167
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y3472/  
+Comment ID:      o7y3472  
+Author:          nohssiwi  
+Bio:             919 :   
+Account Created: 2010-01-15T12:34:55Z  
+Link Karma:      67560  
+Comment Karma:   31231  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T21:28:10Z  
+Score:           None  
+Post Title:      President Trump monitors U.S. military operations in Iran  
+:::::: Reddit User Comment: ======  
+[\<image\>](https://preview.redd.it/vtp94kwpzamg1.png?width=355&format=png&auto=webp&s=0c8eb137e171aa5e86e5aeda45d81c92bdfe0c16)
+
+is there a tv/screen behind with X/twitter on it? 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> MEDIA_ECOLOGY_OBSERVATION TWITTER_THINK_NATION
+>
+
+
+=============
+  
+## Reddit comment o7y4z6l
+
+    entry 168
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y4z6l/  
+Comment ID:      o7y4z6l  
+Author:          gumbobitch  
+Bio:               
+Account Created: 2020-03-31T16:22:31Z  
+Link Karma:      1  
+Comment Karma:   50287  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T21:38:05Z  
+Score:           None  
+Post Title:      President Trump monitors U.S. military operations in Iran  
+:::::: Reddit User Comment: ======  
+Lol the makeshift operational command center in Mar a Lago. I wish I was kidding.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "LOL", "kidding". CHUCKLEHEAD_NATION - Twitter on the screen at that meeting. A bunch of Internet addicts who are fans of Internet addict leader Trump. Always avoiding nonfiction serious books: Dr.Bandy X Lee avoided.
+>
+
+
+=============
+  
+## Reddit comment o7y31xw
+
+    entry 169
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rhehy0/president_trump_monitors_us_military_operations/o7y31xw/  
+Comment ID:      o7y31xw  
+Author:          OdinsLightning  
+Bio:               
+Account Created: 2014-03-28T20:05:17Z  
+Link Karma:      4228  
+Comment Karma:   74848  
+Comment Age:     2 hours ago  
+Timestamp:       2026-02-28T21:27:51Z  
+Score:           None  
+Post Title:      President Trump monitors U.S. military operations in Iran  
+:::::: Reddit User Comment: ======  
+Wouldn't it be great to have a president who doesn't wear stupid hats?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Stupid commenting that follows a leader of stupid. The followers of stupid messaging leadership. CALL_FOR_ACTION_TO_DO_TRIVIAL_CHANGE that the only concern is that Trump not wear a hat.
+>
+
+
+=============
+  
+## Reddit comment o7x7i5y
+
+    entry 170
+
+Comment URL: https://old.reddit.com/r/Epstein/comments/1rh9yrc/not_all_of_the_files_referencing_trump_raping_a/o7x7i5y/  
+Comment ID:      o7x7i5y  
+Author:          Unique-Tone-6394  
+Bio:             is this all there is :   
+Account Created: 2024-09-03T10:54:27Z  
+Link Karma:      2507  
+Comment Karma:   11878  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-28T18:42:08Z  
+Score:           1027 points  
+Post Title:      Not all of the files referencing Trump raping a 13 year old got removed. They missed 2 of them. There used to be dozens. EFTA01683591.pdf & EFTA00129126.pdf  
+:::::: Reddit User Comment: ======  
+This is fucking insane. 
+
+The FBI is evil. The law only exists for us poors.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "insane"
+>
+
+
+=============
+  
+## Reddit comment o7xa2yc
+
+    entry 171
+
+Comment URL: https://old.reddit.com/r/Epstein/comments/1rh9yrc/not_all_of_the_files_referencing_trump_raping_a/o7xa2yc/  
+Comment ID:      o7xa2yc  
+Author:          EpsteinEpstainTheory  
+Bio:             EpsteinEpstainUniverse :   
+Account Created: 2026-01-10T19:06:30Z  
+Link Karma:      1  
+Comment Karma:   12818  
+Comment Age:     4 hours ago  
+Timestamp:       2026-02-28T18:55:03Z  
+Score:           132 points  
+Post Title:      Not all of the files referencing Trump raping a 13 year old got removed. They missed 2 of them. There used to be dozens. EFTA01683591.pdf & EFTA00129126.pdf  
+:::::: Reddit User Comment: ======  
+So this is why they started to hate each other
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 1 month Reddit account. 3rd most upvoted popular comment. Tiny-short, not even near 140 character limit of Twitter-thinking.
+>
+
+
+=============
+  
+## Reddit comment o7yhpjt
+
+    entry 172
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1rhgf3m/ill_believe_it_when_i_see_it/o7yhpjt/  
+Comment ID:      o7yhpjt  
+Author:          Money-Act-5480  
+Bio:               
+Account Created: 2025-09-29T00:07:01Z  
+Link Karma:      238  
+Comment Karma:   18454  
+Comment Age:     1 hour ago  
+Timestamp:       2026-02-28T22:47:36Z  
+Score:           1839 points  
+Post Title:      I’ll believe it when I see it  
+:::::: Reddit User Comment: ======  
+Shit or get off the pot
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 5 month Reddit account, most popular upvoted comment. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT
+>
+
+
+=============
+  
+## Reddit comment o7y3i5m
+
+    entry 173
+
+Comment URL: https://old.reddit.com/r/law/comments/1rhdi86/secretary_hegseth_announces_we_will_be_halting/o7y3i5m/  
+Comment ID:      o7y3i5m  
+Author:          Tazling  
+Bio:               
+Account Created: 2018-01-24T19:39:16Z  
+Link Karma:      2650  
+Comment Karma:   636831  
+Comment Age:     6 hours ago  
+Timestamp:       2026-02-28T21:30:15Z  
+Score:           4427 points  
+Post Title:      Secretary Hegseth announces we will be halting attendance at all Ivy League and similar educational institutes - will soon announce “top to bottom” review of all military war colleges  
+:::::: Reddit User Comment: ======  
+We like our soldiers ignorant and parochial.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top-upvoted popular comment. REDDIT_TOP_COMMENT_SERIOUS_TOPIC_140_CHARACTER_TWITTER_REACTION_THINKING
+>
+
+
+=============
+  
+## Reddit comment o7xy32k
+
+    entry 174
+
+Comment URL: https://old.reddit.com/r/law/comments/1rhdi86/secretary_hegseth_announces_we_will_be_halting/o7xy32k/  
+Comment ID:      o7xy32k  
+Author:          charcoalVidrio  
+Bio:               
+Account Created: 2025-07-11T04:20:02Z  
+Link Karma:      66  
+Comment Karma:   16821  
+Comment Age:     7 hours ago  
+Timestamp:       2026-02-28T21:01:09Z  
+Score:           4717 points  
+Post Title:      Secretary Hegseth announces we will be halting attendance at all Ivy League and similar educational institutes - will soon announce “top to bottom” review of all military war colleges  
+:::::: Reddit User Comment: ======  
+Lol he went to Princeton and Harvard. Probably should fire himself.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 7 month Reddit account. "LOL". BANAL_WASH_LAUGH_TRACK
+>
+
+
+=============
+  
+## Reddit comment o7yi3p1
+
+    entry 175
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yi3p1/  
+Comment ID:      o7yi3p1  
+Author:          muchbro  
+Bio:               
+Account Created: 2014-01-10T07:04:53Z  
+Link Karma:      1000  
+Comment Karma:   28882  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-28T22:49:45Z  
+Score:           2558 points  
+Post Title:      200 American casualties in retaliation  
+:::::: Reddit User Comment: ======  
+Their blood is on the hands of every single member of Congress who refuses to impeach Trump.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> SOCIAL_MEDIA_DID_NOT call for blackouts, social media uprisings, etc. All people do is day in day out, day and night, comment about Trump and MAGA. The Saint Petersburg Internet Research agency mind-fucked everyone and people have adopted the conditioned programming without organizing an intelligence resistance. Anti-intellectual pro-mockery society since year 2013. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o7yfhf9
+
+    entry 176
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yfhf9/  
+Comment ID:      o7yfhf9  
+Author:          Washed_up_Vanski  
+Bio:               
+Account Created: 2024-12-02T21:24:10Z  
+Link Karma:      1989  
+Comment Karma:   11511  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-28T22:35:13Z  
+Score:           513 points  
+Post Title:      200 American casualties in retaliation  
+:::::: Reddit User Comment: ======  
+
+> The US has suffered 200 casualties in Iranian retaliatory strikes on bases across the Middle East, the Islamic Revolutionary Guard Corps (IRGC) has claimed.
+
+I wonder what possible way is there for the Iranians to confirm this information.
+
+
+
+
+=============
+  
+## Reddit comment o7yfuf0
+
+    entry 177
+
+Comment URL: https://old.reddit.com/r/UnderReportedNews/comments/1rhfq5j/200_american_casualties_in_retaliation/o7yfuf0/  
+Comment ID:      o7yfuf0  
+Author:          Square_Detective_658  
+Bio:               
+Account Created: 2024-03-29T16:03:02Z  
+Link Karma:      1956  
+Comment Karma:   4217  
+Comment Age:     5 hours ago  
+Timestamp:       2026-02-28T22:37:12Z  
+Score:           230 points  
+Post Title:      200 American casualties in retaliation  
+:::::: Reddit User Comment: ======  
+Likely. But it isn’t as if the US is going to be forthcoming. The US was pretty mum on the failed Ukraine Counter offensive. If they so no comment if asked then it’s most likely true.
+
+
+
+
+=============
+  
+## Reddit comment o7yxa88
+
+    entry 178
+
+Comment URL: https://old.reddit.com/r/ProgressiveHQ/comments/1rhgntj/november_cannot_get_here_soon_enough/o7yxa88/  
+Comment ID:      o7yxa88  
+Author:          holamau  
+Bio:             holaMau : ✊🏾|↙↙↙|✌🏾🎶💻📷⚽️🍸🥃🍷🍺☕️  
+Account Created: 2018-10-22T18:18:30Z  
+Link Karma:      4641  
+Comment Karma:   50920  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-01T00:18:59Z  
+Score:           4 points  
+Post Title:      November cannot get here soon enough.....  
+:::::: Reddit User Comment: ======  
+I am not sure that at this rate we’ll make it to November
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> And this posting, "November cannot get here soon enough" is promoting the idea of waiting and waiting as people have. No cult deprogramming, no Dr. Bandy X Lee promoting. ELECTION_DAY_FIXATED_BRAIN_ROT_EVERY_DAY_FOX_NEWS_ETC
+>
+
+
+=============
+  
+## Reddit comment o7zge57
+
+    entry 179
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rhkzgr/sterling_k_brown_at_the_naacp_image_awards_we_are/o7zge57/  
+Comment ID:      o7zge57  
+Author:          Yourdeathmylife  
+Bio:               
+Account Created: 2015-07-06T20:49:50Z  
+Link Karma:      1  
+Comment Karma:   2257  
+Comment Age:     5 hours ago  
+Timestamp:       2026-03-01T02:14:02Z  
+Score:           212 points  
+Post Title:      Sterling K. Brown at the NAACP Image Awards: “We are living under an administration that has an attack on diversity, equity, inclusion, justice. It’s trying to erase critical race theory, but like Sam said: they can’t erase us, because there’s no country without us.”  
+:::::: Reddit User Comment: ======  
+Sterling always delivers truth with elegance this felt less like an award speech and more like a history lesson wrapped in fire.
+
+
+
+
+=============
+  
+## Reddit comment o7zln41
+
+    entry 180
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rhkzgr/sterling_k_brown_at_the_naacp_image_awards_we_are/o7zln41/  
+Comment ID:      o7zln41  
+Author:          Prudent-Lettuce-3157  
+Bio:               
+Account Created: 2024-05-15T19:17:34Z  
+Link Karma:      1  
+Comment Karma:   1352  
+Comment Age:     4 hours ago  
+Timestamp:       2026-03-01T02:46:03Z  
+Score:           68 points  
+Post Title:      Sterling K. Brown at the NAACP Image Awards: “We are living under an administration that has an attack on diversity, equity, inclusion, justice. It’s trying to erase critical race theory, but like Sam said: they can’t erase us, because there’s no country without us.”  
+:::::: Reddit User Comment: ======  
+Heavy on the "There's no country without US."
+We are some of the first immigrants, albiet against our will. 400 years of Black people on this continent!
+
+
+
+
+=============
+  
+## Reddit comment o7ztcyv
+
+    entry 181
+
+Comment URL: https://old.reddit.com/r/Fauxmoi/comments/1rhkzgr/sterling_k_brown_at_the_naacp_image_awards_we_are/o7ztcyv/  
+Comment ID:      o7ztcyv  
+Author:          ohom2017  
+Bio:               
+Account Created: 2017-03-04T06:09:29Z  
+Link Karma:      695  
+Comment Karma:   9433  
+Comment Age:     4 hours ago  
+Timestamp:       2026-03-01T03:35:15Z  
+Score:           10 points  
+Post Title:      Sterling K. Brown at the NAACP Image Awards: “We are living under an administration that has an attack on diversity, equity, inclusion, justice. It’s trying to erase critical race theory, but like Sam said: they can’t erase us, because there’s no country without us.”  
+:::::: Reddit User Comment: ======  
+Mr. Brown I am your biggest ambassador! I'm telling everyone about your show! You'll never read this! But I don't care!
+
+
+
+
+=============
+  
+## Reddit comment o7yx8wd
+
+    entry 182
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhf879/former_vice_president_kamala_harris_i/o7yx8wd/  
+Comment ID:      o7yx8wd  
+Author:          kevonicus  
+Bio:             Kevonicus : I am a human bean.  
+Account Created: 2011-08-18T00:17:54Z  
+Link Karma:      1801091  
+Comment Karma:   274392  
+Comment Age:     7 hours ago  
+Timestamp:       2026-03-01T00:18:46Z  
+Score:           None  
+Post Title:      Former Vice President Kamala Harris: 'I unequivocally oppose this war'  
+:::::: Reddit User Comment: ======  
+So did literally every Republican before Trump took office. They’d be calling her and democrats warmongers right now if she was elected and did it. That’s a fact no one can refute honestly. Their whole anti\-war rhetoric was bullshit to begin with. They only said it because Trump did, but they love killing brown people and now they can openly love it again.
+
+
+
+
+=============
+  
+## Reddit comment o7y9fb7
+
+    entry 183
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhf879/former_vice_president_kamala_harris_i/o7y9fb7/  
+Comment ID:      o7y9fb7  
+Author:          limaconnect77  
+Bio:               
+Account Created: 2022-07-30T19:53:18Z  
+Link Karma:      129  
+Comment Karma:   39918  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-28T22:01:57Z  
+Score:           1770 points  
+Post Title:      Former Vice President Kamala Harris: 'I unequivocally oppose this war'  
+:::::: Reddit User Comment: ======  
+Harris was a shoe\-in if it weren’t for all the shocking personal scandals…oh, there weren’t any.
+
+
+
+
+=============
+  
+## Reddit comment o7ydk1b
+
+    entry 184
+
+Comment URL: https://old.reddit.com/r/politics/comments/1rhf879/former_vice_president_kamala_harris_i/o7ydk1b/  
+Comment ID:      o7ydk1b  
+Author:          KneeDeepInThe-Hoopla  
+Bio:             She/Her Cis Woman. Kind, Sensitive, Demisexual, Monogamous, Femme Lesbian who loves to laugh, cry, draw and paint. Is obsessed with perfume, napping, cute animals and all things 80's especially music.  
+Account Created: 2023-06-03T02:40:41Z  
+Link Karma:      1  
+Comment Karma:   32114  
+Comment Age:     9 hours ago  
+Timestamp:       2026-02-28T22:24:35Z  
+Score:           407 points  
+Post Title:      Former Vice President Kamala Harris: 'I unequivocally oppose this war'  
+:::::: Reddit User Comment: ======  
+My word, all I can think of when I see a picture of former Vice President Kamala Harris are the "what ifs?" How different would the whole world be today if Kamala had won? It is all just so depressing, the reality we have now, and it never needed to be this way!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "It is all just so depressing, the reality we have now, and it never needed to be this way!" she didn't stand up to the brain rot of low-effort voting upvotes of comments. The Saint Petersburg Internet Research Agency have people favor shit on EVERY topic, not just traditional politics. Shit-posting shit-commenting. We got rid of Trump for 4 years, and it kept getting worse. ATTRACTION_TO_SHIT_CONTENT_ENSHIT_BY_DESIRE People DESIRE Trump content with self-awareness they are cheering on machines doing high-speed delivery of Trump shit.
+>
