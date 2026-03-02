@@ -935,3 +935,30 @@ When they're talking about the deaths of people living in a country that is an a
 > :::::: Analysis_Thoughts Commentary: ======  
 > Reddit commenting, fixation on comments. Anti-FAQ anti-Wiki organization of information. Instead, people spend their spare time and free time commenting and commenting instead of taking serious topics seriously and organizing FAQ for *same page* understanding of everyone. BRAIN_ROT_SOCIETY_47
 >
+
+
+=============
+  
+## Reddit comment o898ugy
+
+    entry 34
+
+Comment URL: https://old.reddit.com/r/PoliticalHumor/comments/1rix6jr/i_vote_for_aljazeera/o898ugy/  
+Comment ID:      o898ugy  
+Author:          FineHowRU  
+Bio:               
+Account Created: 2019-07-05T21:35:13Z  
+Link Karma:      1753  
+Comment Karma:   6912  
+Comment Age:     2 hours ago  
+Timestamp:       2026-03-02T16:54:34Z  
+Score:           91 points  
+Post Title:      I vote for Aljazeera  
+:::::: Reddit User Comment: ======  
+America reports that drug prices are dropping 3,000%, this news soothes my tiny, ill informed brain. Big number \= good, right? WININING!
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> This entire posting is MEDIA_ECOLOGY_OBSERVATION MONOMYTH_VS_MONOMYTH of filter-bubble fandoms. SEE_ALSO https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md
+>
