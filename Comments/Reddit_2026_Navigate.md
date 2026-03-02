@@ -45,6 +45,8 @@ Reddit comments:
 
 3. [February 2026 2026-02-23 World Hate Affairs, anti-compassion anti-empathy behavior concerns](Reddit_2026-01/Reddit_commentary_2026-02-23_World_Hate_Affairs_out.md)
 
+4. [March 2026 2026-03-01 World Hate Affairs, Middle East Torah vs. Bible vs. Quran, Iran](Reddit_2026-01/Reddit_commentary_2026-03-01_World_Hate_Affairs_out.md)
+
 &nbsp;
 
 # General Reddit
