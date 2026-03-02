@@ -2770,3 +2770,366 @@ MJG talking about Healthcare after bending the knee to Trump for more than a dec
 > :::::: Analysis_Thoughts Commentary: ======  
 > 7 month Reddit comment. 2nd most POPULAR upvoted comment. "LMAO" messaging. Not even 140 character limit. REDDIT_TOP_COMMENT_YOUNG_ACCOUNT - MAGA_VALUES Reddit users (upvoters to 2nd place comment) who find the war with the Middle East a source of "LMAO" comedy content from reality TV actor Donald Trump leadership of entertainment.
 >
+
+
+=============
+  
+## Reddit comment o89fpy1
+
+    entry 97
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1riywnc/happier_or_just_less_aware/o89fpy1/  
+Comment ID:      o89fpy1  
+Author:          R50cent  
+Bio:             R50cent : Keep it moving  
+Account Created: 2013-09-27T22:09:21Z  
+Link Karma:      2243  
+Comment Karma:   337225  
+Comment Age:     2 hours ago  
+Timestamp:       2026-03-02T17:27:43Z  
+Score:           230 points  
+Post Title:      Happier, Or Just Less Aware?  
+:::::: Reddit User Comment: ======  
+I always love seeing this because conservatives are always some of the angriest mother fuckers around the very second you try to debate them on their bullshit. They go from 0 to "WELL JOE BIDEN\-" real fast
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top most upvoted comment. People on Reddit LOVE IT that there is ignorance and misunderstandings caused by billionaires Elon Musk (richest man in the world, using Twitter), Donald Trump (Truth Social fiction storytelling), Rupert Murdoch (Fox News HDTV), Putin (Russia Today, Saint Petersburg Internet Research Agency IRA), etc. Thinks it is great that media cults of ignorance drive USA society! ENJOYMENT_OF_TRUMP_AND_MAGA_VALUES
+>
+
+
+=============
+  
+## Reddit comment o89eo8q
+
+    entry 98
+
+Comment URL: https://old.reddit.com/r/MurderedByWords/comments/1riywnc/happier_or_just_less_aware/o89eo8q/  
+Comment ID:      o89eo8q  
+Author:          ronlugge  
+Bio:               
+Account Created: 2015-03-25T03:38:19Z  
+Link Karma:      2510  
+Comment Karma:   185920  
+Comment Age:     2 hours ago  
+Timestamp:       2026-03-02T17:22:41Z  
+Score:           707 points  
+Post Title:      Happier, Or Just Less Aware?  
+:::::: Reddit User Comment: ======  
+If they're actually happier, why are they so busy trying to tear down our lives?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> CONSERVING_WHAT EXACTLY ? Fiction vs. nonfiction is a thinking path out of the conservative vs. liberal brain rot that has come to dominate USA society since year 2013. Surkov won.
+>
+
+
+=============
+  
+## Reddit comment o88hjfs
+
+    entry 99
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88hjfs/  
+Comment ID:      o88hjfs  
+Author:          HotPetal_  
+Bio:               
+Account Created: 2026-02-19T13:12:55Z  
+Link Karma:      1  
+Comment Karma:   447  
+Comment Age:     5 hours ago  
+Timestamp:       2026-03-02T14:40:24Z  
+Score:           347 points  
+Post Title:      The concept of equating Donald Trump to Jesus  
+:::::: Reddit User Comment: ======  
+This comparison gets wilder every time I see it, people really stretch logic to defend their favorites.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top most-upvoted comment. LEVANT_MONOMYTH_CRISIS "Trump is Jesus" MONOMYTH_WARFARE mass mind manipulation.
+>
+
+
+=============
+  
+## Reddit comment o88h83g
+
+    entry 100
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88h83g/  
+Comment ID:      o88h83g  
+Author:          Living_Razzmatazz_93  
+Bio:             The Full Length :   
+Account Created: 2021-05-02T16:01:31Z  
+Link Karma:      24  
+Comment Karma:   30171  
+Comment Age:     5 hours ago  
+Timestamp:       2026-03-02T14:38:40Z  
+Score:           110 points  
+Post Title:      The concept of equating Donald Trump to Jesus  
+:::::: Reddit User Comment: ======  
+"Verily, I say to you: Grip them by the poontang, for the Kingdom of Heaven is the destination of multiple sustained sexual assaults."
+
+It's right there in that book, go check.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Religion faith of Reddit. 2nd most popular comment. The Reddit faith is: ALWAYS_MORE_MOCKING Trump leads the nation with bullshit, and Reddit fandom of Trump follows the Trump leadership. FAITH_IN_MOCKERY
+>
+
+
+=============
+  
+## Reddit comment o88k9lv
+
+    entry 101
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88k9lv/  
+Comment ID:      o88k9lv  
+Author:          Andrew-Cohen  
+Bio:             So many assholes, so little time. Someone remind me to just block them and stop engaging with them.  
+Account Created: 2021-03-08T18:47:40Z  
+Link Karma:      17594  
+Comment Karma:   74058  
+Comment Age:     5 hours ago  
+Timestamp:       2026-03-02T14:54:47Z  
+Score:           67 points  
+Post Title:      The concept of equating Donald Trump to Jesus  
+:::::: Reddit User Comment: ======  
+Imagine growing up a Christian and being told to love your neighbor and then being told "unless they gay or ts or Hispanic or Asian or libs"
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> DEMOCRACY_DOES_NOT_WORK_WITHOUT_LOVE_THY_NEIGHBOR_COMPASSION_VALUES
+>
+
+
+=============
+  
+## Reddit comment o88j45s
+
+    entry 102
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88j45s/  
+Comment ID:      o88j45s  
+Author:          YoshiTheFluffer  
+Bio:               
+Account Created: 2023-02-27T07:54:39Z  
+Link Karma:      14641  
+Comment Karma:   106162  
+Comment Age:     5 hours ago  
+Timestamp:       2026-03-02T14:48:47Z  
+Score:           45 points  
+Post Title:      The concept of equating Donald Trump to Jesus  
+:::::: Reddit User Comment: ======  
+Ah yes, I remember reading about how Jesus fooled a lot of people with a meme coin, verbaly attacked immigrants, started wars, was a child predator and on and on and…
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> BIBLE_LITERACY crisis. We The People need a social media uprising: BRAIN_ROT_SOCIETY_47
+>
+
+
+=============
+  
+## Reddit comment o88ii57
+
+    entry 103
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88ii57/  
+Comment ID:      o88ii57  
+Author:          ThatSmartIdiot  
+Bio:             That Smart Idiot N : ◤[cishet demi] looking for happy chemicals
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
+◤P/N: CYN-MYKX - DISASSEMBLY DRONE
+◢𝄂𝄁𝄃𝄃𝄂𝄀𝄃𝄃𝄃𝄂𝄁𝄂𝄀𝄃𝄃𝄀𝄁𝄃𝄁𝄀𝄃𝄂𝄃𝄃𝄂𝄃𝄀𝄂𝄃 S/N: N-0X0010010
+◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢  
+Account Created: 2018-10-14T18:04:32Z  
+Link Karma:      4298  
+Comment Karma:   339919  
+Comment Age:     5 hours ago  
+Timestamp:       2026-03-02T14:45:34Z  
+Score:           29 points  
+Post Title:      The concept of equating Donald Trump to Jesus  
+:::::: Reddit User Comment: ======  
+name one thing trump did that was aligned with jesus' teachings.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> I can name one: Romans 11:32 - Jesus said sin, and Trump sins. See also: John 1:1 how Trump uses words. Reddit community follows the Trump leading. Matthew 4:19 is what Trump does. Pro-Ignorance Reddit commenting community. REPUBLICANS_LEAD_WITH_IGNORANCE_IDEAS_AND_FOLLOWERS_REPLY_WITH_IGNORANCE
+>
+
+
+=============
+  
+## Reddit comment o88ivta
+
+    entry 104
+
+Comment URL: https://old.reddit.com/r/clevercomebacks/comments/1riuc8t/the_concept_of_equating_donald_trump_to_jesus/o88ivta/  
+Comment ID:      o88ivta  
+Author:          ninatlanta  
+Bio:             N : Hopeless romantic also happens to be a sadist;not the crazy killer sadist kind,but a sadist who craves inflicting pleasure on my partner to the point she begs me to stop &amp; keep going at the same time.  
+Account Created: 2022-07-30T13:07:46Z  
+Link Karma:      1554  
+Comment Karma:   21790  
+Comment Age:     5 hours ago  
+Timestamp:       2026-03-02T14:47:34Z  
+Score:           17 points  
+Post Title:      The concept of equating Donald Trump to Jesus  
+:::::: Reddit User Comment: ======  
+Remember the First Commandment . . . You shall have no other Gods before me. I guess false idolatry isn’t such a big deal anymore.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> If only Reddit media users would have an uprising of organized Bible literacy education. But instead, it's all reactionary commenting. INFORMATION_GLUT_COMMENTING_GLUT
+>
+
+
+=============
+  
+## Reddit comment o88h3q3
+
+    entry 105
+
+Comment URL: https://old.reddit.com/r/news/comments/1riucnx/4th_service_member_dies_from_injuries_in_iran/o88h3q3/  
+Comment ID:      o88h3q3  
+Author:          jimtow28  
+Bio:               
+Account Created: 2012-02-09T00:57:35Z  
+Link Karma:      329  
+Comment Karma:   469116  
+Comment Age:     6 hours ago  
+Timestamp:       2026-03-02T14:38:02Z  
+Score:           5240 points  
+Post Title:      4th service member dies from injuries in Iran operation  
+:::::: Reddit User Comment: ======  
+Remember how upset MAGAs were about the service members killed during the Afghanistan evacuation? I wonder why they're not screaming for the president to be removed this time?
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 2nd most popular Reddit comment. Asking social media "engagement questions". Asking people to remember the media cult ideas.
+>
+
+
+=============
+  
+## Reddit comment o88qj5z
+
+    entry 106
+
+Comment URL: https://old.reddit.com/r/news/comments/1riucnx/4th_service_member_dies_from_injuries_in_iran/o88qj5z/  
+Comment ID:      o88qj5z  
+Author:          DrugOfGods  
+Bio:               
+Account Created: 2015-11-11T13:00:58Z  
+Link Karma:      17035  
+Comment Karma:   15814  
+Comment Age:     6 hours ago  
+Timestamp:       2026-03-02T15:26:40Z  
+Score:           177 points  
+Post Title:      4th service member dies from injuries in Iran operation  
+:::::: Reddit User Comment: ======  
+I literally saw someone in the conservative sub say "an average of 2 service members die every day from accidents anyway...". Crazy. 
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> "crazy". Then why isn't Dr. Bandy X Lee's nonfiction books front and center in Reddit commenting, being quoted and repeated if we have a national mental health crisis... REMEMBER_THE_PROGRAM_IDEAS_BILLIONAIRES_FED_REDDIT_AUDIENCE
+>
+
+
+=============
+  
+## Reddit comment o8ar2lf
+
+    entry 107
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rj4wzy/trump_was_spotted_with_a_large_red_rash_on_his/o8ar2lf/  
+Comment ID:      o8ar2lf  
+Author:          Annual_Afternoon_737  
+Bio:               
+Account Created: 2022-10-16T09:21:54Z  
+Link Karma:      15  
+Comment Karma:   2827  
+Comment Age:     39 minutes ago  
+Timestamp:       2026-03-02T21:14:22Z  
+Score:           None  
+Post Title:      Trump was spotted with a large red rash on his neck earlier today.  
+:::::: Reddit User Comment: ======  
+Glad to see his ear has grown back after being shot.
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> Top-most upvoted popular comment. TRUMP_FANDOM cult image on front page of Reddit media cult venue. The comment repeating the MAGA talking points, as programmed by billionaire media systems. This comment in no way is resisting Trump values of media usage, anti-intellectual, pro-ignorance.
+>
+
+
+=============
+  
+## Reddit comment o8asgb6
+
+    entry 108
+
+Comment URL: https://old.reddit.com/r/pics/comments/1rj4wzy/trump_was_spotted_with_a_large_red_rash_on_his/o8asgb6/  
+Comment ID:      o8asgb6  
+Author:          wanna_be_doc  
+Bio:               
+Account Created: 2017-04-19T18:18:02Z  
+Link Karma:      10719  
+Comment Karma:   355475  
+Comment Age:     34 minutes ago  
+Timestamp:       2026-03-02T21:20:55Z  
+Score:           None  
+Post Title:      Trump was spotted with a large red rash on his neck earlier today.  
+:::::: Reddit User Comment: ======  
+Physician here:
+
+Everyone who’s commenting that this is shingles or some viral infection is wrong.
+
+It’s 5\-flurorourocil (5\-FU).
+
+It’s a form of topical chemotherapy that’s used to treat superficial skin cancers (like superficial basal cell carcinoma) or precancerous lesions like actinic keratoses. It basically causes the top layer of skin to peel off wherever it’s applied.
+
+Very common for people Trump’s age who never wore sunscreen growing up and tanned by covering their bodies in baby oil.
+
+However, if his doctors are recommending 5\-FU then his skin cancers are very superficial and not malignant.
+
+
+
+
+=============
+  
+## Reddit comment o89osec
+
+    entry 109
+
+Comment URL: https://old.reddit.com/r/WhitePeopleTwitter/comments/1rj07hw/trump_has_a_new_rashlike_injury_on_his_neck_today/o89osec/  
+Comment ID:      o89osec  
+Author:          Baumer9  
+Bio:               
+Account Created: 2025-11-01T21:52:35Z  
+Link Karma:      2108  
+Comment Karma:   43480  
+Comment Age:     3 hours ago  
+Timestamp:       2026-03-02T18:10:39Z  
+Score:           6428 points  
+Post Title:      Trump has a new rash-like injury on his neck today in addition to his disfigured hand  
+:::::: Reddit User Comment: ======  
+MY BATTLES WITH THE RADICAL LEFT HAVE LEFT ME SCARRED AND DEFORMED BUT I ASSURE YOU, MY RESOLVE HAS NEVER BEEN STRONGER!! 🇺🇸 🇺🇸
+
+
+> [!NOTE]
+> :::::: Analysis_Thoughts Commentary: ======  
+> 4 month Reddit account. Top most upvoted popular comment.REDDIT_TOP_COMMENT_YOUNG_ACCOUNT  Repeating Trump mindsets, as programmed by billionaire media systems. Trump-thinking. Reddit cult of Trump. DO_YOU_SPEAK_FOX_NEWS_Y2020
+>
